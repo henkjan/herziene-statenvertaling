@@ -168,3 +168,4 @@
     * [Deuteronomium 6](Deuteronomium/6/README.md)
     * [Deuteronomium 7](Deuteronomium/7/README.md)
     * [Deuteronomium 8](Deuteronomium/8/README.md)
+    * [Deuteronomium 9](Deuteronomium/9/README.md)
