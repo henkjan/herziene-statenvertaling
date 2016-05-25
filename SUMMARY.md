@@ -976,3 +976,4 @@
     * [Mattheus 3](Mattheus/3/README.md)
     * [Mattheus 4](Mattheus/4/README.md)
     * [Mattheus 5](Mattheus/5/README.md)
+    * [Mattheus 6](Mattheus/6/README.md)
