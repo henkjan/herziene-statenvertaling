@@ -892,3 +892,4 @@
     * [Daniel 11](Daniel/11/README.md)
     * [Daniel 12](Daniel/12/README.md)
 * [Hosea](Hosea/README.md)
+    * [Hosea 1](Hosea/1/README.md)
