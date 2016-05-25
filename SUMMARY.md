@@ -1187,3 +1187,4 @@
     * [2 Timotheus 3](2 Timotheus/3/README.md)
     * [2 Timotheus 4](2 Timotheus/4/README.md)
 * [Titus](Titus/README.md)
+    * [Titus 1](Titus/1/README.md)
