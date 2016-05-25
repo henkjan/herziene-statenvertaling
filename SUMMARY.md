@@ -865,3 +865,4 @@
     * [Ezechiel 33](Ezechiel/33/README.md)
     * [Ezechiel 34](Ezechiel/34/README.md)
     * [Ezechiel 35](Ezechiel/35/README.md)
+    * [Ezechiel 36](Ezechiel/36/README.md)
