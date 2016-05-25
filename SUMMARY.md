@@ -742,3 +742,4 @@
     * [Jesaja 36](Jesaja/36/README.md)
     * [Jesaja 37](Jesaja/37/README.md)
     * [Jesaja 38](Jesaja/38/README.md)
+    * [Jesaja 39](Jesaja/39/README.md)
