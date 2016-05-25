@@ -1240,3 +1240,4 @@
     * [Openbaring 3](Openbaring/3/README.md)
     * [Openbaring 4](Openbaring/4/README.md)
     * [Openbaring 5](Openbaring/5/README.md)
+    * [Openbaring 6](Openbaring/6/README.md)
