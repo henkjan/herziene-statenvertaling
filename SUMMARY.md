@@ -776,3 +776,4 @@
     * [Jeremia 3](Jeremia/3/README.md)
     * [Jeremia 4](Jeremia/4/README.md)
     * [Jeremia 5](Jeremia/5/README.md)
+    * [Jeremia 6](Jeremia/6/README.md)
