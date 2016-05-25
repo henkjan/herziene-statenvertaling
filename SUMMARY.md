@@ -107,3 +107,4 @@
     * [Leviticus 10](Leviticus/10/README.md)
     * [Leviticus 11](Leviticus/11/README.md)
     * [Leviticus 12](Leviticus/12/README.md)
+    * [Leviticus 13](Leviticus/13/README.md)
