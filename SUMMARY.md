@@ -1128,3 +1128,4 @@
     * [1 Korinthe 16](1 Korinthe/16/README.md)
 * [2 Korinthe](2 Korinthe/README.md)
     * [2 Korinthe 1](2 Korinthe/1/README.md)
+    * [2 Korinthe 2](2 Korinthe/2/README.md)
