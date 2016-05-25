@@ -187,3 +187,4 @@
     * [Deuteronomium 25](Deuteronomium/25/README.md)
     * [Deuteronomium 26](Deuteronomium/26/README.md)
     * [Deuteronomium 27](Deuteronomium/27/README.md)
+    * [Deuteronomium 28](Deuteronomium/28/README.md)
