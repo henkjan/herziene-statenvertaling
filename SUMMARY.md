@@ -241,3 +241,4 @@
     * [Richteren 19](Richteren/19/README.md)
     * [Richteren 20](Richteren/20/README.md)
     * [Richteren 21](Richteren/21/README.md)
+* [Ruth](Ruth/README.md)
