@@ -755,3 +755,4 @@
     * [Jesaja 49](Jesaja/49/README.md)
     * [Jesaja 50](Jesaja/50/README.md)
     * [Jesaja 51](Jesaja/51/README.md)
+    * [Jesaja 52](Jesaja/52/README.md)
