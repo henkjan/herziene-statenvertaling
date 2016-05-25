@@ -255,3 +255,4 @@
     * [1 Samuel 6](1 Samuel/6/README.md)
     * [1 Samuel 7](1 Samuel/7/README.md)
     * [1 Samuel 8](1 Samuel/8/README.md)
+    * [1 Samuel 9](1 Samuel/9/README.md)
