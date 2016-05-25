@@ -675,3 +675,4 @@
     * [Spreuken 23](Spreuken/23/README.md)
     * [Spreuken 24](Spreuken/24/README.md)
     * [Spreuken 25](Spreuken/25/README.md)
+    * [Spreuken 26](Spreuken/26/README.md)
