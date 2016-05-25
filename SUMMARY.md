@@ -1111,3 +1111,4 @@
     * [Romeinen 16](Romeinen/16/README.md)
 * [1 Korinthe](1 Korinthe/README.md)
     * [1 Korinthe 1](1 Korinthe/1/README.md)
+    * [1 Korinthe 2](1 Korinthe/2/README.md)
