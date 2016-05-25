@@ -1114,3 +1114,4 @@
     * [1 Korinthe 2](1 Korinthe/2/README.md)
     * [1 Korinthe 3](1 Korinthe/3/README.md)
     * [1 Korinthe 4](1 Korinthe/4/README.md)
+    * [1 Korinthe 5](1 Korinthe/5/README.md)
