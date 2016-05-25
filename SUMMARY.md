@@ -285,3 +285,4 @@
     * [2 Samuel 4](2 Samuel/4/README.md)
     * [2 Samuel 5](2 Samuel/5/README.md)
     * [2 Samuel 6](2 Samuel/6/README.md)
+    * [2 Samuel 7](2 Samuel/7/README.md)
