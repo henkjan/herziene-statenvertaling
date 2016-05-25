@@ -948,3 +948,4 @@
     * [Zefanja 2](Zefanja/2/README.md)
     * [Zefanja 3](Zefanja/3/README.md)
 * [Haggai](Haggai/README.md)
+    * [Haggai 1](Haggai/1/README.md)
