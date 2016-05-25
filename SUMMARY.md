@@ -1072,3 +1072,4 @@
     * [Handelingen 6](Handelingen/6/README.md)
     * [Handelingen 7](Handelingen/7/README.md)
     * [Handelingen 8](Handelingen/8/README.md)
+    * [Handelingen 9](Handelingen/9/README.md)
