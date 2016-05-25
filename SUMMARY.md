@@ -65,3 +65,4 @@
     * [Exodus 9](Exodus/9/README.md)
     * [Exodus 10](Exodus/10/README.md)
     * [Exodus 11](Exodus/11/README.md)
+    * [Exodus 12](Exodus/12/README.md)
