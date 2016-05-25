@@ -884,3 +884,4 @@
     * [Daniel 3](Daniel/3/README.md)
     * [Daniel 4](Daniel/4/README.md)
     * [Daniel 5](Daniel/5/README.md)
+    * [Daniel 6](Daniel/6/README.md)
