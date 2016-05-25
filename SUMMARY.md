@@ -38,3 +38,4 @@
     * [Genesis 33](Genesis/33/README.md)
     * [Genesis 34](Genesis/34/README.md)
     * [Genesis 35](Genesis/35/README.md)
+    * [Genesis 36](Genesis/36/README.md)
