@@ -24,3 +24,4 @@
     * [Genesis 19](Genesis/19/README.md)
     * [Genesis 20](Genesis/20/README.md)
     * [Genesis 21](Genesis/21/README.md)
+    * [Genesis 22](Genesis/22/README.md)
