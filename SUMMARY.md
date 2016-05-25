@@ -1104,3 +1104,4 @@
     * [Romeinen 9](Romeinen/9/README.md)
     * [Romeinen 10](Romeinen/10/README.md)
     * [Romeinen 11](Romeinen/11/README.md)
+    * [Romeinen 12](Romeinen/12/README.md)
