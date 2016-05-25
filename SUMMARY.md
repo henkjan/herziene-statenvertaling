@@ -924,3 +924,4 @@
     * [Obadja 1](Obadja/1/README.md)
 * [Jona](Jona/README.md)
     * [Jona 1](Jona/1/README.md)
+    * [Jona 2](Jona/2/README.md)
