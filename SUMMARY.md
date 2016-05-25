@@ -532,3 +532,4 @@
     * [Psalmen 31](Psalmen/31/README.md)
     * [Psalmen 32](Psalmen/32/README.md)
     * [Psalmen 33](Psalmen/33/README.md)
+    * [Psalmen 34](Psalmen/34/README.md)
