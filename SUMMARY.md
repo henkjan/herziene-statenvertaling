@@ -124,3 +124,4 @@
     * [Leviticus 27](Leviticus/27/README.md)
 * [Numeri](Numeri/README.md)
     * [Numeri 1](Numeri/1/README.md)
+    * [Numeri 2](Numeri/2/README.md)
