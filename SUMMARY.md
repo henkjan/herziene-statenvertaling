@@ -604,3 +604,4 @@
     * [Psalmen 103](Psalmen/103/README.md)
     * [Psalmen 104](Psalmen/104/README.md)
     * [Psalmen 105](Psalmen/105/README.md)
+    * [Psalmen 106](Psalmen/106/README.md)
