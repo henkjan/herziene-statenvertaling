@@ -1142,3 +1142,4 @@
     * [2 Korinthe 13](2 Korinthe/13/README.md)
 * [Galaten](Galaten/README.md)
     * [Galaten 1](Galaten/1/README.md)
+    * [Galaten 2](Galaten/2/README.md)
