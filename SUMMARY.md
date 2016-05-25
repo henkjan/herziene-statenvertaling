@@ -1214,3 +1214,4 @@
     * [Jakobus 5](Jakobus/5/README.md)
 * [1 Petrus](1 Petrus/README.md)
     * [1 Petrus 1](1 Petrus/1/README.md)
+    * [1 Petrus 2](1 Petrus/2/README.md)
