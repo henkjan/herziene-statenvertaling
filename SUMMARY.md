@@ -1130,3 +1130,4 @@
     * [2 Korinthe 1](2 Korinthe/1/README.md)
     * [2 Korinthe 2](2 Korinthe/2/README.md)
     * [2 Korinthe 3](2 Korinthe/3/README.md)
+    * [2 Korinthe 4](2 Korinthe/4/README.md)
