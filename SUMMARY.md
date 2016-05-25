@@ -416,3 +416,4 @@
     * [2 Kronieken 31](2 Kronieken/31/README.md)
     * [2 Kronieken 32](2 Kronieken/32/README.md)
     * [2 Kronieken 33](2 Kronieken/33/README.md)
+    * [2 Kronieken 34](2 Kronieken/34/README.md)
