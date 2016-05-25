@@ -576,3 +576,4 @@
     * [Psalmen 75](Psalmen/75/README.md)
     * [Psalmen 76](Psalmen/76/README.md)
     * [Psalmen 77](Psalmen/77/README.md)
+    * [Psalmen 78](Psalmen/78/README.md)
