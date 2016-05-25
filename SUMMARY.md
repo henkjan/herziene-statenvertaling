@@ -446,3 +446,4 @@
     * [Nehemia 13](Nehemia/13/README.md)
 * [Esther](Esther/README.md)
     * [Esther 1](Esther/1/README.md)
+    * [Esther 2](Esther/2/README.md)
