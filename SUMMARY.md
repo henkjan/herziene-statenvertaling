@@ -1161,3 +1161,4 @@
     * [Filippenzen 4](Filippenzen/4/README.md)
 * [Kolossenzen](Kolossenzen/README.md)
     * [Kolossenzen 1](Kolossenzen/1/README.md)
+    * [Kolossenzen 2](Kolossenzen/2/README.md)
