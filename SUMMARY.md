@@ -837,3 +837,4 @@
     * [Ezechiel 5](Ezechiel/5/README.md)
     * [Ezechiel 6](Ezechiel/6/README.md)
     * [Ezechiel 7](Ezechiel/7/README.md)
+    * [Ezechiel 8](Ezechiel/8/README.md)
