@@ -696,3 +696,4 @@
     * [Prediker 12](Prediker/12/README.md)
 * [Hooglied](Hooglied/README.md)
     * [Hooglied 1](Hooglied/1/README.md)
+    * [Hooglied 2](Hooglied/2/README.md)
