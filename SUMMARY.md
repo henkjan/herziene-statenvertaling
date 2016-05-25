@@ -119,3 +119,4 @@
     * [Leviticus 22](Leviticus/22/README.md)
     * [Leviticus 23](Leviticus/23/README.md)
     * [Leviticus 24](Leviticus/24/README.md)
+    * [Leviticus 25](Leviticus/25/README.md)
