@@ -230,3 +230,4 @@
     * [Richteren 8](Richteren/8/README.md)
     * [Richteren 9](Richteren/9/README.md)
     * [Richteren 10](Richteren/10/README.md)
+    * [Richteren 11](Richteren/11/README.md)
