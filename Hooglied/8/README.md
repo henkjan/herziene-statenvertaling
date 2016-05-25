@@ -9,7 +9,7 @@
 8. Wij hebben een kleine zuster die *nog* geen borsten heeft. Wat zullen wij voor onze zuster doen op de dag waarop men over haar zal spreken? 
 9. Als zij een muur is, zullen wij een zilveren bolwerk op haar bouwen. Als zij een deur is, zullen wij haar insluiten met een plank van ceder*hout*. 
 10. Ik ben een muur en mijn borsten zijn als torens. Toen was ik in Zijn ogen als iemand die vrede vindt. 
-11. Salomo had een wijngaard te Ba‰l-Hamon. Hij gaf deze wijngaard aan de bewakers. Voor zijn vruchten bracht ieder duizend zilverstukken. 
+11. Salomo had een wijngaard te Ba√§l-Hamon. Hij gaf deze wijngaard aan de bewakers. Voor zijn vruchten bracht ieder duizend zilverstukken. 
 12. Mijn wijngaard - die van Mij - ligt voor Mijn aangezicht. De duizend *zilverstukken* zijn voor u, Salomo, en tweehonderd voor de bewakers van zijn vrucht. 
 13. O, bewoonster van de tuinen, metgezellen slaan acht op uw stem, laat Mij *die* horen! 
 14. Kom haastig, mijn Liefste, en wees als een gazelle of als het jong van een hert op de bergen met specerijen.

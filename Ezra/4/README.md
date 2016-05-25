@@ -1,13 +1,13 @@
 #Ezra 4
-1. Toen de tegenstanders van Juda en Benjamin hadden gehoord dat de ballingen een tempel bouwden voor de HEERE, de God van Israël,
-2. kwamen zij naar Zerubbabel toe en naar de familiehoofden en zeiden tegen hen: Laten wij samen met u bouwen, want zoals u zoeken *ook* wij uw God. En aan Hem offeren wij sinds de dagen van Esar-Haddon, de koning van Assyrië, die ons hierheen heeft laten trekken.
-3. Maar Zerubbabel en Jesua en de overige familiehoofden van Israël zeiden tegen hen: Het is niet aan u en aan ons om *samen* een huis voor onze God te bouwen, want wíj alleen zullen *het* bouwen voor de HEERE, de God van Israël, zoals koning Kores, de koning van Perzië, ons geboden heeft.
+1. Toen de tegenstanders van Juda en Benjamin hadden gehoord dat de ballingen een tempel bouwden voor de HEERE, de God van IsraÃ«l,
+2. kwamen zij naar Zerubbabel toe en naar de familiehoofden en zeiden tegen hen: Laten wij samen met u bouwen, want zoals u zoeken *ook* wij uw God. En aan Hem offeren wij sinds de dagen van Esar-Haddon, de koning van AssyriÃ«, die ons hierheen heeft laten trekken.
+3. Maar Zerubbabel en Jesua en de overige familiehoofden van IsraÃ«l zeiden tegen hen: Het is niet aan u en aan ons om *samen* een huis voor onze God te bouwen, want wÃ­j alleen zullen *het* bouwen voor de HEERE, de God van IsraÃ«l, zoals koning Kores, de koning van PerziÃ«, ons geboden heeft.
 4. Het volk van het land ontmoedigde het volk van Juda en zij joegen hun schrik aan bij het bouwen.
-5. En zij huurden raadslieden tegen hen om hun plan te verijdelen, al de dagen van Kores, de koning van Perzië, tot aan het koningschap van Darius, de koning van Perzië.
+5. En zij huurden raadslieden tegen hen om hun plan te verijdelen, al de dagen van Kores, de koning van PerziÃ«, tot aan het koningschap van Darius, de koning van PerziÃ«.
 6. Tijdens het koningschap van Ahasveros, in het begin van zijn koningschap, schreven zij een aanklacht tegen de bewoners van Juda en Jeruzalem.
-7. In de dagen van Arthahsasta schreven Bislam, Mithredath en Tabeël en de overigen van zijn ambtgenoten naar Arthahsasta, de koning van Perzië. De tekst van de brief was geschreven in Aramees *schrift* en in het Aramees vertaald.
+7. In de dagen van Arthahsasta schreven Bislam, Mithredath en TabeÃ«l en de overigen van zijn ambtgenoten naar Arthahsasta, de koning van PerziÃ«. De tekst van de brief was geschreven in Aramees *schrift* en in het Aramees vertaald.
 8. Rehum, de kanselier, en Simsai, de secretaris, schreven een brief tegen Jeruzalem aan koning Arthahsasta, als volgt:
-9. Kanselier Rehum, secretaris Simsai en hun overige ambtgenoten, Dinaïeten, Afarsatieten, Tarpelieten, Afarsieten, Archavieten, Babyloniërs, *en* Susanieten, die Elamieten zijn,
+9. Kanselier Rehum, secretaris Simsai en hun overige ambtgenoten, DinaÃ¯eten, Afarsatieten, Tarpelieten, Afarsieten, Archavieten, BabyloniÃ«rs, *en* Susanieten, die Elamieten zijn,
 10. en de overige volken die de grote en vermaarde Asnappar in ballingschap heeft gevoerd en heeft doen wonen in de stad van Samaria en de rest *van het gebied* aan deze zijde van de Eufraat, en op dit tijdstip.
 11. Dit is een afschrift van de brief die zij aan hem, aan koning Arthahsasta, zonden: *Van* uw dienaren, de mannen aan deze zijde van de Eufraat, en op dit tijdstip.
 12. Laat het de koning bekend zijn dat de Joden die van u zijn weggetrokken, bij ons in Jeruzalem zijn gekomen en die opstandige en slechte stad *weer* aan het opbouwen zijn. Zij voltooien de muren en herstellen de fundamenten.
@@ -22,4 +22,4 @@
 21. Welnu, geef bevel deze mannen op te laten houden, zodat die stad niet herbouwd wordt, totdat door mij *daartoe* het bevel wordt gegeven.
 22. Hoed u ervoor om hierin een nalatigheid te begaan. Waarom zou de schade toenemen ten nadele van de koningen?
 23. Zodra het afschrift van de brief van koning Arthahsasta voorgelezen was voor Rehum, Simsai, de secretaris, en hun ambtgenoten, vertrokken ze haastig naar Jeruzalem, naar de Joden en lieten hen met kracht en geweld ophouden.
-24. Toen hield het werk aan het huis van God in Jeruzalem op, ja, het hield op tot het tweede regeringsjaar van Darius, de koning van Perzië.
+24. Toen hield het werk aan het huis van God in Jeruzalem op, ja, het hield op tot het tweede regeringsjaar van Darius, de koning van PerziÃ«.

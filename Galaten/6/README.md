@@ -14,6 +14,6 @@
 13. Want ook zij die besneden worden, nemen zelf de wet niet in acht, maar zij willen dat u besneden wordt om zich te kunnen beroemen op uw vlees.
 14. Maar ik zal mij volstrekt niet beroemen op iets anders dan op het kruis van onze Heere Jezus Christus, door Wie de wereld voor mij gekruisigd is, en ik voor de wereld.
 15. Want in Christus Jezus heeft niet het besneden zijn enige kracht, en ook niet het onbesneden zijn, maar *wel dat we* een nieuwe schepping *zijn*.
-16. En allen die overeenkomstig deze regel wandelen: vrede en barmhartigheid *zij* over hen en over het Israël van God.
+16. En allen die overeenkomstig deze regel wandelen: vrede en barmhartigheid *zij* over hen en over het IsraÃ«l van God.
 17. Verder, laat niemand mij lastigvallen, want ik draag de littekens van de Heere Jezus in mijn lichaam.
 18. De genade van onze Heere Jezus Christus *zij* met uw geest, broeders! Amen.

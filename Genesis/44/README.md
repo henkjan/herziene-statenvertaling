@@ -6,9 +6,9 @@
 5. Is dit niet *de beker* waaruit mijn heer drinkt en waarmee hij *dingen* met zekerheid kan waarnemen? U hebt slecht gehandeld met wat u gedaan hebt.
 6. En hij haalde hen in en sprak deze woorden tot hen.
 7. Zij zeiden tegen hem: Waarom spreekt mijn heer zulke woorden? Er is geen sprake van dat uw dienaren zoiets zouden doen!
-8. Zie, het geld dat wij boven in onze zakken vonden, hebben wij uit het land Kanaän naar u teruggebracht! Waarom zouden wij *dan* zilver of goud stelen uit het huis van uw heer?
+8. Zie, het geld dat wij boven in onze zakken vonden, hebben wij uit het land KanaÃ¤n naar u teruggebracht! Waarom zouden wij *dan* zilver of goud stelen uit het huis van uw heer?
 9. Degene van uw dienaren bij wie *de beker* gevonden wordt, moet sterven; bovendien zullen wij dan zelf slaven van mijn heer worden.
-10. Daarop zei hij: Welnu dan, overeenkomstig uw woorden, zo zal het zijn. Degene bij wie hij gevonden wordt, zal mijn slaaf zijn, terwijl ú onschuldig zult zijn.
+10. Daarop zei hij: Welnu dan, overeenkomstig uw woorden, zo zal het zijn. Degene bij wie hij gevonden wordt, zal mijn slaaf zijn, terwijl Ãº onschuldig zult zijn.
 11. Zij haastten zich en ieder zette zijn zak op de grond, en ieder opende zijn zak.
 12. En hij doorzocht *ze*, beginnend bij de oudste en eindigend bij de jongste; en de beker werd gevonden in de zak van Benjamin.
 13. Toen scheurden zij hun kleren. Ieder laadde *alles weer* op zijn ezel en zij keerden terug naar de stad.

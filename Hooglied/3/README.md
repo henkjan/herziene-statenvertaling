@@ -5,7 +5,7 @@
 4. Nauwelijks was ik hen voorbijgegaan of ik vond Hem Die ik innig liefheb. Ik greep Hem vast, liet Hem niet *meer* los, tot ik Hem gebracht had in het huis van mijn moeder, in de binnenkamer van haar die mij gebaard heeft. 
 5. Ik bezweer u, dochters van Jeruzalem, *als* bij de gazellen of bij de hinden op het veld dat u de liefde niet opwekt of aanwakkert, voordat het *haar* behaagt.
 6. Wie is zij die daar uit de woestijn komt, als zuilen van rook, in een wolk van mirre en wierook, van allerlei geurige kruiden van de koopman? 
-7. Zie, de draagstoel voor Salomo. Daaromheen zestig helden, uit de helden van Israël. 
+7. Zie, de draagstoel voor Salomo. Daaromheen zestig helden, uit de helden van IsraÃ«l. 
 8. Allen hanteren het zwaard, geoefend *als ze zijn* voor de oorlog. Ieder draagt zijn zwaard aan zijn heup tegen de verschrikking in de nachten. 
 9. Koning Salomo heeft voor zichzelf een draagkoets gemaakt van hout uit de Libanon. 
 10. De stijlen ervan maakte hij van zilver, zijn leuning van goud. *en* zijn zitting van roodpurper. Het binnenwerk ervan werd met liefde bekleed door de dochters van Jeruzalem. 

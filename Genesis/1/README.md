@@ -7,8 +7,8 @@
 6. En God zei: Laat er een gewelf zijn in het midden van het water, en laat dat scheiding maken tussen water en water!
 7. En God maakte dat gewelf en maakte scheiding tussen het water dat onder het gewelf is, en het water dat boven het gewelf is. En het was zo.
 8. En God noemde het gewelf hemel. Toen was het avond geweest en het was morgen geweest: de tweede dag.
-9. En God zei: Laat het water dat onder de hemel is, in één plaats samenvloeien en laat het droge zichtbaar worden! En het was zo.
-10. En God noemde het droge aarde en het samengevloeide water noemde Hij zeeën; en God zag dat het goed was.
+9. En God zei: Laat het water dat onder de hemel is, in Ã©Ã©n plaats samenvloeien en laat het droge zichtbaar worden! En het was zo.
+10. En God noemde het droge aarde en het samengevloeide water noemde Hij zeeÃ«n; en God zag dat het goed was.
 11. En God zei: Laat de aarde groen doen opkomen, zaaddragend gewas, vruchtbomen, die naar hun soort vrucht dragen, waarin hun zaad is op de aarde! En het was zo.
 12. En de aarde bracht groen voort, zaaddragend gewas naar zijn soort en bomen die vrucht dragen waarin hun zaad is, naar hun soort. En God zag dat het goed was.
 13. Toen was het avond geweest en het was morgen geweest: de derde dag.
@@ -20,7 +20,7 @@
 19. Toen was het avond geweest en het was morgen geweest: de vierde dag.
 20. En God zei: Laat het water wemelen van wemelende levende wezens; en laten er vogels boven de aarde vliegen, langs het hemelgewelf!
 21. En God schiep de grote zeedieren en alle krioelende levende wezens waarvan het water wemelt, naar hun soort, en alle gevleugelde vogels naar hun soort. En God zag dat het goed was.
-22. En God zegende ze en zei: Wees vruchtbaar, word talrijk, en vervul het water van de zeeën; en laten de vogels talrijk worden op de aarde!
+22. En God zegende ze en zei: Wees vruchtbaar, word talrijk, en vervul het water van de zeeÃ«n; en laten de vogels talrijk worden op de aarde!
 23. Toen was het avond geweest en het was morgen geweest: de vijfde dag.
 24. En God zei: Laat de aarde levende wezens naar hun soort voortbrengen: vee, kruipende dieren en wilde dieren van de aarde, naar zijn soort! En het was zo.
 25. En God maakte de wilde dieren van de aarde naar hun soort, het vee naar hun soort, en alle kruipende dieren van de aardbodem naar hun soort. En God zag dat het goed was.

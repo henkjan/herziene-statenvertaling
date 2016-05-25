@@ -5,12 +5,12 @@
 4. naar de plaats van het altaar dat hij daar vroeger gemaakt had; en Abram riep daar de Naam van de HEERE aan.
 5. Lot, die met Abram meeging, had ook kleinvee en runderen en tenten.
 6. En dat land liet het niet toe dat zij bij elkaar woonden, want zij hadden veel bezittingen, zodat zij niet bij elkaar konden wonen.
-7. Er ontstond *dan ook* onenigheid tussen de herders van het vee van Abram en de herders van het vee van Lot. Bovendien woonden in die tijd de Kana‰nieten en de Ferezieten in dat land.
+7. Er ontstond *dan ook* onenigheid tussen de herders van het vee van Abram en de herders van het vee van Lot. Bovendien woonden in die tijd de Kana√§nieten en de Ferezieten in dat land.
 8. En Abram zei tegen Lot: Laat er toch geen onenigheid zijn tussen mij en jou, en tussen mijn herders en jouw herders. Wij zijn immers mannen *die* broeders zijn!
 9. Ligt heel het land niet voor je open? Scheid je toch van mij af: als jij naar links *gaat*, dan zal ik naar rechts gaan, en als jij naar rechts *gaat*, dan zal ik naar links gaan.
 10. En Lot sloeg de ogen op en zag dat heel de Jordaanvlakte rijk aan water was; voordat de HEERE Sodom en Gomorra te gronde gericht had, was zij in de richting van Zoar als de hof van de HEERE, als het land Egypte.
 11. Daarom koos Lot voor zichzelf heel de Jordaanvlakte en Lot trok naar het oosten; en zij werden van elkaar gescheiden.
-12. Abram woonde in het land Kana‰n; en Lot woonde in de steden in de vlakte en zette zijn tenten op tot bij Sodom.
+12. Abram woonde in het land Kana√§n; en Lot woonde in de steden in de vlakte en zette zijn tenten op tot bij Sodom.
 13. De mannen van Sodom waren echter slecht en grote zondaars tegenover de HEERE.
 14. En de HEERE zei tegen Abram, nadat Lot zich van hem afgescheiden had: Sla toch uw ogen op en kijk vanaf de plaats waar u bent, naar het noorden, het zuiden, het oosten en het westen.
 15. Want al het land dat u ziet, zal Ik voor eeuwig aan u en uw nageslacht geven.

@@ -8,8 +8,8 @@
 7. Hij is de HEERE, onze God, Zijn oordelen gaan over heel de aarde. 
 8. Hij denkt aan Zijn verbond voor eeuwig, aan de belofte *die* Hij gedaan heeft, tot in duizend generaties, 
 9. *aan het verbond* dat Hij met Abraham gesloten heeft, en Zijn eed aan Izak. 
-10. Voor Jakob heeft Hij het vastgesteld als een verordening, voor Israël *als* een eeuwig verbond, 
-11. door te zeggen: Ik zal u het land Kanaän geven, het gebied dat uw erfelijk bezit is. 
+10. Voor Jakob heeft Hij het vastgesteld als een verordening, voor IsraÃ«l *als* een eeuwig verbond, 
+11. door te zeggen: Ik zal u het land KanaÃ¤n geven, het gebied dat uw erfelijk bezit is. 
 12. Toen zij *met* weinig mensen waren, ja, *met* weinigen, en vreemdelingen daarin, 
 13. en zij van volk naar volk zwierven, van het ene koninkrijk naar het andere volk, 
 14. liet Hij geen mens toe hen te onderdrukken. Ook bestrafte Hij koningen omwille van hen *en zei*: 
@@ -21,10 +21,10 @@
 20. De koning stuurde *boden* en liet hem vrij, de heerser van de volken liet hem los. 
 21. Hij stelde hem aan tot heer over zijn huis, tot heerser over al zijn bezit, 
 22. om zijn vorsten zijn wil op te leggen en zijn oudsten wijsheid te leren. 
-23. Daarna kwam Israël in Egypte, Jakob verbleef als vreemdeling in het land van Cham. 
+23. Daarna kwam IsraÃ«l in Egypte, Jakob verbleef als vreemdeling in het land van Cham. 
 24. Hij deed Zijn volk zeer toenemen en maakte het machtiger dan zijn tegenstanders. 
 25. Hij veranderde hun hart, zodat zij Zijn volk haatten en Zijn dienaren listig behandelden. 
-26. Hij zond Mozes, Zijn dienaar, en Aäron, die Hij verkozen had. 
+26. Hij zond Mozes, Zijn dienaar, en AÃ¤ron, die Hij verkozen had. 
 27. Zij verrichtten onder hen de tekenen die Hij bevolen had, en wonderen in het land van Cham. 
 28. Hij zond duisternis en maakte het duister - zij waren Zijn woord niet ongehoorzaam - 
 29. Hij veranderde hun water in bloed en doodde hun vissen. 

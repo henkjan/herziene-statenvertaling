@@ -11,9 +11,9 @@
 10. Van over de rivieren van Cusj zullen zij die vurig tot Mij bidden, het volk, overal door Mij verspreid, Mijn offer brengen. 
 11. Op die dag zult u niet beschaamd zijn over al uw daden waarmee u tegen Mij in opstand kwam, want dan zal Ik hen uit uw midden wegdoen die uitgelaten zijn over uw hoogmoed. Voortaan zult u zich niet meer verheffen omwille van Mijn heilige berg. 
 12. Maar Ik zal in uw midden doen overblijven een ellendig en arm volk. Zij zullen op de Naam van de HEERE vertrouwen. 
-13. Het overblijfsel van Israël zal geen onrecht doen en geen leugen spreken, en in hun mond zal niet gevonden worden een tong die bedriegt. Ja, zij zullen weiden en neerliggen, en niemand zal *hun* schrik aanjagen. 
-14. Zing vrolijk, dochter van Sion! Juich, Israël! Wees blij en spring op van vreugde met heel *uw* hart, dochter van Jeruzalem! 
-15. De HEERE heeft uw oordelen weggenomen, Hij heeft uw vijand weggevaagd. De Koning van Israël, de HEERE, is in uw midden: u zult geen kwaad meer zien. 
+13. Het overblijfsel van IsraÃ«l zal geen onrecht doen en geen leugen spreken, en in hun mond zal niet gevonden worden een tong die bedriegt. Ja, zij zullen weiden en neerliggen, en niemand zal *hun* schrik aanjagen. 
+14. Zing vrolijk, dochter van Sion! Juich, IsraÃ«l! Wees blij en spring op van vreugde met heel *uw* hart, dochter van Jeruzalem! 
+15. De HEERE heeft uw oordelen weggenomen, Hij heeft uw vijand weggevaagd. De Koning van IsraÃ«l, de HEERE, is in uw midden: u zult geen kwaad meer zien. 
 16. Op die dag zal tegen Jeruzalem gezegd worden: Wees niet bevreesd, Sion! Verlies de moed niet. 
 17. De HEERE, uw God, is in uw midden, een Held, *Die* verlossen zal. Hij zal Zich over u verheugen met blijdschap. Hij zal zwijgen in Zijn liefde. Hij zal Zich over u verblijden met gejuich. 
 18. Wie bedroefd zijn vanwege de samenkomst zal Ik verzamelen, zij zijn uit u; de smaad *drukt als* een last op hen. 

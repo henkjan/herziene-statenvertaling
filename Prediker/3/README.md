@@ -18,6 +18,6 @@
 17. Ik zei in mijn hart: De rechtvaardige en de goddeloze zal God oordelen, want er is een tijd voor elk voornemen en voor elk werk.
 18. Wat de mensenkinderen betreft, zei ik in mijn hart dat God hen zal toetsen, en dat zij zullen inzien dat zij voor zichzelf *als* de dieren zijn.
 19. Want wat de mensenkinderen overkomt, overkomt ook de dieren. Hun overkomt een *en* hetzelfde. Zoals de een sterft, zo sterft de ander, en zij hebben alle een *en* dezelfde adem. De mensen hebben niets voor op de dieren, want alles is vluchtig. 
-20. Zij gaan allen naar één plaats: zij zijn allen uit het stof en zij keren allen terug tot het stof.
+20. Zij gaan allen naar Ã©Ã©n plaats: zij zijn allen uit het stof en zij keren allen terug tot het stof.
 21. Wie merkt op dat de adem van de mensenkinderen naar boven stijgt en de adem van de dieren naar beneden daalt naar de aarde?
 22. Zo heb ik ingezien dat er niets beter is dan dat de mens zich verblijdt in zijn werken, want dat is zijn deel. Wie zal hem immers *zo ver* brengen dat hij ziet wat na hem gebeuren zal?

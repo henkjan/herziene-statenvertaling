@@ -4,12 +4,12 @@
 3. en de priester moet buiten het kamp gaan. Heeft de priester vervolgens gezien dat - zie! - de ziekte van de melaatsheid bij de melaatse genezen is,
 4. dan moet de priester opdracht geven dat men voor hem die gereinigd wordt, twee levende reine vogels neemt, cederhout, karmozijn en hysop.
 5. De priester moet dan opdracht geven dat men de ene vogel slacht boven een aarden pot met bronwater.
-6. Dan moet hij de levende vogel nemen, met het cederhout, het karmozijn en de hysop. Hij moet dat *alles* mÈt de levende vogel dopen in het bloed van de vogel die boven het bronwater geslacht is.
+6. Dan moet hij de levende vogel nemen, met het cederhout, het karmozijn en de hysop. Hij moet dat *alles* m√©t de levende vogel dopen in het bloed van de vogel die boven het bronwater geslacht is.
 7. En hij moet *hiermee* zevenmaal sprenkelen op hem die van de melaatsheid gereinigd wordt. Daarna moet hij hem rein verklaren, en de levende vogel in het open veld weg laten vliegen.
 8. Wie gereinigd wordt, moet zijn kleren wassen, al zijn haar afscheren en zich met water wassen. Dan is hij rein. Daarna mag hij in het kamp komen, maar hij moet zeven dagen buiten zijn tent blijven.
 9. Op de zevende dag zal het *zo* zijn, dat hij al zijn haar afscheert: zijn hoofd, zijn baard en de wenkbrauwen van zijn ogen. Ja, al zijn haar moet hij afscheren, zijn kleren wassen en zijn lichaam met water wassen. Dan is hij rein.
 10. En op de achtste dag moet hij twee lammeren zonder enig gebrek nemen en een ooilam zonder enig gebrek van een jaar oud, en ook drie tiende *efa* bloem als graanoffer, met olie gemengd, en een log olie.
-11. De priester die de reiniging voltrekt, moet de man die gereinigd wordt, mÈt die dingen plaatsen voor het aangezicht van de HEERE, *bij* de ingang van de tent van ontmoeting.
+11. De priester die de reiniging voltrekt, moet de man die gereinigd wordt, m√©t die dingen plaatsen voor het aangezicht van de HEERE, *bij* de ingang van de tent van ontmoeting.
 12. Dan moet de priester het ene lam nemen en het als schuldoffer aanbieden met de log olie. Hij moet die als beweegoffer voor het aangezicht van de HEERE bewegen.
 13. Daarna moet hij het lam slachten op de plaats waar men het zondoffer en het brandoffer slacht, op de heilige plaats. Want het schuldoffer, evenals het zondoffer, is voor de priester. Het is allerheiligst.
 14. De priester moet dan *een deel* van het bloed van het schuldoffer nemen, en de priester moet dat strijken op de rechteroorlel van hem die gereinigd wordt, op de duim van zijn rechterhand en op de grote teen van zijn rechtervoet.
@@ -31,10 +31,10 @@
 30. Dan moet hij - al naargelang zijn vermogen reikt - een van de tortelduiven of van de jonge duiven bereiden.
 31. Al naargelang zijn vermogen reikt, moet het ene als zondoffer en het andere als brandoffer zijn, naast het graanoffer. Zo moet de priester voor hem die gereinigd wordt, verzoening doen voor het aangezicht van de HEERE.
 32. Dit is de wet voor hem die de ziekte van de melaatsheid heeft en van wie het vermogen niet toereikend is om zijn reiniging *te betalen*.
-33. De HEERE sprak tot Mozes en tot A‰ron:
-34. Wanneer u komt in het land Kana‰n, dat Ik u tot bezit geef, en Ik de ziekte van de melaatsheid toedeel aan een huis in het land dat u bezit,
+33. De HEERE sprak tot Mozes en tot A√§ron:
+34. Wanneer u komt in het land Kana√§n, dat Ik u tot bezit geef, en Ik de ziekte van de melaatsheid toedeel aan een huis in het land dat u bezit,
 35. dan moet hij van wie het huis is, komen en de priester vertellen: Er lijkt een ziekte aan het huis te zijn.
-36. De priester moet dan opdracht geven dat zij het huis ontruimen vÛÛr de priester komt, om die ziekte te bezien, zodat niet alles wat in het huis is, onrein wordt. Daarna moet de priester komen om het huis te bezien.
+36. De priester moet dan opdracht geven dat zij het huis ontruimen v√≥√≥r de priester komt, om die ziekte te bezien, zodat niet alles wat in het huis is, onrein wordt. Daarna moet de priester komen om het huis te bezien.
 37. Heeft hij de ziekte vervolgens bezien, en zie, de ziekte aan de muren van dat huis bestaat uit groenachtige of roodachtige kuiltjes, die zichtbaar dieper liggen dan de wand,
 38. dan moet de priester uit het huis, door de deuropening van het huis, vertrekken en het huis zeven dagen laten afsluiten.
 39. Daarna moet de priester op de zevende dag terugkeren. Wanneer hij ziet dat - zie! - de ziekte zich op de muren van het huis heeft uitgebreid,

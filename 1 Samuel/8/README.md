@@ -1,11 +1,11 @@
 #1 Samuel 8
-1. Het gebeurde nu, toen Samuel oud geworden was, dat hij zijn zonen tot richters over Israël aanstelde.
-2. De naam van zijn eerstgeboren zoon was Joël en de naam van zijn tweede was Abia; zij waren richters in Berseba.
+1. Het gebeurde nu, toen Samuel oud geworden was, dat hij zijn zonen tot richters over IsraÃ«l aanstelde.
+2. De naam van zijn eerstgeboren zoon was JoÃ«l en de naam van zijn tweede was Abia; zij waren richters in Berseba.
 3. Maar zijn zonen gingen niet in zijn wegen; zij waren uit op winstbejag, namen geschenken aan en bogen het recht.
-4. Toen kwamen alle oudsten van Israël bijeen, en zij kwamen bij Samuel in Rama.
+4. Toen kwamen alle oudsten van IsraÃ«l bijeen, en zij kwamen bij Samuel in Rama.
 5. Zij zeiden tegen hem: Zie, u bent oud geworden en uw zonen gaan niet in uw wegen. Stel daarom een koning over ons aan om ons leiding te geven, zoals alle volken.
 6. Toen zij zeiden: Geef ons een koning om ons leiding te geven, was dit woord kwalijk in de ogen van Samuel. En Samuel bad tot de HEERE.
-7. Maar de HEERE zei tegen Samuel: Geef gehoor aan de stem van het volk in alles wat zij tegen u zeggen; want zij hebben ú niet verworpen, maar Míj hebben zij verworpen, dat Ik geen Koning over hen zou zijn.
+7. Maar de HEERE zei tegen Samuel: Geef gehoor aan de stem van het volk in alles wat zij tegen u zeggen; want zij hebben Ãº niet verworpen, maar MÃ­j hebben zij verworpen, dat Ik geen Koning over hen zou zijn.
 8. Overeenkomstig alles wat zij *Mij* aangedaan hebben, vanaf de dag dat Ik hen uit Egypte geleid heb tot deze dag toe, door Mij te verlaten en andere goden te dienen, doen zij nu ook u aan.
 9. Welnu, luister naar hun stem, maar waarschuw hen nadrukkelijk en maak hun de handelwijze bekend van de koning die over hen zal regeren.
 10. Daarop maakte Samuel al de woorden van de HEERE bekend aan het volk, dat een koning van hem verlangde.
@@ -20,4 +20,4 @@
 19. Maar het volk weigerde naar de stem van Samuel te luisteren. Zij zeiden: Nee, er moet toch een koning over ons komen.
 20. Dan zullen wij ook zijn als al de volken; onze koning zal ons leiding geven en hij zal voor ons uitgaan en onze oorlogen voeren.
 21. Toen Samuel al de woorden van het volk gehoord had, sprak hij die uit ten aanhoren van de HEERE.
-22. De HEERE zei tegen Samuel: Luister naar hun stem en stel een koning over hen aan. Toen zei Samuel tegen de mannen van Israël: Ga heen, ieder naar zijn stad.
+22. De HEERE zei tegen Samuel: Luister naar hun stem en stel een koning over hen aan. Toen zei Samuel tegen de mannen van IsraÃ«l: Ga heen, ieder naar zijn stad.

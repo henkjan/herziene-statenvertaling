@@ -2,7 +2,7 @@
 1. De woorden van koning Lemuel, de last waarmee zijn moeder hem onderwezen heeft. 
 2. Wat, mijn zoon, en wat, zoon van mijn schoot, ja, wat *zal ik je aanraden*, zoon van mijn geloften? 
 3. Geef je kracht niet aan de vrouwen en je wegen niet om koningen te verdelgen. 
-4. Het past koningen niet, Lemoël, het past koningen niet wijn te drinken, of *dat* vorsten *vragen*: Waar is er sterkedrank? 
+4. Het past koningen niet, LemoÃ«l, het past koningen niet wijn te drinken, of *dat* vorsten *vragen*: Waar is er sterkedrank? 
 5. Anders zal hij drinken en vergeten wat verordend is, de rechtszaak van alle ellendigen verdraaien. 
 6. Geef sterkedrank aan wie dreigt om te komen, en wijn aan hen die bitter bedroefd van ziel zijn. 
 7. Laat hem drinken en zijn armoede vergeten, en niet langer aan zijn moeite denken. 
@@ -27,6 +27,6 @@
 26. Zij doet haar mond open met wijsheid, [ pe] onderricht uit genegenheid ligt op haar tong. 
 27. Zij houdt de gangen van haar huis*gezin* in het oog, [ tsade] en brood van de luiheid eet zij niet. 
 28. Haar kinderen staan op en prijzen haar gelukkig, [ koph] *ook* haar echtgenoot roemt haar: 
-29. Veel dochters hebben krachtige daden verricht, [ resj] maar jíj overtreft ze allemaal. 
+29. Veel dochters hebben krachtige daden verricht, [ resj] maar jÃ­j overtreft ze allemaal. 
 30. Bevalligheid is bedrieglijk en schoonheid vergankelijk, [ sjin] een vrouw die de HEERE vreest, die zal geprezen worden. 
 31. Geef haar van de vrucht van haar handen[ taw] en laten haar werken haar prijzen in de poorten.

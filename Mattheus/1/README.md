@@ -3,14 +3,14 @@
 2. Abraham verwekte Izak, Izak verwekte Jakob, Jakob verwekte Juda en zijn broers;
 3. Juda verwekte Perez en Zerah bij Tamar; Perez verwekte Hezron, Hezron verwekte Aram;
 4. Aram verwekte Aminadab, Aminadab verwekte Nahesson, Nahesson verwekte Salmon;
-5. Salmon verwekte Boaz bij Rachab, Boaz verwekte Obed bij Ruth, Obed verwekte Isaï;
-6. Isaï verwekte David, de koning; David, de koning, verwekte Salomo bij haar die de vrouw van Uria *was*;
+5. Salmon verwekte Boaz bij Rachab, Boaz verwekte Obed bij Ruth, Obed verwekte IsaÃ¯;
+6. IsaÃ¯ verwekte David, de koning; David, de koning, verwekte Salomo bij haar die de vrouw van Uria *was*;
 7. Salomo verwekte Rehabeam, Rehabeam verwekte Abia, Abia verwekte Asa;
 8. Asa verwekte Josafat, Josafat verwekte Joram, Joram verwekte Uzzia;
 9. Uzzia verwekte Jotham, Jotham verwekte Achaz, Achaz verwekte Hizkia;
 10. Hizkia verwekte Manasse, Manasse verwekte Amon, Amon verwekte Josia;
 11. Josia verwekte Jechonia en zijn broers, ten tijde van de Babylonische ballingschap.
-12. Na de Babylonische ballingschap verwekte Jechonia Sealthiël, Sealthiël verwekte Zerubbabel;
+12. Na de Babylonische ballingschap verwekte Jechonia SealthiÃ«l, SealthiÃ«l verwekte Zerubbabel;
 13. Zerubbabel verwekte Abihud, Abihud verwekte Eljakim, Eljakim verwekte Azor;
 14. Azor verwekte Zadok, Zadok verwekte Achim, Achim verwekte Eliud;
 15. Eliud verwekte Eleazar, Eleazar verwekte Matthan, Matthan verwekte Jakob;

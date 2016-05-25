@@ -10,7 +10,7 @@
 9. Het gebeurde nu, toen zij overgestoken waren, dat Elia tegen Elisa zei: Vraag *mij* wat ik voor u doen zal, voordat ik van u weggenomen word. Elisa zei: Laat er toch twee delen van uw geest op mij mogen zijn.
 10. Maar hij zei: U hebt een moeilijke zaak gevraagd; als u mij zult zien als ik bij u vandaan weggenomen word, dan zal het u gebeuren, maar zo niet, dan zal het niet gebeuren.
 11. Het gebeurde, terwijl zij al sprekend verdergingen, zie, dat er een vurige wagen met vurige paarden kwam, die tussen hen beiden scheiding maakte. Zo voer Elia in een storm naar de hemel.
-12. Elisa zag het en hij riep: Mijn vader, mijn vader, wagen van Israël en zijn ruiters! En hij zag hem niet meer. Toen greep hij zijn kleren en scheurde ze in twee stukken.
+12. Elisa zag het en hij riep: Mijn vader, mijn vader, wagen van IsraÃ«l en zijn ruiters! En hij zag hem niet meer. Toen greep hij zijn kleren en scheurde ze in twee stukken.
 13. Hij pakte de mantel van Elia, die van hem afgevallen was, op, keerde terug en bleef aan de oever van de Jordaan staan.
 14. Hij nam de mantel van Elia, die van hem afgevallen was, en sloeg het water en zei: Waar is de HEERE, de God van Elia, ja Hij? Hij sloeg het water en het werd naar beide zijden verdeeld, en Elisa ging erdoor.
 15. Toen nu de leerling-profeten uit Jericho, die aan de overzijde waren, hem zagen, zeiden zij: De geest van Elia rust op Elisa. Zij kwamen hem tegemoet en bogen zich ter aarde voor hem neer.
@@ -22,5 +22,5 @@
 21. Toen ging hij naar buiten, naar de waterbron, wierp het zout daarin en zei: Zo zegt de HEERE: Ik heb dit water gezond gemaakt, er zal geen dood of misgeboorte meer door komen.
 22. Zo werd dat water gezond, tot op deze dag, overeenkomstig het woord van Elisa dat hij gesproken had.
 23. En hij ging vandaar naar Bethel. Toen hij langs de weg omhoog ging, kwamen er kleine jongens uit de stad. Die dreven de spot met hem en zeiden tegen hem: Kaalkop, ga op, kaalkop, ga op!
-24. Hij keerde zich om, zag hen en vervloekte hen in de Naam van de HEERE. Toen kwamen er twee beren uit het woud en verscheurden tweeënveertig van die kinderen.
+24. Hij keerde zich om, zag hen en vervloekte hen in de Naam van de HEERE. Toen kwamen er twee beren uit het woud en verscheurden tweeÃ«nveertig van die kinderen.
 25. En hij ging vandaar naar de berg Karmel; en vandaar keerde hij terug naar Samaria.

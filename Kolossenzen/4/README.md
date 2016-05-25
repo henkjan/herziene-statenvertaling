@@ -11,7 +11,7 @@
 10. Aristarchus, mijn medegevangene, groet u, en Markus, de neef van Barnabas, over wie u opdrachten ontvangen hebt - als hij bij u komt, ontvang hem *dan* -
 11. en Jezus, die Justus genoemd wordt. Zij zijn de enigen van de besnijdenis die *mijn* medearbeiders zijn in het Koninkrijk van God; zij zijn mij ook een vertroosting geweest.
 12. Epafras groet u, die er een van u is, een dienstknecht van Christus, die altijd voor u strijdt in de gebeden, opdat u, volmaakt en volkomen, vaststaat in heel de wil van God.
-13. Want ik getuig van hem dat hij een grote ijver heeft voor u en voor hen die in Laodicea zijn, alsook voor hen die in Hiërapolis zijn.
+13. Want ik getuig van hem dat hij een grote ijver heeft voor u en voor hen die in Laodicea zijn, alsook voor hen die in HiÃ«rapolis zijn.
 14. Lukas, de arts, de geliefde, groet u, en Demas.
 15. Groet de broeders die in Laodicea zijn, en Nymfas en de gemeente in zijn huis.
 16. En wanneer deze brief door u gelezen zal zijn, zorg er dan voor dat hij ook in de gemeente van de Laodicenzen gelezen wordt, en dat ook u die uit Laodicea leest.

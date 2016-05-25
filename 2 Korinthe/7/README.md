@@ -3,7 +3,7 @@
 2. Geef ons plaats *in uw hart*. Wij hebben niemand onrecht aangedaan, wij hebben niemand te gronde gericht, wij hebben niemand uitgebuit.
 3. Ik zeg *dit* niet om *u* te veroordelen, want ik heb *al* eerder gezegd dat wij zo hartelijk met u *verbonden* zijn, dat wij samen *met u* zouden willen sterven en leven.
 4. Ik heb veel vrijmoedigheid tegenover u, ik heb veel te roemen over u. Ik ben vol van vertroosting *en* word overstelpt met blijdschap in al onze verdrukking.
-5. Want ook toen wij in Macedonië gekomen waren, heeft ons vlees geen rust gehad, maar waren wij in alles verdrukt: van buiten waren er conflicten, van binnen vrees.
+5. Want ook toen wij in MacedoniÃ« gekomen waren, heeft ons vlees geen rust gehad, maar waren wij in alles verdrukt: van buiten waren er conflicten, van binnen vrees.
 6. Maar God, Die de nederigen troost, heeft ons getroost door de komst van Titus.
 7. En niet alleen door zijn komst, maar ook door de troost waarmee hij bij u getroost werd. Hij deed ons *namelijk* verslag van uw vurig verlangen, uw treuren en uw ijver voor mij, *en* zo werd ik des te meer verblijd.
 8. Want al heb ik u in de brief bedroefd, ik heb er geen berouw van. Hoewel ik er wel berouw van gehad heb, want ik zie dat die brief, ook al is het voor een korte tijd, u bedroefd heeft.

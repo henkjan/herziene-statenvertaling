@@ -10,7 +10,7 @@
 9. Ja, wie zich slap opstelt in zijn werk, die is een broeder van een aartsvernieler. 
 10. De Naam van de HEERE is een sterke toren, een rechtvaardige snelt daarheen en wordt in een veilige vesting gezet. 
 11. Het bezit van een rijke is zijn sterke stad, als een hoge muur, in zijn verbeelding. 
-12. V篌r de ondergang verheft zich het mensenhart, maar nederigheid gaat v篌r de eer. 
+12. V贸贸r de ondergang verheft zich het mensenhart, maar nederigheid gaat v贸贸r de eer. 
 13. Wie antwoordt voordat hij geluisterd heeft, het is hem tot dwaasheid en schande. 
 14. Iemands geest*kracht* zal *hem in* zijn ziekte steunen, maar een neerslachtige geest, wie kan die opbeuren? 
 15. Het hart van verstandigen verwerft kennis, en het oor van wijzen zoekt kennis. 

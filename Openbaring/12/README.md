@@ -5,7 +5,7 @@
 4. En zijn staart veegde het derde *deel* van de sterren van de hemel en wierp die op de aarde. En de draak stond voor de vrouw, die op het punt stond te baren, om haar Kind te verslinden, zodra zij Het gebaard zou hebben.
 5. En zij baarde een Zoon, een mannelijk *Kind*, dat alle heidenvolken zal hoeden met een ijzeren staf. En haar Kind werd weggerukt naar God en naar Zijn troon.
 6. En de vrouw vluchtte naar de woestijn, waar zij een plaats had, die door God *voor haar* gereedgemaakt was, opdat men haar daar zou voeden twaalfhonderdzestig dagen.
-7. Toen brak er oorlog uit in de hemel: Michaël en zijn engelen voerden oorlog tegen de draak, ook de draak en zijn engelen voerden oorlog.
+7. Toen brak er oorlog uit in de hemel: MichaÃ«l en zijn engelen voerden oorlog tegen de draak, ook de draak en zijn engelen voerden oorlog.
 8. Maar zij waren niet sterk genoeg, en hun plaats werd in de hemel niet meer gevonden.
 9. En de grote draak werd neergeworpen, *namelijk* de oude slang, die duivel en satan genoemd wordt, die de hele wereld misleidt. Hij werd neergeworpen op de aarde en zijn engelen werden met hem neergeworpen.
 10. En ik hoorde een luide stem in de hemel zeggen: Nu is gekomen de zaligheid, de kracht en het koninkrijk van onze God en de macht van Zijn Christus, want de aanklager van onze broeders, die hen dag en nacht aanklaagde voor onze God, is neergeworpen.

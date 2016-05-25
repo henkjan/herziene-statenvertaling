@@ -9,12 +9,12 @@
 8. Maar Hij verloste hen omwille van Zijn Naam, om Zijn macht bekend te maken. 
 9. Hij bestrafte de Schelfzee, zodat ze droogviel; Hij deed hen door de diepe wateren gaan als *door* een woestijn. 
 10. Hij verloste hen uit de hand van de hater, Hij bevrijdde hen uit de hand van de vijand. 
-11. Water bedolf hun tegenstanders, niet één van hen bleef over. 
+11. Water bedolf hun tegenstanders, niet Ã©Ã©n van hen bleef over. 
 12. Toen geloofden zij Zijn woorden, zij zongen Zijn lof. 
 13. *Maar* zij vergaten spoedig Zijn werken. Zij wachtten niet op Zijn raad, 
 14. en werden met gulzigheid bevangen in de woestijn; zij stelden God op de proef in de wildernis. 
 15. Toen gaf Hij hun wat zij begeerden, maar henzelf deed Hij uitteren. 
-16. Zij werden jaloers op Mozes in het kamp, *en* op Aäron, de heilige van de HEERE. 
+16. Zij werden jaloers op Mozes in het kamp, *en* op AÃ¤ron, de heilige van de HEERE. 
 17. De aarde opende zich en verslond Dathan en bedolf de aanhang van Abiram. 
 18. Een vuur brandde onder hun aanhang, een vlam verzengde de goddelozen. 
 19. Zij maakten een kalf bij de Horeb en bogen zich neer voor een gegoten *beeld*. 
@@ -26,7 +26,7 @@
 25. maar zij morden in hun tenten; naar de stem van de HEERE luisterden zij niet. 
 26. Daarom hief Hij Zijn hand tegen hen op *en zwoer* dat Hij hen zou neervellen in de woestijn, 
 27. dat Hij hun nageslacht zou neervellen onder de heidenvolken en hen zou verstrooien door de landen. 
-28. Ook koppelden zij zich aan Baäl-Peor, zij aten de offers voor de doden. 
+28. Ook koppelden zij zich aan BaÃ¤l-Peor, zij aten de offers voor de doden. 
 29. Zij verwekten *de HEERE* tot toorn met hun daden, zodat er een plaag onder hen uitbrak. 
 30. Toen stond Pinehas op en oefende gericht en de plaag werd tot stilstand gebracht. 
 31. Het is hem gerekend tot gerechtigheid, van generatie op generatie, tot in eeuwigheid. 
@@ -36,14 +36,14 @@
 35. maar zij vermengden zich met de heidenvolken en leerden hun gebruiken. 
 36. Zij dienden hun afgoden, die hun tot een valstrik werden. 
 37. *Bovendien* offerden zij hun zonen en hun dochters aan de demonen. 
-38. Zij vergoten onschuldig bloed, het bloed van hun zonen en dochters. Zij offerden *hen* aan de afgoden van Kanaän, zodat het land door deze bloedschulden ontheiligd werd. 
+38. Zij vergoten onschuldig bloed, het bloed van hun zonen en dochters. Zij offerden *hen* aan de afgoden van KanaÃ¤n, zodat het land door deze bloedschulden ontheiligd werd. 
 39. Zij verontreinigden zichzelf door hun werken, zij bedreven hoererij door hun daden. 
 40. Daarom ontbrandde de toorn van de HEERE tegen Zijn volk, Hij had een afschuw van Zijn eigendom. 
 41. Hij gaf hen in de hand van de heidenvolken; wie hen haatten, heersten over hen. 
 42. Hun vijanden onderdrukten hen, zij werden vernederd onder hun hand. 
-43. Hij redde hen vele keren, zíj echter tergden *Hem* door hun plannen en raakten uitgeteerd door hun ongerechtigheid. 
+43. Hij redde hen vele keren, zÃ­j echter tergden *Hem* door hun plannen en raakten uitgeteerd door hun ongerechtigheid. 
 44. Toch zag Hij hun benauwdheid, toen Hij hun roepen hoorde. 
 45. Hij dacht hun ten goede aan Zijn verbond; Hij had berouw, naar Zijn grote goedertierenheid. 
 46. Daarom bewees Hij hun barmhartigheid bij allen die hen als gevangenen hadden weggevoerd. 
 47. Verlos ons, HEERE, onze God, breng ons bijeen vanuit de heidenvolken, opdat wij Uw heilige Naam loven *en* ons beroemen in Uw lof. 
-48. Geloofd zij de HEERE, de God van Israël, van eeuwigheid tot eeuwigheid; laat heel het volk zeggen: Amen. Halleluja!
+48. Geloofd zij de HEERE, de God van IsraÃ«l, van eeuwigheid tot eeuwigheid; laat heel het volk zeggen: Amen. Halleluja!

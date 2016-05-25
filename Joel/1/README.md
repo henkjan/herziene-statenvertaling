@@ -1,5 +1,5 @@
 #Joel 1
-1. Het woord van de HEERE dat gekomen is tot Joël, de zoon van Pethuel.
+1. Het woord van de HEERE dat gekomen is tot JoÃ«l, de zoon van Pethuel.
 2. Hoor dit, oudsten, neem *dit* ter ore, alle inwoners van het land! Is dit gebeurd in uw dagen of in de dagen van uw vaderen? 
 3. Vertel erover aan uw kinderen en *laten* uw kinderen *erover* aan hun kinderen *vertellen* en hun kinderen *weer* aan de volgende generatie. 
 4. Wat de jonge sprinkhaan overliet, at de veldsprinkhaan op; wat de veldsprinkhaan overliet, at de treksprinkhaan op; en wat de treksprinkhaan overliet, at de zwermsprinkhaan op. 

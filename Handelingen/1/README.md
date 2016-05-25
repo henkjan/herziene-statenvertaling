@@ -1,17 +1,17 @@
 #Handelingen 1
-1. Het eerste boek heb ik gemaakt, o Theofilus, over alles wat Jezus begonnen is te doen én te onderwijzen,
+1. Het eerste boek heb ik gemaakt, o Theofilus, over alles wat Jezus begonnen is te doen Ã©n te onderwijzen,
 2. tot op de dag waarop Hij opgenomen is, nadat Hij door *de* Heilige Geest aan de apostelen, die Hij uitgekozen had, opdrachten had gegeven.
 3. Hij heeft Zichzelf, nadat Hij geleden had, ook levend aan hen vertoond, met veel onmiskenbare bewijzen, veertig dagen lang, waarbij Hij door hen gezien werd en over de dingen sprak die het Koninkrijk van God betreffen.
 4. En toen Hij met *hen* samen was, beval Hij hun dat zij niet uit Jeruzalem weg zouden gaan, maar de belofte van de Vader zouden verwachten, die u, *zei Hij*, van Mij gehoord hebt;
 5. want Johannes doopte wel met water, maar u zult met de Heilige Geest gedoopt worden, niet lang na deze dagen.
-6. Zij dan die samengekomen waren, vroegen Hem: Heere, zult U in deze tijd voor Israël het Koninkrijk weer herstellen?
+6. Zij dan die samengekomen waren, vroegen Hem: Heere, zult U in deze tijd voor IsraÃ«l het Koninkrijk weer herstellen?
 7. En Hij zei tegen hen: Het komt u niet toe de tijden of gelegenheden te weten die de Vader in Zijn eigen macht gesteld heeft,
 8. maar u zult de kracht van de Heilige Geest ontvangen, Die over u komen zal; en u zult Mijn getuigen zijn, zowel in Jeruzalem als in heel Judea en Samaria en tot aan het uiterste van de aarde.
 9. En nadat Hij dit gezegd had, werd Hij opgenomen terwijl zij het zagen, en een wolk onttrok Hem aan hun ogen.
 10. En toen zij, terwijl Hij *van hen* wegging, hun ogen naar de hemel gericht hielden, zie, twee mannen stonden bij hen in witte kleding,
 11. die ook zeiden: Galilese mannen, waarom staat u omhoog te kijken naar de hemel? Deze Jezus, Die van u opgenomen is naar de hemel, zal op dezelfde wijze *terug*komen als u Hem naar de hemel hebt zien gaan.
 12. Toen keerden zij terug naar Jeruzalem, van de berg die de Olijf*berg* genoemd wordt, die vlak bij Jeruzalem is en *daar* een sabbatsreis vandaan ligt.
-13. En toen zij *in Jeruzalem* gekomen waren, gingen zij naar de bovenzaal en bleven daar, *namelijk* Petrus en Jakobus en Johannes en Andreas, Filippus en Thomas, Bartholomeüs en Mattheüs, Jakobus, *de zoon* van Alfeüs, en Simon Zelotes, en Judas, *de broer* van Jakobus.
+13. En toen zij *in Jeruzalem* gekomen waren, gingen zij naar de bovenzaal en bleven daar, *namelijk* Petrus en Jakobus en Johannes en Andreas, Filippus en Thomas, BartholomeÃ¼s en MattheÃ¼s, Jakobus, *de zoon* van AlfeÃ¼s, en Simon Zelotes, en Judas, *de broer* van Jakobus.
 14. Dezen bleven allen eensgezind volharden in het bidden en smeken, met de vrouwen en Maria, de moeder van Jezus, en met Zijn broers.
 15. En in die dagen stond Petrus op te midden van de discipelen - er was namelijk een menigte bijeen van ongeveer honderdtwintig personen - en sprak:
 16. Mannenbroeders, dit Schriftwoord moest vervuld worden dat de Heilige Geest bij monde van David van tevoren gesproken heeft over Judas, die gids geweest is voor hen die Jezus gevangennamen;

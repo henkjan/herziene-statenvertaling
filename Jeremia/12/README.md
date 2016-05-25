@@ -12,7 +12,7 @@
 11. Men heeft er een woestenij van gemaakt, verwoest treurt het voor Mij, heel het land is verwoest, omdat niemand het ter harte neemt. 
 12. Op alle kale hoogten in de woestijn zijn verwoesters gekomen, want het zwaard van de HEERE verslindt van het *ene* einde van het land tot het *andere* einde van het land. Er is voor geen enkel vlees vrede.
 13. Zij hebben tarwe gezaaid, maar doornen geoogst. Zij hebben zich pijn gedaan, *maar* hebben er geen voordeel van gehad. Schaam u over uw opbrengsten, vanwege de brandende toorn van de HEERE.
-14. Zo zegt de HEERE: Wat betreft al Mijn slechte buren die aan *Mijn* eigendom komen, dat Ik Mijn volk Israël in erfelijk bezit gegeven heb, zie, Ik ga hen uit hun land wegrukken, en het huis van Juda ruk Ik uit hun midden weg.
+14. Zo zegt de HEERE: Wat betreft al Mijn slechte buren die aan *Mijn* eigendom komen, dat Ik Mijn volk IsraÃ«l in erfelijk bezit gegeven heb, zie, Ik ga hen uit hun land wegrukken, en het huis van Juda ruk Ik uit hun midden weg.
 15. Maar nadat Ik hen weggerukt heb, zal het gebeuren dat Ik zal terugkeren en Mij over hen zal ontfermen. Ik zal hen terugbrengen, eenieder naar zijn erfelijk bezit en eenieder naar zijn land.
-16. En het zal gebeuren, wanneer zij werkelijk de wegen van Mijn volk zullen leren, zodat zij bij Mijn Naam zweren: *Zo waar* de HEERE leeft - zoals zij Mijn volk geleerd hebben te zweren bij de Baäl - dan zullen zij te midden van Mijn volk gebouwd worden.
+16. En het zal gebeuren, wanneer zij werkelijk de wegen van Mijn volk zullen leren, zodat zij bij Mijn Naam zweren: *Zo waar* de HEERE leeft - zoals zij Mijn volk geleerd hebben te zweren bij de BaÃ¤l - dan zullen zij te midden van Mijn volk gebouwd worden.
 17. Maar als zij niet willen luisteren, zal Ik dat volk voorgoed wegrukken en ombrengen, spreekt de HEERE.

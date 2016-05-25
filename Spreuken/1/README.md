@@ -1,5 +1,5 @@
 #Spreuken 1
-1. De spreuken van Salomo, de zoon van David, de koning van Israël, 
+1. De spreuken van Salomo, de zoon van David, de koning van IsraÃ«l, 
 2. om bekend te worden met wijsheid en vermaning, om woorden *vol* inzicht te begrijpen, 
 3. om vermaning die inzicht biedt, aan te nemen, gerechtigheid, recht en billijkheid, 
 4. om aan onverstandigen schranderheid te geven, aan een jongeman kennis en bedachtzaamheid. 
@@ -12,11 +12,11 @@
 11. Als zij zeggen: Ga met ons mee, laten wij loeren op bloed, zonder reden een onschuldige belagen, 
 12. laten wij hen levend verslinden, zoals het graf, volledig, zoals hen die in de kuil neerdalen. 
 13. Allerlei kostbare bezittingen zullen wij vinden, onze huizen zullen wij vullen met buit. 
-14. Je zult je lot in ons midden werpen, wij zullen allen *tezamen* één buidel hebben - 
+14. Je zult je lot in ons midden werpen, wij zullen allen *tezamen* Ã©Ã©n buidel hebben - 
 15. Mijn zoon, ga niet met hen op weg, weerhoud je voet van hun pad, 
 16. want hun voeten snellen naar het kwaad en zij haasten zich om bloed te vergieten. 
 17. Voorzeker, het net wordt tevergeefs gespannen voor de ogen van al wat vleugels bezit. 
-18. Zíj loeren op hun *eigen* bloed, zij belagen hun *eigen* leven. 
+18. ZÃ­j loeren op hun *eigen* bloed, zij belagen hun *eigen* leven. 
 19. Zo zijn de paden van allen die op winstbejag uit zijn, die ontneemt haar bezitters het leven.
 20. Buiten roept de hoogste Wijsheid luid, op de pleinen laat Zij Haar stem klinken. 
 21. Zij roept boven het rumoer uit, aan de ingangen van de poorten in de stad spreekt Zij Haar woorden uit. 

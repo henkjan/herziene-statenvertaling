@@ -8,6 +8,6 @@
 7. Zij hebben een net gereedgemaakt voor mijn voeten, mijn ziel werd neergebogen; zij hebben een kuil voor mij gegraven, *maar* zij zijn er *zelf* middenin gevallen. [ Sela] 
 8. Mijn hart is bereid, o God, mijn hart is bereid; ik zal zingen, ik zal psalmen zingen. 
 9. Ontwaak, mijn eer, ontwaak, luit en harp; ik zal de dageraad doen ontwaken. 
-10. Ik zal U loven onder de volken, Heere; ik zal voor U psalmen zingen onder de natiën. 
+10. Ik zal U loven onder de volken, Heere; ik zal voor U psalmen zingen onder de natiÃ«n. 
 11. Want Uw goedertierenheid is groot tot aan de hemel, Uw trouw tot de wolken. 
 12. Verhef U boven de hemel, o God; Uw eer zij over de hele aarde.

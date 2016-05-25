@@ -1,5 +1,5 @@
 #Filippenzen 1
-1. Paulus en Timotheüs, dienstknechten van Jezus Christus, aan al de heiligen in Christus Jezus die in Filippi zijn, met de opzieners en diakenen:
+1. Paulus en TimotheÃ¼s, dienstknechten van Jezus Christus, aan al de heiligen in Christus Jezus die in Filippi zijn, met de opzieners en diakenen:
 2. genade *zij* u en vrede van God, onze Vader, en van de Heere Jezus Christus.
 3. Ik dank mijn God, telkens wanneer ik aan u denk
 4. - in elk gebed van mij voor u allen bid ik altijd met blijdschap -
@@ -25,7 +25,7 @@
 24. maar in het vlees te blijven is noodzakelijker voor u.
 25. En dit vertrouw en weet ik dat ik zal blijven *leven* en bij u allen zal blijven tot uw vordering en blijdschap van het geloof,
 26. opdat uw roemen in Christus Jezus overvloedig is door mij, door mijn hernieuwde aanwezigheid bij u.
-27. Alleen, wandel het Evangelie van Christus waardig, opdat ik, of ik nu kom en u zie of dat ik afwezig ben, van uw zaken mag horen dat u vaststaat in één geest, en dat u samen eensgezind strijdt door het geloof in het Evangelie,
+27. Alleen, wandel het Evangelie van Christus waardig, opdat ik, of ik nu kom en u zie of dat ik afwezig ben, van uw zaken mag horen dat u vaststaat in Ã©Ã©n geest, en dat u samen eensgezind strijdt door het geloof in het Evangelie,
 28. en dat u zich in geen enkel opzicht schrik laat aanjagen door de tegenstanders. Voor hen is dit een duidelijk teken van verderf, maar voor u van zaligheid, en dat van God uit.
 29. Want aan u is het uit genade gegeven in de zaak van Christus niet alleen in Hem te geloven, maar ook voor Hem te lijden,
 30. omdat u dezelfde strijd hebt als *die* u bij mij gezien hebt en nu van mij hoort.

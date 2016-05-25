@@ -1,7 +1,7 @@
 #Jesaja 22
 1. De last over het Dal van het Visioen. Wat hebt u toch dat u allen op de daken klimt? 
 2. Stad vol tumult *en* rumoer, uitgelaten stad, uw gevallenen zijn niet gevallen door het zwaard en zijn *ook* niet gestorven in de strijd. 
-3. Al uw leiders zijn tezamen gevlucht, zonder *één* boog*schot* zijn zij gevangengenomen; al de uwen die werden gevonden, tezamen zijn zij gevangengenomen, hoe ver zij ook weggevlucht waren. 
+3. Al uw leiders zijn tezamen gevlucht, zonder *Ã©Ã©n* boog*schot* zijn zij gevangengenomen; al de uwen die werden gevonden, tezamen zijn zij gevangengenomen, hoe ver zij ook weggevlucht waren. 
 4. Daarom zeg ik: Wend *uw* blik van mij af, laat mij bitter wenen; dring niet aan om mij te troosten over de verwoesting van de dochter van mijn volk. 
 5. Want het is een dag van verwarring, vertrapping en ontreddering, *een dag* van de Heere, de HEERE van de legermachten, in het Dal van het Visioen; *een dag* waarop muren omver worden gehaald, en *een dag* van geschreeuw tegen het gebergte. 
 6. Want Elam neemt de pijlkoker op, de man en de paarden *staan* bij de strijdwagen, en Kir ontbloot het schild. 

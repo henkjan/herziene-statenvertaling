@@ -1,16 +1,16 @@
 #2 Samuel 12
-1. En de HEERE zond Nathan naar David. Toen die bij hem kwam, zei hij tegen hem: Er waren twee mannen in een stad, de ÈÈn rijk en de ander arm.
+1. En de HEERE zond Nathan naar David. Toen die bij hem kwam, zei hij tegen hem: Er waren twee mannen in een stad, de √©√©n rijk en de ander arm.
 2. De rijke had heel veel schapen en runderen.
-3. Maar de arme had helemaal niets dan alleen ÈÈn enkel klein ooilam, dat hij gekocht had. Hij hield het in leven en het werd groot, samen met hem en met zijn kinderen. Het at *mee* van zijn stuk *brood*, dronk uit zijn beker en sliep in zijn schoot. Het was als een dochter voor hem.
+3. Maar de arme had helemaal niets dan alleen √©√©n enkel klein ooilam, dat hij gekocht had. Hij hield het in leven en het werd groot, samen met hem en met zijn kinderen. Het at *mee* van zijn stuk *brood*, dronk uit zijn beker en sliep in zijn schoot. Het was als een dochter voor hem.
 4. Toen er een reiziger bij de rijke man kwam, kon hij er niet toe komen *een* van zijn *eigen* schapen en runderen te nemen, om *een maaltijd* te bereiden voor de reiziger die bij hem gekomen was. Daarom nam hij het ooilam van de arme man en bereidde het voor de man die bij hem gekomen was.
 5. Toen ontstak David in grote woede tegen die man, en hij zei tegen Nathan: *Zo waar* de HEERE leeft, voorzeker, de man die dat gedaan heeft, is een kind des doods!
 6. En dat ooilam moet hij viervoudig vergoeden, omdat hij dit gedaan heeft en geen medelijden had.
-7. Toen zei Nathan tegen David: U bent die man! Zo zegt de HEERE, de God van IsraÎl: Õk heb u tot koning gezalfd over IsraÎl en Õk heb u uit Sauls hand gered.
-8. Ik heb u het huis van uw heer gegeven, en *bovendien* de vrouwen van uw heer in uw schoot. Ja, Ik heb u het huis van IsraÎl en Juda gegeven. En als dat te weinig was geweest, zou Ik u nog wel meer gegeven hebben.
+7. Toen zei Nathan tegen David: U bent die man! Zo zegt de HEERE, de God van Isra√´l: √çk heb u tot koning gezalfd over Isra√´l en √çk heb u uit Sauls hand gered.
+8. Ik heb u het huis van uw heer gegeven, en *bovendien* de vrouwen van uw heer in uw schoot. Ja, Ik heb u het huis van Isra√´l en Juda gegeven. En als dat te weinig was geweest, zou Ik u nog wel meer gegeven hebben.
 9. Waarom hebt u *dan* het woord van de HEERE veracht, door te doen wat slecht is in Zijn ogen? U hebt Uria, de Hethiet, met het zwaard gedood. Zijn vrouw hebt u tot vrouw genomen en hem hebt u door het zwaard van de Ammonieten gedood.
 10. Welnu dan, het zwaard zal voor eeuwig niet van uw huis wijken, omdat u Mij veracht hebt en de vrouw van Uria, de Hethiet, genomen hebt om u tot vrouw te zijn.
 11. Zo zegt de HEERE: Zie, Ik breng onheil over u uit uw *eigen* huis, en zal uw vrouwen voor uw ogen nemen en hen aan uw naaste geven; die zal op klaarlichte dag met uw vrouwen slapen.
-12. Voorzeker, ˙ hebt in het geheim gehandeld, maar Õk zal dit doen ten aanschouwen van heel IsraÎl en in het volle licht.
+12. Voorzeker, √∫ hebt in het geheim gehandeld, maar √çk zal dit doen ten aanschouwen van heel Isra√´l en in het volle licht.
 13. Toen zei David tegen Nathan: Ik heb gezondigd tegen de HEERE. En Nathan zei tegen David: De HEERE heeft ook uw zonde weggenomen; u zult niet sterven.
 14. Omdat u echter door deze zaak de vijanden van de HEERE zeer hebt doen lasteren, zal wel de zoon die u geboren is, zeker sterven.
 15. Toen ging Nathan naar zijn huis. En de HEERE trof het kind dat de vrouw van Uria David gebaard had, zodat het ongeneeslijk ziek werd.
@@ -26,7 +26,7 @@
 25. en zond een *boodschap* door de dienst van de profeet Nathan en noemde zijn naam Jedid-Jah, omwille van de HEERE.
 26. Joab nu streed tegen Rabba van de Ammonieten, en hij zou de koningsstad innemen.
 27. Toen stuurde Joab boden naar David, en zei: Ik heb gestreden tegen Rabba, ook heb ik de waterstad ingenomen.
-28. Verzamel dan nu de rest van het volk, beleger de stad en neem haar in, anders neem Ìk de stad in en wordt mÌjn naam over haar uitgeroepen.
+28. Verzamel dan nu de rest van het volk, beleger de stad en neem haar in, anders neem √≠k de stad in en wordt m√≠jn naam over haar uitgeroepen.
 29. Toen verzamelde David al dat volk en trok naar Rabba; hij streed ertegen en nam het in.
-30. En hij nam de kroon van hun koning van diens hoofd, waarvan het gewicht, mÈt het edelgesteente, een talent goud was, en die werd op Davids hoofd *gezet*. Ook haalde hij een zeer grote buit uit de stad.
+30. En hij nam de kroon van hun koning van diens hoofd, waarvan het gewicht, m√©t het edelgesteente, een talent goud was, en die werd op Davids hoofd *gezet*. Ook haalde hij een zeer grote buit uit de stad.
 31. Het volk dat daarin was, liet hij eruit halen en zette het bij zagen, bij ijzeren houwelen en bij ijzeren bijlen, en liet hen overbrengen naar de steenovens. Zo deed hij met alle steden van de Ammonieten. Daarna keerde David met heel het volk terug naar Jeruzalem.

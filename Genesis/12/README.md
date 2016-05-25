@@ -3,8 +3,8 @@
 2. Ik zal u tot een groot volk maken, u zegenen en uw naam groot maken; en u zult tot een zegen zijn.
 3. Ik zal zegenen wie u zegenen, en wie u vervloekt, zal Ik vervloeken; en in u zullen alle geslachten van de aardbodem gezegend worden.
 4. Toen ging Abram *op weg*, zoals de HEERE tot hem gesproken had, en Lot ging met hem mee. Abram was vijfenzeventig jaar oud, toen hij uit Haran vertrok.
-5. Abram nu nam Sarai, zijn vrouw, en Lot, de zoon van zijn broer, en al hun bezittingen die ze verworven hadden, en de mensen die zij in Haran verkregen hadden; en zij gingen weg om naar het land Kana‰n te gaan; en zij kwamen in het land Kana‰n.
-6. En Abram trok door dat land heen tot aan de *heilige* plaats *bij* Sichem, tot de eik van More. De Kana‰nieten woonden toen in dat land.
+5. Abram nu nam Sarai, zijn vrouw, en Lot, de zoon van zijn broer, en al hun bezittingen die ze verworven hadden, en de mensen die zij in Haran verkregen hadden; en zij gingen weg om naar het land Kana√§n te gaan; en zij kwamen in het land Kana√§n.
+6. En Abram trok door dat land heen tot aan de *heilige* plaats *bij* Sichem, tot de eik van More. De Kana√§nieten woonden toen in dat land.
 7. Toen verscheen de HEERE aan Abram en zei: Aan uw nageslacht zal Ik dit land geven. Toen bouwde hij daar een altaar voor de HEERE, Die hem verschenen was.
 8. Vandaar brak hij op naar het bergland ten oosten van Bethel en zette zijn tent op tussen Bethel in het westen en Ai in het oosten. Daar bouwde hij voor de HEERE een altaar en riep de Naam van de HEERE aan.
 9. Daarna trok Abram gaandeweg verder naar het Zuiderland.

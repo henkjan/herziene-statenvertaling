@@ -5,14 +5,14 @@
 4. Die uw leven verlost van het verderf, Die u kroont met goedertierenheid en barmhartigheid, 
 5. Die uw mond verzadigt met het goede, uw jeugd vernieuwt als die van een arend. 
 6. De HEERE doet rechtvaardige daden en recht aan alle onderdrukten. 
-7. Hij heeft aan Mozes Zijn wegen bekendgemaakt, aan de nakomelingen van Israël Zijn daden. 
+7. Hij heeft aan Mozes Zijn wegen bekendgemaakt, aan de nakomelingen van IsraÃ«l Zijn daden. 
 8. Barmhartig en genadig is de HEERE, geduldig en rijk aan goedertierenheid. 
 9. Hij zal niet voor altijd ter verantwoording roepen, niet voor eeuwig handhaaft Hij *Zijn toorn*. 
 10. Hij doet ons niet naar onze zonden en vergeldt ons niet naar onze ongerechtigheden. 
 11. Want zo hoog de hemel is boven de aarde, *zo* is Zijn goedertierenheid machtig over wie Hem vrezen. 
 12. Zo ver het oosten is van het westen, *zo* ver heeft Hij onze overtredingen van ons gedaan. 
 13. Zoals een vader zich ontfermt over *zijn* kinderen, *zo* ontfermt de HEERE Zich over wie Hem vrezen. 
-14. Want Híj weet wat voor maaksel wij zijn *en* blijft bedenken dat wij stof zijn. 
+14. Want HÃ­j weet wat voor maaksel wij zijn *en* blijft bedenken dat wij stof zijn. 
 15. De sterveling - zijn dagen zijn als het gras, als een bloem op het veld, zo bloeit hij. 
 16. Wanneer de wind erover is gegaan, is hij er niet *meer* en zijn plaats kent hem niet meer. 
 17. Maar de goedertierenheid van de HEERE is van eeuwigheid en tot eeuwigheid over wie Hem vrezen. Zijn gerechtigheid is voor de kinderen van hun kinderen, 

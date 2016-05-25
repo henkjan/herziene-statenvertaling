@@ -10,7 +10,7 @@
 9. Ik zal de toorn van de HEERE dragen - want ik heb tegen Hem gezondigd - totdat Hij mijn rechtszaak voert en mij recht verschaft. Hij zal mij uitleiden naar het licht, ik zal Zijn gerechtigheid zien. 
 10. Mijn vijandin zal *dat* zien. Schaamte zal haar bedekken die tegen mij zei: Waar is de HEERE, uw God? Mijn ogen zullen op haar neerzien. Nu zal zij worden vertrapt als slijk op straat. 
 11. Op de dag waarop *Hij* uw muren zal herbouwen, op die dag zal het besluit zich ver *verspreiden*. 
-12. Het is een dag waarop men naar u toe komt vanaf Assyrië *tot aan* de steden van Egypte, en vanaf Egypte tot aan de rivier, van zee tot zee, *van* berg tot berg. 
+12. Het is een dag waarop men naar u toe komt vanaf AssyriÃ« *tot aan* de steden van Egypte, en vanaf Egypte tot aan de rivier, van zee tot zee, *van* berg tot berg. 
 13. Maar de aarde zal worden tot een woestenij om zijn bewoners, vanwege de vrucht van hun daden.
 14. Weid Uw volk met Uw staf, de kudde van Uw eigendom, die alleen *in* een woud woont, te midden van een vruchtbaar land. Laat hen weiden *in* Basan en Gilead, als in de dagen van oude tijden af. 
 15. Als in de dagen toen u uit het land Egypte trok, zal Ik het wonderen doen zien. 

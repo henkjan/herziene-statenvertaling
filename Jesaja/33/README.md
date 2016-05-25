@@ -20,6 +20,6 @@
 19. Het onbeschaamde volk zult u niet *meer* zien, het volk met zo'n onbegrijpelijke taal dat je het niet begrijpen kunt, met die bespottelijke tongval; het is niet te verstaan. 
 20. Aanschouw Sion, de stad van onze samenkomsten. Uw ogen zullen Jeruzalem zien, een veilige woonplaats, een tent die niet afgebroken zal worden, waarvan de pinnen voor altijd niet uitgetrokken zullen worden en waarvan geen enkel touw gebroken zal worden. 
 21. Want de HEERE zal daar in *Zijn* macht bij ons zijn. Het zal een plaats van rivieren, van brede stromen zijn. Geen roeiboot zal erop varen, geen statig schip zal er passeren. 
-22. De HEERE is immers onze Rechter, de HEERE is onze Wetgever, de HEERE is onze Koning; Híj zal ons verlossen. 
+22. De HEERE is immers onze Rechter, de HEERE is onze Wetgever, de HEERE is onze Koning; HÃ­j zal ons verlossen. 
 23. Uw touwen hangen slap, ze houden hun mast niet op zijn plaats, ze spannen het zeil niet uit. Dan wordt er een rijke buit verdeeld, *zelfs* verlamden roven buit. 
 24. Geen inwoner zal zeggen: Ik ben ziek. *Want* het volk dat daar woont, zal vergeving van ongerechtigheid hebben *ontvangen*.

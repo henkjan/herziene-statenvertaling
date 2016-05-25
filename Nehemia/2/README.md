@@ -8,7 +8,7 @@
 7. Verder zei ik tegen de koning: Als het de koning goeddunkt, laat men mij *dan* brieven geven voor de landvoogden van *het gebied aan* de overzijde van de rivier, dat zij mij doorgang verlenen totdat ik in Juda ben aangekomen,
 8. en een brief voor Asaf, de bewaker van het *kroon*domein dat de koning heeft, dat hij mij hout geeft om een zoldering te maken voor de poorten van de burcht die bij het huis *van God* hoort, voor de stadsmuur en voor het huis waar ik naartoe zal gaan. En de koning gaf ze mij, omdat de goede hand van mijn God over mij was.
 9. Toen kwam ik aan bij de landvoogden van *het gebied aan* de overzijde van de rivier en gaf hun de brieven van de koning. De koning had legerofficieren en ruiters met mij meegestuurd.
-10. Toen Sanballat, de Horoniet, en Tobia, de Ammonitische dienaar, *dat* hoorden, was het volstrekt kwalijk in hun ogen dat er iemand gekomen was om het goede te zoeken voor de Israëlieten.
+10. Toen Sanballat, de Horoniet, en Tobia, de Ammonitische dienaar, *dat* hoorden, was het volstrekt kwalijk in hun ogen dat er iemand gekomen was om het goede te zoeken voor de IsraÃ«lieten.
 11. Ik kwam aan in Jeruzalem en was daar drie dagen.
 12. Toen stond ik 's nachts op, ik en enkele mannen met mij. Ik vertelde geen mens wat mijn God in mijn hart gegeven had om voor Jeruzalem te doen. Er was geen dier bij mij, dan het dier waarop ik reed.
 13. Ik ging 's nachts door de Dalpoort *de stad* uit, voorbij de Drakenbron, naar de Mestpoort, en inspecteerde de muren van Jeruzalem, waarin bressen waren geslagen en waarvan de poorten door vuur waren verteerd.

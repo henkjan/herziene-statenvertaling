@@ -4,7 +4,7 @@
 3. En Hij zei tegen de man die de verschrompelde hand had: Sta op *en ga* in het midden *staan*.
 4. En Hij zei tegen hen: Is het geoorloofd op sabbatdagen goed te doen of kwaad te doen, een mens te behouden of te doden? En zij zwegen.
 5. En nadat Hij hen rondom toornig aangekeken had, tegelijk bedroefd over de verharding van hun hart, zei Hij tegen de man: Steek uw hand uit. En hij stak hem uit, en zijn hand werd hersteld, gezond als de andere.
-6. En toen de Farizeeën weggegaan waren, beraadslaagden zij meteen met de Herodianen tegen Hem hoe zij Hem om zouden kunnen brengen.
+6. En toen de FarizeeÃ«n weggegaan waren, beraadslaagden zij meteen met de Herodianen tegen Hem hoe zij Hem om zouden kunnen brengen.
 7. En Jezus vertrok met Zijn discipelen naar de zee; en Hem volgde een grote menigte uit Galilea en uit Judea,
 8. en uit Jeruzalem en uit Idumea en *van* over de Jordaan; ook een grote menigte uit de omgeving van Tyrus en Sidon, die gehoord had wat voor grote dingen Hij deed, kwam naar Hem toe.
 9. En Hij zei tegen Zijn discipelen dat er steeds een scheepje bij Hem moest blijven vanwege de menigte, opdat ze Hem niet verdringen zouden.
@@ -15,12 +15,12 @@
 14. En Hij stelde er twaalf aan om bij Hem te zijn, en om hen uit te zenden om te prediken,
 15. en macht te hebben om de ziekten te genezen en de demonen uit te drijven.
 16. En Simon gaf Hij de naam Petrus,
-17. en *verder* Jakobus, de *zoon* van Zebedeüs, en Johannes, de broer van Jakobus - aan hen gaf Hij de naam Boanerges, wat 'zonen van de donder' betekent -
-18. en Andreas en Filippus en Bartholomeüs en Mattheüs en Thomas en Jakobus, de *zoon* van Alfeüs, en Thaddeüs en Simon Kananites,
+17. en *verder* Jakobus, de *zoon* van ZebedeÃ¼s, en Johannes, de broer van Jakobus - aan hen gaf Hij de naam Boanerges, wat 'zonen van de donder' betekent -
+18. en Andreas en Filippus en BartholomeÃ¼s en MattheÃ¼s en Thomas en Jakobus, de *zoon* van AlfeÃ¼s, en ThaddeÃ¼s en Simon Kananites,
 19. en Judas Iskariot, die Hem ook verraden heeft.
 20. En zij kwamen thuis; en er kwam opnieuw een menigte bijeen, zodat zij zelfs geen brood konden eten.
 21. En toen Zijn verwanten *dat* hoorden, gingen zij eropuit om Hem tegen te houden, want zij zeiden: Hij is buiten Zichzelf.
-22. En de schriftgeleerden die uit Jeruzalem gekomen waren, zeiden: Hij heeft Beëlzebul, en: Door de aanvoerder van de demonen drijft Hij de demonen uit.
+22. En de schriftgeleerden die uit Jeruzalem gekomen waren, zeiden: Hij heeft BeÃ«lzebul, en: Door de aanvoerder van de demonen drijft Hij de demonen uit.
 23. En Hij riep hen bij Zich en zei tegen hen in gelijkenissen: Hoe kan de satan de satan uitdrijven?
 24. En als een koninkrijk tegen zichzelf verdeeld is, kan dat koninkrijk niet standhouden.
 25. En als een huis tegen zichzelf verdeeld is, kan dat huis niet standhouden.

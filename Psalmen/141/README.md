@@ -8,4 +8,4 @@
 7. Onze beenderen liggen verstrooid bij de mond van het graf, alsof iemand op de grond *iets* gekloofd en gespleten had. 
 8. Maar op U *zijn* mijn ogen *gericht*, HEERE Heere; tot U heb ik de toevlucht genomen, laat mijn ziel niet berooid achter. 
 9. Bewaar mij voor de knellende strik *die* zij mij gezet hebben, voor de valstrikken van wie onrecht bedrijven. 
-10. Laat de goddelozen in hun *eigen* netten vallen, allemaal, totdat ík voorbij ben gegaan.
+10. Laat de goddelozen in hun *eigen* netten vallen, allemaal, totdat Ã­k voorbij ben gegaan.

@@ -4,7 +4,7 @@
 3. Hij zal zitten *als iemand* die zilver smelt en reinigt: Hij zal de Levieten reinigen en hen zuiveren als goud en zilver. Dan zullen zij de HEERE een graanoffer brengen in gerechtigheid.
 4. Dan zal het graanoffer van Juda en Jeruzalem voor de HEERE aangenaam zijn, zoals *in* de dagen van oude tijden af, zoals in vroegere jaren. 
 5. Ik zal naar u toe komen voor het oordeel. Ik zal een snelle Getuige zijn tegen de tovenaars, tegen de overspelers, tegen hen die valse eden afleggen en tegen hen die het loon van een dagloner met geweld inhouden, die *het recht van* weduwe, wees en vreemdeling ombuigen, en Mij niet vrezen, zegt de HEERE van de legermachten.
-6. Want Õk, de HEERE, ben niet veranderd, ˙, kinderen van Jakob, bent daarom niet omgekomen. 
+6. Want √çk, de HEERE, ben niet veranderd, √∫, kinderen van Jakob, bent daarom niet omgekomen. 
 7. Sinds de dagen van uw vaderen bent u afgeweken van Mijn verordeningen, en hebt u ze niet in acht genomen. Keer terug naar Mij, en Ik zal naar u terugkeren, zegt de HEERE van de legermachten. Maar u zegt: In welk opzicht moeten wij terugkeren? 
 8. Zou een mens God beroven? Werkelijk, u berooft Mij! En dan zegt u: Waarvan beroven wij U? Van de tienden en het hefoffer! 
 9. U bent door de vloek getroffen, omdat u Mij berooft, *als* volk in zijn geheel. 

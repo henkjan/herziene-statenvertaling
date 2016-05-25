@@ -14,11 +14,11 @@
 13. Christus heeft ons vrijgekocht van de vloek van de wet door voor ons een vloek te worden, want er staat geschreven: Vervloekt is ieder die aan een hout hangt,
 14. opdat de zegen van Abraham in Christus Jezus tot de heidenen zou komen, *en* opdat wij de belofte van de Geest zouden ontvangen door het geloof.
 15. Broeders, ik spreek op menselijke wijze: Zelfs een verbond van mensen dat rechtsgeldig is geworden, stelt niemand terzijde of voegt daar *iets* aan toe.
-16. Welnu, zo zijn de beloften aan Abraham en aan zijn nageslacht gedaan. Hij zegt niet: En aan de nageslachten, alsof *er sprake zou zijn* van velen; maar van één: En aan uw Nageslacht; dat is Christus.
+16. Welnu, zo zijn de beloften aan Abraham en aan zijn nageslacht gedaan. Hij zegt niet: En aan de nageslachten, alsof *er sprake zou zijn* van velen; maar van Ã©Ã©n: En aan uw Nageslacht; dat is Christus.
 17. Dit nu zeg ik: Het verbond, dat eertijds door God rechtsgeldig was gemaakt met het oog op Christus, wordt door de wet, die na vierhonderddertig jaar gekomen is, niet krachteloos gemaakt om de belofte teniet te doen.
 18. Want als de erfenis uit de wet is, is zij niet meer uit de belofte; maar aan Abraham heeft God *die* door de belofte genadig geschonken.
 19. Waartoe dient dan de wet? Zij is eraan toegevoegd omwille van de overtredingen, totdat het Nageslacht zou gekomen zijn aan Wie het beloofd was; en zij is door engelen in de hand van de middelaar beschikt.
-20. En de middelaar is niet *middelaar* van één *partij*, maar God is één.
+20. En de middelaar is niet *middelaar* van Ã©Ã©n *partij*, maar God is Ã©Ã©n.
 21. Is dan de wet in strijd met de beloften van God? Volstrekt niet! Want als er een wet gegeven was die in staat was levend te maken, dan zou de gerechtigheid werkelijk uit de wet zijn.
 22. Maar de Schrift heeft alles onder de zonde opgesloten, opdat de belofte aan de gelovigen gegeven zou worden door *het* geloof in Jezus Christus.
 23. Voordat het geloof echter kwam, werden wij door de wet bewaakt, als gevangenen opgesloten, totdat het geloof geopenbaard zou worden.
@@ -26,5 +26,5 @@
 25. Maar nu het geloof gekomen is, zijn wij niet meer onder een leermeester.
 26. Want u bent allen kinderen van God door het geloof in Christus Jezus.
 27. Want u allen die in Christus gedoopt bent, hebt zich met Christus bekleed.
-28. Daarbij is het niet *van belang* dat men Jood is of Griek; daarbij is het niet *van belang* dat men slaaf is of vrije; daarbij is het niet *van belang* dat men man is of vrouw; want allen bent u één in Christus Jezus.
+28. Daarbij is het niet *van belang* dat men Jood is of Griek; daarbij is het niet *van belang* dat men slaaf is of vrije; daarbij is het niet *van belang* dat men man is of vrouw; want allen bent u Ã©Ã©n in Christus Jezus.
 29. En als u van Christus bent, dan bent u Abrahams nageslacht en overeenkomstig de belofte erfgenamen.

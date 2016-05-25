@@ -15,6 +15,6 @@
 14. Toen zei de HEERE tegen mij: Vanuit het noorden zal het onheil losbreken over al de inwoners van het land. 
 15. Want zie, Ik ga alle geslachten van de koninkrijken uit het noorden roepen, spreekt de HEERE. Zij zullen komen en eenieder zal zijn troon neerzetten *bij* de ingang van de poorten van Jeruzalem, tegen al haar muren rondom, en tegen alle steden van Juda. 
 16. Ik zal Mijn oordelen over hen uitspreken vanwege al hun kwaad: dat zij Mij verlaten hebben en reukoffers gebracht hebben aan andere goden, en zich hebben neergebogen voor de werken van hun handen. 
-17. U dan, omgord uw middel, sta op en spreek tot hen alles wat Õk u gebieden zal. Wees niet ontsteld vanwege hen, anders zal Õk u ontsteld doen zijn voor hen. 
-18. Want zie, Õk stel u heden aan tot een versterkte stad, tot een ijzeren pilaar en tot bronzen muren, tegen heel het land, tegen de koningen van Juda, tegen zijn vorsten, tegen zijn priesters en tegen de bevolking van het land. 
+17. U dan, omgord uw middel, sta op en spreek tot hen alles wat √çk u gebieden zal. Wees niet ontsteld vanwege hen, anders zal √çk u ontsteld doen zijn voor hen. 
+18. Want zie, √çk stel u heden aan tot een versterkte stad, tot een ijzeren pilaar en tot bronzen muren, tegen heel het land, tegen de koningen van Juda, tegen zijn vorsten, tegen zijn priesters en tegen de bevolking van het land. 
 19. Zij zullen tegen u strijden, maar zij zullen niet tegen u op kunnen, want Ik ben met u, spreekt de HEERE, om u te redden.

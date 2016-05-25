@@ -1,10 +1,10 @@
 #Deuteronomium 14
 1. U bent kinderen van de HEERE, uw God. U mag *uw lichaam* vanwege een dode niet kerven of een kale plek maken tussen uw ogen.
-2. Want u bent een heilig volk voor de HEERE, uw God. De HEERE heeft ú uit alle volken die op de aardbodem zijn, uitgekozen om voor Hem een volk te zijn dat *Zijn* persoonlijk eigendom is.
+2. Want u bent een heilig volk voor de HEERE, uw God. De HEERE heeft Ãº uit alle volken die op de aardbodem zijn, uitgekozen om voor Hem een volk te zijn dat *Zijn* persoonlijk eigendom is.
 3. U mag niets eten wat een gruwel is.
 4. Dit zijn de dieren die u eten mag: het rund, het schaap, de geit,
 5. het hert, de gazelle, de reebok, de steenbok, de spiesbok, de antilope en de gems.
-6. Alle dieren die gespleten hoeven hebben, waarvan de hoef in tweeën gespleten is, *en* die *bovendien* bij de dieren *horen die* herkauwen, mag u eten.
+6. Alle dieren die gespleten hoeven hebben, waarvan de hoef in tweeÃ«n gespleten is, *en* die *bovendien* bij de dieren *horen die* herkauwen, mag u eten.
 7. Maar de volgende, die *alleen* herkauwen, of die *alleen* gespleten hoeven hebben, mag u niet eten: de kameel, de haas en de klipdas. Zij herkauwen immers *wel*, maar hebben geen gespleten hoeven; zij zijn voor u onrein.
 8. Zo ook het varken, want dat heeft *wel* gespleten hoeven, maar het herkauwt niet; het is voor u onrein. Van hun vlees mag u niet eten en hun kadavers mag u niet aanraken.
 9. Dit mag u eten van alles wat in het water *leeft*: alles wat vinnen en schubben heeft, mag u eten.

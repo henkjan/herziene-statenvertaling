@@ -2,8 +2,8 @@
 1. Ik roep u er dan toe op, broeders, door de ontfermingen van God, om uw lichamen *aan God* te wijden als een levend offer, heilig en voor God welbehaaglijk: *dat is* uw redelijke godsdienst.
 2. En word niet aan deze wereld gelijkvormig, maar word *innerlijk* veranderd door de vernieuwing van uw gezindheid om te *kunnen* onderscheiden wat de goede, welbehaaglijke en volmaakte wil van God is.
 3. Want door de genade die mij gegeven is, zeg ik ieder onder u niet hoger te denken dan hij moet denken, maar laat hij denken in bescheidenheid, naar de mate van geloof zoals God die aan ieder heeft toebedeeld.
-4. Want zoals wij in één lichaam vele leden hebben en de leden niet alle dezelfde functie hebben,
-5. zo zijn wij, *hoewel* velen, één lichaam in Christus, maar ieder afzonderlijk leden van elkaar.
+4. Want zoals wij in Ã©Ã©n lichaam vele leden hebben en de leden niet alle dezelfde functie hebben,
+5. zo zijn wij, *hoewel* velen, Ã©Ã©n lichaam in Christus, maar ieder afzonderlijk leden van elkaar.
 6. En nu hebben wij genadegaven, onderscheiden naar de genade die ons is gegeven:
 7. hetzij profetie, naar de mate van het geloof; hetzij dienstbetoon, in het dienen; hetzij wie onderwijst, in het onderwijzen;
 8. hetzij wie bemoedigt, in het bemoedigen; wie uitdeelt, in oprechtheid; wie leiding geeft, met inzet; wie zich over anderen ontfermt, met blijmoedigheid.

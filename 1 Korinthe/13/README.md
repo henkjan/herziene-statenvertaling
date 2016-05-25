@@ -6,7 +6,7 @@
 5. zij handelt niet ongepast, zij zoekt niet haar eigen *belang*, zij wordt niet verbitterd, zij denkt geen kwaad, 
 6. zij verblijdt zich niet over de ongerechtigheid, maar verheugt zich over de waarheid, 
 7. zij bedekt alle dingen, zij gelooft alle dingen, zij hoopt alle dingen, zij verdraagt alle dingen. 
-8. De liefde vergaat nooit. Wat dan profetieën betreft, zij zullen tenietgedaan worden, wat talen betreft, zij zullen ophouden, wat kennis betreft, zij zal tenietgedaan worden. 
+8. De liefde vergaat nooit. Wat dan profetieÃ«n betreft, zij zullen tenietgedaan worden, wat talen betreft, zij zullen ophouden, wat kennis betreft, zij zal tenietgedaan worden. 
 9. Want wij kennen ten dele en wij profeteren ten dele, 
 10. maar wanneer het volmaakte zal gekomen zijn, zal wat ten dele is, tenietgedaan worden. 
 11. Toen ik een kind was, sprak ik als een kind, dacht ik als een kind, overlegde ik als een kind, maar nu ik een man geworden ben, heb ik het kinderlijke tenietgedaan. 

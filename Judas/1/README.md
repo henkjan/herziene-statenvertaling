@@ -7,9 +7,9 @@
 6. En de engelen die hun oorspronkelijke staat niet hebben bewaard, maar hun eigen woonplaats verlaten hebben, heeft Hij voor het oordeel van de grote dag met eeuwige boeien in de duisternis in *verzekerde* bewaring gesteld.
 7. Evenzo *is het met* Sodom en Gomorra, en de steden eromheen, die op dezelfde wijze als zij hoererij bedreven hebben en ander vlees achterna zijn gegaan. Zij liggen *daar* als een *waarschuwend* voorbeeld, doordat zij de straf van het eeuwige vuur ondergaan.
 8. Niettemin bezoedelen deze dromers ook nu op dezelfde wijze hun lichaam en zij verwerpen het gezag en lasteren al wat eer toekomt.
-9. Michaël, de aartsengel, echter durfde, toen hij met de duivel redetwistte en een woordenwisseling had over het lichaam van Mozes, geen oordeel van lastering tegen *hem* uit te brengen, maar zei: Moge de Heere u bestraffen!
+9. MichaÃ«l, de aartsengel, echter durfde, toen hij met de duivel redetwistte en een woordenwisseling had over het lichaam van Mozes, geen oordeel van lastering tegen *hem* uit te brengen, maar zei: Moge de Heere u bestraffen!
 10. Maar deze *mensen* lasteren alles waarvan zij geen kennis hebben, en met de dingen die zij, net als de redeloze dieren, van nature wel begrijpen, richten zij zichzelf te gronde.
-11. Wee hun, want zij zijn de weg van Kaïn ingeslagen en hebben zich om loon in de dwaling van Bileam gestort en zijn door het tegenspreken *als* van Korach omgekomen.
+11. Wee hun, want zij zijn de weg van KaÃ¯n ingeslagen en hebben zich om loon in de dwaling van Bileam gestort en zijn door het tegenspreken *als* van Korach omgekomen.
 12. Deze *mensen* zijn schandvlekken bij uw liefdemaaltijden. Als zij met u de maaltijd gebruiken, doen zij zichzelf onbeschroomd te goed. Zij zijn wolken zonder water, die door de winden heen en weer gedreven worden. Zij zijn als bomen in de late herfst, zonder vrucht, tweemaal gestorven *en* ontworteld.
 13. *Zij zijn* wilde golven van de zee, die hun eigen schanddaden opschuimen, dwaalsterren, voor wie de diepste duisternis tot in eeuwigheid bewaard wordt.
 14. Ook over hen heeft Henoch, de zevende vanaf Adam, geprofeteerd, toen hij zei: Zie, de Heere is gekomen met Zijn tienduizenden heiligen,

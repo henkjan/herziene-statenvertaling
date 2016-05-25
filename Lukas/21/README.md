@@ -4,13 +4,13 @@
 3. En Hij zei: Werkelijk, Ik zeg u dat deze arme weduwe *er* meer dan allen in geworpen heeft.
 4. Want die allen hebben van hun overvloed *daarin* geworpen als offergave aan God, maar zij heeft van haar armoede alles wat ze voor haar levensonderhoud had, *daarin* geworpen.
 5. En toen sommigen over de tempel zeiden dat hij met prachtige stenen en aan God gewijde geschenken versierd was, zei Hij:
-6. *Wat betreft* deze dingen waarnaar u kijkt: Er zullen dagen komen waarin niet *één* steen op *de andere* steen gelaten zal worden die niet afgebroken zal worden.
+6. *Wat betreft* deze dingen waarnaar u kijkt: Er zullen dagen komen waarin niet *Ã©Ã©n* steen op *de andere* steen gelaten zal worden die niet afgebroken zal worden.
 7. En zij vroegen Hem: Meester, wanneer zal dat dan zijn en wat is het teken dat deze dingen zullen gebeuren?
 8. En Hij zei: Pas op dat u niet misleid wordt, want velen zullen komen onder Mijn Naam en zeggen: Ik ben *de Christus,* en: De tijd is nabijgekomen. Ga hen dan niet achterna.
 9. En wanneer u zult horen van oorlogen en allerlei oproer, wees dan niet verschrikt. Want deze dingen moeten eerst geschieden, maar *dat betekent* niet meteen het einde.
 10. Toen zei Hij tegen hen: Het *ene* volk zal tegen het *andere* volk opstaan en het *ene* koninkrijk tegen het *andere* koninkrijk;
 11. en er zullen grote aardbevingen zijn in verschillende plaatsen, hongersnoden en besmettelijke ziekten. Er zullen ook verschrikkelijke dingen en grote tekenen vanuit de hemel plaatsvinden.
-12. Maar vóór dit alles zullen ze de handen aan u slaan en *u* vervolgen, door *u* over te leveren in de synagogen en gevangenissen, en u zult voor koningen en stadhouders geleid worden omwille van Mijn Naam.
+12. Maar vÃ³Ã³r dit alles zullen ze de handen aan u slaan en *u* vervolgen, door *u* over te leveren in de synagogen en gevangenissen, en u zult voor koningen en stadhouders geleid worden omwille van Mijn Naam.
 13. En *dit* zal u overkomen, opdat u zult getuigen.
 14. Neem u dan in uw hart voor niet van tevoren te bedenken *hoe* u zich moet verdedigen.
 15. Want Ik zal u mond en wijsheid geven die al uw tegenstanders niet zullen kunnen weerspreken of weerstaan.

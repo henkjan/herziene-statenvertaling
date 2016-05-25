@@ -1,8 +1,8 @@
 #Handelingen 13
-1. En er waren in Antiochië, in de gemeente aldaar, enkele profeten en leraars, namelijk Barnabas, Simeon, die Niger genoemd werd, Lucius van Cyrene, Manahen, die met Herodes de viervorst opgegroeid was, en Saulus.
+1. En er waren in AntiochiÃ«, in de gemeente aldaar, enkele profeten en leraars, namelijk Barnabas, Simeon, die Niger genoemd werd, Lucius van Cyrene, Manahen, die met Herodes de viervorst opgegroeid was, en Saulus.
 2. En terwijl zij de Heere dienden en vastten, zei de Heilige Geest: Zonder voor Mij zowel Barnabas als Saulus af voor het werk waartoe Ik hen geroepen heb.
 3. Toen vastten en baden zij, en nadat zij hun de handen opgelegd hadden, lieten zij hen gaan.
-4. Zij dan, uitgezonden door de Heilige Geest, vertrokken naar Seleucië en voeren vandaar naar Cyprus.
+4. Zij dan, uitgezonden door de Heilige Geest, vertrokken naar SeleuciÃ« en voeren vandaar naar Cyprus.
 5. En toen zij in Salamis gekomen waren, verkondigden zij het Woord van God in de synagogen van de Joden; en zij hadden bovendien Johannes als dienaar.
 6. En toen zij het eiland doorgegaan waren tot Pafos toe, troffen zij een zekere tovenaar aan, een valse profeet, een Jood van wie de naam Barjezus was.
 7. Hij hoorde bij de stadhouder Sergius Paulus, een verstandig man. Die riep Barnabas en Saulus bij zich en verlangde ernaar het Woord van God te horen.
@@ -11,18 +11,18 @@
 10. O duivelskind, vol van alle bedrog en van alle sluwheid, vijand van alle gerechtigheid, zult u er niet mee ophouden de rechte wegen van de Heere te verdraaien?
 11. En nu, zie, de hand van de Heere *is* tegen u en u zult blind zijn en de zon voor een tijd niet zien. En onmiddellijk viel er donkerheid en duisternis op hem, en rondlopend zocht hij naar *mensen* om *hem* bij de hand te leiden.
 12. Toen de stadhouder zag wat er gebeurd was, geloofde hij, versteld over de leer van de Heere.
-13. En Paulus en zij die bij hem waren, voeren van Pafos weg en kwamen in Perge aan, *een stad* in Pamfylië. Maar Johannes verliet hen en keerde terug naar Jeruzalem.
-14. En zij gingen vanuit Perge *het land* door en kwamen in Antiochië in Pisidië; en zij gingen op de dag van de sabbat de synagoge binnen en gingen *daar* zitten.
+13. En Paulus en zij die bij hem waren, voeren van Pafos weg en kwamen in Perge aan, *een stad* in PamfyliÃ«. Maar Johannes verliet hen en keerde terug naar Jeruzalem.
+14. En zij gingen vanuit Perge *het land* door en kwamen in AntiochiÃ« in PisidiÃ«; en zij gingen op de dag van de sabbat de synagoge binnen en gingen *daar* zitten.
 15. En na het voorlezen van de Wet en van de Profeten lieten de hoofden van de synagoge tegen hen zeggen: Mannenbroeders, als er bij u een woord van bemoediging voor het volk is, spreek dan.
-16. Toen stond Paulus op, wenkte met de hand en zei: Israëlitische mannen en u die God vreest, luister:
-17. De God van dit volk Israël heeft onze vaderen uitverkoren en het volk verhoogd toen zij vreemdelingen waren in het land Egypte, en Hij heeft hen met een machtige arm daaruit geleid.
+16. Toen stond Paulus op, wenkte met de hand en zei: IsraÃ«litische mannen en u die God vreest, luister:
+17. De God van dit volk IsraÃ«l heeft onze vaderen uitverkoren en het volk verhoogd toen zij vreemdelingen waren in het land Egypte, en Hij heeft hen met een machtige arm daaruit geleid.
 18. En Hij heeft gedurende de tijd van ongeveer veertig jaar hun doen en laten verdragen in de woestijn.
-19. En nadat Hij in het land Kanaän zeven volken uitgeroeid had, verdeelde Hij hun land onder hen door het lot.
+19. En nadat Hij in het land KanaÃ¤n zeven volken uitgeroeid had, verdeelde Hij hun land onder hen door het lot.
 20. En daarna gaf Hij *hun* ongeveer vierhonderdvijftig jaar richters, tot aan de profeet Samuel.
 21. En van toen af vroegen zij om een koning, en God gaf hun Saul, de zoon van Kis, een man uit de stam van Benjamin, gedurende veertig jaar.
-22. En nadat Hij hem had afgezet, verwekte Hij David voor hen tot koning; Hij gaf ook getuigenis van hem met de woorden: Ik heb David, de *zoon* van Isaï, gevonden, een man naar Mijn hart, die alles zal doen wat Ik wil.
-23. Uit zijn nageslacht heeft God voor Israël, volgens de belofte, de Zaligmaker Jezus doen voortkomen,
-24. nadat Johannes, voorafgaand aan Zijn komst, eerst aan heel het volk Israël de doop van bekering gepredikt had.
+22. En nadat Hij hem had afgezet, verwekte Hij David voor hen tot koning; Hij gaf ook getuigenis van hem met de woorden: Ik heb David, de *zoon* van IsaÃ¯, gevonden, een man naar Mijn hart, die alles zal doen wat Ik wil.
+23. Uit zijn nageslacht heeft God voor IsraÃ«l, volgens de belofte, de Zaligmaker Jezus doen voortkomen,
+24. nadat Johannes, voorafgaand aan Zijn komst, eerst aan heel het volk IsraÃ«l de doop van bekering gepredikt had.
 25. Maar toen Johannes zijn loop aan het volbrengen was, zei hij: Wie denkt u dat ik ben? Ik ben *de Christus* niet; maar zie, Hij komt na mij, bij Wie ik het niet waard ben de sandalen *aan Zijn* voeten los te maken.
 26. Mannenbroeders, kinderen van het geslacht van Abraham, en wie onder u God vrezen, tot u is het woord van deze zaligheid gezonden.
 27. Want de inwoners van Jeruzalem en hun leiders, die Hem niet kenden, hebben door *Hem* te veroordelen de uitspraken van de profeten vervuld, die iedere sabbat voorgelezen worden.
@@ -32,7 +32,7 @@
 31. en Hij is gedurende vele dagen verschenen aan hen die met Hem opgegaan waren van Galilea naar Jeruzalem en die *nu* Zijn getuigen zijn bij het volk.
 32. En wij verkondigen u de belofte die aan de vaderen gedaan is, namelijk dat God die vervuld heeft aan ons, hun kinderen, door Jezus te verwekken,
 33. zoals ook in de tweede psalm geschreven staat: U bent Mijn Zoon, heden heb Ik U verwekt.
-34. En dat Hij Hem uit de doden heeft doen opstaan om niet meer tot ontbinding terug te keren, heeft Hij zó gezegd: Ik zal u de weldaden van David geven, die betrouwbaar zijn;
+34. En dat Hij Hem uit de doden heeft doen opstaan om niet meer tot ontbinding terug te keren, heeft Hij zÃ³ gezegd: Ik zal u de weldaden van David geven, die betrouwbaar zijn;
 35. daarom zegt hij ook in een andere *psalm*: U zult Uw Heilige niet *over*geven om ontbinding te zien.
 36. Immers, David is ontslapen nadat hij in zijn tijd het raadsbesluit van God uitgediend had, en hij is bij zijn vaderen gelegd en heeft wel ontbinding gezien;
 37. maar Hij Die God opgewekt heeft, heeft geen ontbinding gezien.

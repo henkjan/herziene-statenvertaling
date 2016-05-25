@@ -1,5 +1,5 @@
 #Kolossenzen 1
-1. Paulus, door de wil van God een apostel van Jezus Christus, en Timotheüs, de broeder,
+1. Paulus, door de wil van God een apostel van Jezus Christus, en TimotheÃ¼s, de broeder,
 2. aan de heilige en gelovige broeders in Christus die in Kolosse zijn: genade *zij* u en vrede van God, onze Vader, en van de Heere Jezus Christus.
 3. Wij danken de God en Vader van onze Heere Jezus Christus altijd wanneer wij voor u bidden,
 4. omdat wij gehoord hebben van uw geloof in Christus Jezus en van de liefde die *u hebt* voor alle heiligen,
@@ -15,7 +15,7 @@
 14. In Hem hebben wij de verlossing, door Zijn bloed, *namelijk* de vergeving van de zonden.
 15. Hij is het Beeld van de onzichtbare God, de Eerstgeborene van heel de schepping.
 16. Want door Hem zijn alle dingen geschapen die in de hemelen en die op de aarde zijn, die zichtbaar en die onzichtbaar zijn: tronen, heerschappijen, overheden of machten; alle dingen zijn door Hem en voor Hem geschapen.
-17. En Hij is vóór alle dingen, en alle dingen bestaan tezamen door Hem.
+17. En Hij is vÃ³Ã³r alle dingen, en alle dingen bestaan tezamen door Hem.
 18. En Hij is het hoofd van het lichaam, *namelijk* van de gemeente, Hij, Die het begin is, de Eerstgeborene uit de doden, opdat Hij in allen de Eerste zou zijn.
 19. Want het heeft *de Vader* behaagd dat in Hem heel de volheid wonen zou,
 20. en dat Hij door Hem alle dingen met Zichzelf verzoenen zou, door vrede te maken door het bloed van Zijn kruis, *ja* door Hem, zowel de dingen die op de aarde zijn als de dingen die in de hemelen zijn.

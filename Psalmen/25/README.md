@@ -20,4 +20,4 @@
 19. Zie mijn vijanden, want zij worden talrijk, zij haten mij met een dodelijke haat. 
 20. Bewaar mijn ziel en red mij; [ sjin] laat mij niet beschaamd worden, want tot U heb ik de toevlucht genomen. 
 21. Laat oprechtheid en vroomheid mij beschermen, [ taw] want ik verwacht U. 
-22. O God, verlos Israël uit al zijn benauwdheden.
+22. O God, verlos IsraÃ«l uit al zijn benauwdheden.

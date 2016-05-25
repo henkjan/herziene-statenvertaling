@@ -2,7 +2,7 @@
 1. Nu had ook het eerste *verbond* verordeningen voor de *ere*dienst en het aardse heiligdom.
 2. Er was immers een tabernakel ingericht en in het eerste *gedeelte daarvan* was de kandelaar en de tafel met de toonbroden. Dat werd het heilige genoemd.
 3. Maar achter het tweede voorhangsel was *het gedeelte van* de tabernakel dat het heilige der heiligen werd genoemd,
-4. met een gouden wierookvat en de ark van het verbond, die geheel met goud overtrokken was. In deze *ark* lagen de gouden kruik met het manna en de staf van Aäron, die gebloeid had, en de *stenen* tafelen van het verbond.
+4. met een gouden wierookvat en de ark van het verbond, die geheel met goud overtrokken was. In deze *ark* lagen de gouden kruik met het manna en de staf van AÃ¤ron, die gebloeid had, en de *stenen* tafelen van het verbond.
 5. En boven op deze *ark* waren de cherubs van *Gods* heerlijkheid, die het verzoendeksel overschaduwden. Over deze dingen zullen wij nu niet stuk voor stuk spreken.
 6. Dit alles was dus zo ingericht. In het eerste *deel van de* tabernakel gingen de priesters voortdurend binnen om de diensten te volbrengen.
 7. In het tweede *deel* echter *ging* alleen de hogepriester eenmaal per jaar binnen, niet zonder bloed, dat hij voor zichzelf offerde en voor de afdwalingen van het volk.

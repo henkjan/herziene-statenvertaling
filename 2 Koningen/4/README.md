@@ -18,11 +18,11 @@
 17. Maar de vrouw werd zwanger en baarde een jaar later een zoon, op de vastgestelde tijd, waarvan Elisa tot haar gesproken had.
 18. Toen het kind groot werd, gebeurde het op een dag dat hij naar buiten ging, naar zijn vader, naar de maaiers.
 19. En hij zei tegen zijn vader: Mijn hoofd, mijn hoofd! Die zei tegen een knecht: Draag hem naar zijn moeder.
-20. Deze nam hem op en bracht hem bij zijn moeder. En hij zat tot de middag op haar knieën; toen stierf hij.
+20. Deze nam hem op en bracht hem bij zijn moeder. En hij zat tot de middag op haar knieÃ«n; toen stierf hij.
 21. Zij ging naar boven en legde hem op het bed van de man Gods; daarna sloot zij *de deur* achter hem en ging naar buiten.
 22. Zij riep haar man en zei: Stuur mij toch een van de knechten met een van de ezelinnen, zodat ik snel naar de man Gods kan gaan. Daarna kom ik *weer* terug.
-23. Hij zei: Waarom ga je vandaag naar hem toe? Het is geen nieuwe maan en geen sabbat. Maar zij zei: Het is goed *zo*.
-24. Toen zadelde zij de ezelin en zei tegen haar knecht: Drijf *haar* aan en ga; rijd zonder ophouden, tenzij ik *het* je zeg.
+23. Hij zei: WaaromÂ ga je vandaag naar hem toe? Het is geen nieuwe maan en geen sabbat. Maar zij zei: Het is goed *zo*.
+24. Toen zadelde zij de ezelin en zei tegen haar knecht: Drijf *haar* aan en ga; rijd zonder ophouden, tenzij ikÂ *het* je zeg.
 25. Zo ging zij *op weg* en kwam bij de man Gods, bij de berg Karmel. Het gebeurde nu, toen de man Gods haar van een afstand zag, dat hij tegen Gehazi, zijn knecht, zei: Zie, daar is de *vrouw* uit Sunem.
 26. Welnu, loop haar toch snel tegemoet en zeg tegen haar: Gaat het goed met u? Gaat het goed met uw man? Gaat het goed met uw kind? En zij zei: Het gaat goed.
 27. Toen zij bij de man Gods op de berg kwam, greep zij zijn voeten vast. Gehazi kwam echter naar voren om haar weg te duwen, maar de man Gods zei: Laat haar begaan, want haar ziel is bitter bedroefd in haar, en de HEERE heeft het voor mij verborgen en het mij niet bekendgemaakt.
@@ -40,6 +40,6 @@
 39. Een *van hen* ging naar het veld om groenten te plukken. Hij vond een wilde slingerplant en plukte daarvan wilde kolokwinten, zijn kleed vol. Hij kwam *terug* en sneed ze in stukken in de soeppot, hoewel zij niet wisten *wat het was*.
 40. Daarna schepte men voor de mannen op om te eten. Het gebeurde nu, toen zij van die soep aten, dat ze het uitschreeuwden en zeiden: Man Gods, de dood is in de pot! Zij konden het niet eten.
 41. Maar hij zei: Breng dan meel. En hij wierp het in de pot en zei: Schep het voor de mensen op om te eten. Toen was er niets verkeerds *meer* in de pot.
-42. Er kwam een man uit Baäl-Salisa; hij bracht de man Gods broden van de eerstelingen, twintig gerstebroden en vers graan in zijn tas. En die zei: Geef het aan de mensen om te eten.
+42. Er kwam een man uit BaÃ¤l-Salisa; hij bracht de man Gods broden van de eerstelingen, twintig gerstebroden en vers graan in zijn tas. En die zei: Geef het aan de mensen om te eten.
 43. Maar zijn dienaar zei: Hoe moet ik dat aan honderd mannen voorzetten? En hij zei: Geef het aan de mensen om te eten, want zo zegt de HEERE: Men zal eten en overhouden.
 44. Zo zette hij het hun voor, en zij aten en hielden over, overeenkomstig het woord van de HEERE.

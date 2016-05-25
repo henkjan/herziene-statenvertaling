@@ -30,13 +30,13 @@
 29. Op de panelen die tussen de dwarsstangen zaten, stonden leeuwen, runderen en cherubs, en op de dwarsstangen evenzo. Boven en onder de leeuwen en de runderen waren naar beneden hangende kransen.
 30. Een onderstel had vier koperen wielen en koperen assen, en de vier hoeken ervan hadden steunen. Onder het spoelbekken waren de steunen gegoten *en* tegenover elke *steun* zaten kransen.
 31. De opening ervan zat binnen in het opzetstuk en stak er een el bovenuit. De opening ervan was rond, van dezelfde vorm *als het spoelbekken*, anderhalve el. En ook op de opening ervan zaten graveringen. Hun panelen waren vierkant, niet rond.
-32. De vier wielen zaten onder aan de panelen en de assen van de wielen zaten aan het onderstel. De hoogte van één wiel was anderhalve el.
+32. De vier wielen zaten onder aan de panelen en de assen van de wielen zaten aan het onderstel. De hoogte van Ã©Ã©n wiel was anderhalve el.
 33. De constructie van de wielen was als de constructie van een wagenwiel. Hun assen, hun velgen, hun spaken en hun naven waren allemaal gegoten.
-34. En er zaten vier steunen op de vier hoeken van een onderstel. Zijn steunen *vormden één geheel* met het onderstel.
-35. Verder zat er boven aan het onderstel een ronde opstaande rand van een halve el in de rondte. Aan de bovenkant van het onderstel zaten de draagstukken ervan en de panelen ervan, *die* er *één geheel* mee *vormden*.
+34. En er zaten vier steunen op de vier hoeken van een onderstel. Zijn steunen *vormden Ã©Ã©n geheel* met het onderstel.
+35. Verder zat er boven aan het onderstel een ronde opstaande rand van een halve el in de rondte. Aan de bovenkant van het onderstel zaten de draagstukken ervan en de panelen ervan, *die* er *Ã©Ã©n geheel* mee *vormden*.
 36. Op de vlakken van de draagstukken ervan en op de panelen ervan graveerde hij cherubs, leeuwen en dadelpalmen, op ieder leeg vlak, met kransen eromheen.
 37. Op dezelfde manier maakte hij de tien onderstellen: eenzelfde gietsel, eenzelfde maat, eenzelfde vorm voor hen alle.
-38. Hij maakte ook tien koperen spoelbekkens. Eén spoelbekken kon veertig bath bevatten. Eén spoelbekken was vier el *in doorsnee*. Op één onderstel van die tien onderstellen zat één wasvat.
+38. Hij maakte ook tien koperen spoelbekkens. EÃ©n spoelbekken kon veertig bath bevatten. EÃ©n spoelbekken was vier el *in doorsnee*. Op Ã©Ã©n onderstel van die tien onderstellen zat Ã©Ã©n wasvat.
 39. Hij plaatste vijf onderstellen aan de rechterzijde van het huis en vijf aan de linkerzijde van het huis. De zee plaatste hij aan de rechterzijde van het huis, in zuidoostelijke richting.
 40. Verder maakte Hirom de spoelbekkens, de scheppen en de sprengbekkens; en Hiram voltooide al het werk dat hij voor koning Salomo maakte ten behoeve van het huis van de HEERE,
 41. *te weten* de twee pilaren met de bollen van de kapitelen die boven op de twee pilaren lagen, en de twee vlechtwerken om de twee bollen van de kapitelen die boven op de pilaren lagen, te bedekken,
@@ -47,6 +47,6 @@
 46. In de vlakte van de Jordaan liet de koning ze gieten, tussen Sukkoth en Zartan, in *vormen van* zware klei.
 47. Salomo liet al deze voorwerpen *ongewogen* vanwege de zeer grote hoeveelheid. Het gewicht van het koper werd niet nagegaan.
 48. Ook maakte Salomo alle voorwerpen die voor het huis van de HEERE bestemd waren: het gouden altaar, de gouden tafel waarop de toonbroden lagen,
-49. de kandelaars, vijf aan de rechterzijde en vijf aan de linkerzijde, vóór het binnenste heiligdom, van bladgoud, de bloesems, de lampen en de snuiters van goud,
+49. de kandelaars, vijf aan de rechterzijde en vijf aan de linkerzijde, vÃ³Ã³r het binnenste heiligdom, van bladgoud, de bloesems, de lampen en de snuiters van goud,
 50. de schalen, de messen, de sprengbekkens, de kommen, de vuurschalen van bladgoud en de scharnieren van de deuren van het binnenste huis, voor het heilige der heiligen, *en* voor de deuren van het binnenste *deel* van de tempel, *alles* van goud.
 51. Zo werd al het werk dat koning Salomo *voor* het huis van de HEERE verrichtte, voltooid. Daarna bracht Salomo de geheiligde *gaven* van zijn vader David over. Het zilver, het goud en de voorwerpen legde hij in de schatkamers van het huis van de HEERE.

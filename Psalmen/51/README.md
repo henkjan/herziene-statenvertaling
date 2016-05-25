@@ -3,7 +3,7 @@
 2. toen de profeet Nathan bij hem was gekomen, nadat hij bij Bathseba was gekomen. 
 3. Wees mij genadig, o God, overeenkomstig Uw goedertierenheid, delg mijn overtreding uit overeenkomstig Uw grote barmhartigheid. 
 4. Was mij schoon van mijn ongerechtigheid, reinig mij van mijn zonde. 
-5. Want ík ken mijn overtredingen, mijn zonde *staat* mij voortdurend voor *ogen*. 
+5. Want Ã­k ken mijn overtredingen, mijn zonde *staat* mij voortdurend voor *ogen*. 
 6. Tegen U, U alleen, heb ik gezondigd, ik heb gedaan wat kwaad is in Uw ogen, zodat U rechtvaardig bent wanneer U *recht*spreekt *en* rein bent wanneer U oordeelt. 
 7. Zie, ik ben in ongerechtigheid geboren, in zonde heeft mijn moeder mij ontvangen. 
 8. Zie, U vindt vreugde in waarheid in het binnenste, in het verborgene maakt U mij wijsheid bekend. 

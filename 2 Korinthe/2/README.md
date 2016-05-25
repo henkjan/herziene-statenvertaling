@@ -11,7 +11,7 @@
 10. Degene wie u nu iets vergeeft, *die vergeef* ik ook; want ook ik heb, als ik *al* iets te vergeven heb, het hem vergeven omwille van u, voor het aangezicht van Christus, opdat de satan op ons geen voordeel zou behalen.
 11. Want zijn gedachten zijn ons niet onbekend.
 12. Toen ik nu in Troas kwam om het Evangelie van Christus *te prediken*, en *daar* een deur voor mij geopend was in de Heere, had ik geen rust voor mijn geest, omdat ik Titus, mijn broeder, niet vond,
-13. maar ik nam afscheid van hen en vertrok naar Macedonië.
+13. maar ik nam afscheid van hen en vertrok naar MacedoniÃ«.
 14. En God zij dank, Die ons in Christus altijd doet triomferen en door ons de geur van Zijn kennis op iedere plaats openbaar maakt.
 15. Want wij zijn voor God een aangename geur van Christus, onder hen die zalig worden en onder hen die verloren gaan;
 16. voor de laatsten een doodsgeur, *die leidt* tot *de* dood, maar voor de eersten een levensgeur, *die leidt* tot *het* leven. Maar wie is tot deze dingen bekwaam?

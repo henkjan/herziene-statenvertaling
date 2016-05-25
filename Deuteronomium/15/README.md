@@ -14,7 +14,7 @@
 13. En als u hem vrij van u laat weggaan, mag u hem niet *met* lege *handen* laten gaan.
 14. U moet hem overvloedig geven van uw kleinvee, uw dorsvloer en uw perskuip; van dat waarmee de HEERE, uw God, u gezegend heeft, moet u hem geven.
 15. En u moet bedenken dat u een slaaf geweest bent in het land Egypte, en dat de HEERE, uw God, u verlost heeft; daarom gebied ik u heden deze zaak.
-16. Maar het moet *zó* zijn, als hij tegen u zegt: Ik wil niet bij u weggaan, omdat hij u en uw gezin liefheeft, omdat hij het goed bij u heeft,
+16. Maar het moet *zÃ³* zijn, als hij tegen u zegt: Ik wil niet bij u weggaan, omdat hij u en uw gezin liefheeft, omdat hij het goed bij u heeft,
 17. dat u een priem neemt en die door zijn oor en in de deur steekt; dan zal hij voor altijd uw slaaf zijn. Ook bij uw slavin moet u zo doen.
 18. Laat het niet moeilijk zijn in uw ogen als u hem vrij van u laat weggaan, want hij heeft u zes jaar dubbel zoveel opgeleverd als een dagloner. Dan zal de HEERE, uw God, u zegenen in alles wat u doet.
 19. Alle mannelijke eerstgeborenen die bij uw runderen en uw kleinvee geboren worden, moet u voor de HEERE, uw God, heiligen. U mag met de eerstgeborene van uw rund geen arbeid verrichten, en de eerstgeborene van uw kleinvee mag u niet scheren.

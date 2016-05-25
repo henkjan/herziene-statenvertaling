@@ -13,7 +13,7 @@
 12. Bekleed u dan, als uitverkorenen van God, heiligen en geliefden, met innige gevoelens van ontferming, vriendelijkheid, nederigheid, zachtmoedigheid, geduld.
 13. Verdraag elkaar en vergeef de een de ander, als iemand tegen iemand *anders* een klacht heeft; zoals ook Christus u vergeven heeft, zo *moet* ook u *doen*.
 14. En *doe* boven dit alles de liefde *aan*, die de band van de volmaaktheid is.
-15. En laat de vrede van God heersen in uw harten, waartoe u ook in één lichaam geroepen bent; en wees dankbaar.
+15. En laat de vrede van God heersen in uw harten, waartoe u ook in Ã©Ã©n lichaam geroepen bent; en wees dankbaar.
 16. Laat het woord van Christus in rijke mate in u wonen, in alle wijsheid; onderwijs elkaar en wijs elkaar terecht, met psalmen, lofzangen en geestelijke liederen. Zing voor de Heere met dank in uw hart.
 17. En alles wat u doet met woorden of met daden, doe dat alles in de Naam van de Heere Jezus, terwijl u God en de Vader dankt door Hem.
 18. Vrouwen, wees uw eigen mannen onderdanig, zoals het behoort in de Heere.

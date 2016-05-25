@@ -1,6 +1,6 @@
 #Psalmen 147
 1. Halleluja! Het is immers goed om voor onze God psalmen te zingen, want dat is lieflijk. *Hem* past een lofzang! 
-2. De HEERE bouwt Jeruzalem *weer* op, Hij verzamelt Israëls verdrevenen. 
+2. De HEERE bouwt Jeruzalem *weer* op, Hij verzamelt IsraÃ«ls verdrevenen. 
 3. Hij geneest de gebrokenen van hart, Hij verbindt hen in hun leed. 
 4. Hij telt het aantal sterren, Hij noemt ze alle bij *hun* naam. 
 5. Onze Heere is groot en geweldig in kracht, Zijn inzicht is onmetelijk. 
@@ -17,5 +17,5 @@
 16. Hij geeft sneeuw als wol, Hij strooit rijp uit als as. 
 17. Hij werpt Zijn ijs als stukken; wie is bestand tegen Zijn koude? 
 18. Hij zendt Zijn woord en doet dat *alles* smelten, Hij doet Zijn wind waaien, de wateren stromen. 
-19. Hij maakt Jakob Zijn woorden bekend, Israël Zijn verordeningen en Zijn bepalingen. 
+19. Hij maakt Jakob Zijn woorden bekend, IsraÃ«l Zijn verordeningen en Zijn bepalingen. 
 20. Zo heeft Hij voor geen enkel *ander* volk gedaan; die kennen Zijn bepalingen niet. Halleluja!

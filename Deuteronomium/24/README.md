@@ -5,7 +5,7 @@
 4. dan mag haar eerste man, die haar heeft weggestuurd, haar niet terugnemen om hem tot vrouw te zijn, nu zij onrein geworden is; want dat is voor het aangezicht van de HEERE een gruwel. U mag geen zonde brengen over het land dat de HEERE, uw God, u als erfelijk bezit geeft.
 5. Wanneer een man pas een vrouw genomen heeft, mag hij niet met het leger uittrekken, en mag men hem geen enkele verplichting opleggen. Een jaar lang zal hij vrij zijn ten behoeve van zijn huis zodat hij zijn vrouw, die hij genomen heeft, kan verblijden.
 6. Men mag een handmolen of een bovenste molensteen niet in onderpand nemen, want *dan* neemt men een leven in onderpand.
-7. Wanneer er iemand ontdekt wordt die iemand van zijn broeders, *een* van de Israëlieten, ontvoert en hem als slaaf behandelt en hem verkoopt, dan moet de ontvoerder sterven. Zo moet u het kwaad uit uw midden wegdoen.
+7. Wanneer er iemand ontdekt wordt die iemand van zijn broeders, *een* van de IsraÃ«lieten, ontvoert en hem als slaaf behandelt en hem verkoopt, dan moet de ontvoerder sterven. Zo moet u het kwaad uit uw midden wegdoen.
 8. Wees op uw hoede voor de ziekte van de melaatsheid door bijzonder nauwlettend te handelen overeenkomstig alles wat de Levitische priesters u leren. U moet nauwlettend handelen zoals ik hun geboden heb.
 9. Denk aan wat de HEERE, uw God, onderweg met Mirjam gedaan heeft, toen u uit Egypte trok.
 10. Wanneer u aan uw naaste iets geleend hebt, dan mag u zijn huis niet binnengaan om zijn onderpand mee te nemen.

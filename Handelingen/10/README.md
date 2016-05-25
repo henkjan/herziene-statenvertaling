@@ -34,7 +34,7 @@
 33. Dus heb ik ogenblikkelijk *mensen* naar u toe gestuurd, en u hebt *er* goed *aan* gedaan dat u hier gekomen bent. Wij zijn dan nu allen *hier* aanwezig, in de tegenwoordigheid van God, om alles te horen wat u door God bevolen is.
 34. En Petrus opende zijn mond en zei: Ik zie *nu* in waarheid in dat God niet *iemand om* de persoon aanneemt;
 35. maar in ieder volk is degene die Hem vreest en gerechtigheid doet, Hem welgevallig.
-36. *Dit is* het woord dat Hij gezonden heeft tot de Israëlieten, waardoor Hij vrede verkondigt door Jezus Christus; Deze is de Heere van allen.
+36. *Dit is* het woord dat Hij gezonden heeft tot de IsraÃ«lieten, waardoor Hij vrede verkondigt door Jezus Christus; Deze is de Heere van allen.
 37. U weet wat er gebeurd is in heel Judea, wat begon in Galilea na de doop die Johannes gepredikt heeft:
 38. hoe God Jezus van Nazareth gezalfd heeft met de Heilige Geest en met kracht *en hoe* Hij *het land* doorgegaan is, terwijl Hij goeddeed en allen die door de duivel overweldigd waren, genas, want God was met Hem.
 39. En wij zijn getuigen van alles wat Hij gedaan heeft, zowel in het Joodse land als in Jeruzalem. Ze hebben Hem gedood door *Hem* aan een hout te hangen.

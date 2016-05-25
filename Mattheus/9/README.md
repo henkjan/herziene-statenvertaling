@@ -7,12 +7,12 @@
 6. Maar opdat u zult weten dat de Zoon des mensen macht heeft op de aarde zonden te vergeven (toen zei Hij tegen de verlamde): Sta op, neem uw bed op en ga naar uw huis.
 7. En hij stond op en ging naar zijn huis.
 8. Toen de menigten *dit* zagen, verwonderden ze zich en verheerlijkten God, Die zo'n macht aan de mensen gegeven had.
-9. En Jezus ging vandaar verder en zag iemand in het tolhuis zitten, die Mattheüs heette; en Hij zei tegen hem: Volg Mij! En hij stond op en volgde Hem.
-10. En het gebeurde, toen Hij in het huis *van Mattheüs* aanlag, zie, veel tollenaars en zondaars kwamen en lagen met Jezus en Zijn discipelen aan.
-11. En toen de Farizeeën dat zagen, zeiden zij tegen Zijn discipelen: Waarom eet uw Meester met de tollenaars en zondaars?
+9. En Jezus ging vandaar verder en zag iemand in het tolhuis zitten, die MattheÃ¼s heette; en Hij zei tegen hem: Volg Mij! En hij stond op en volgde Hem.
+10. En het gebeurde, toen Hij in het huis *van MattheÃ¼s* aanlag, zie, veel tollenaars en zondaars kwamen en lagen met Jezus en Zijn discipelen aan.
+11. En toen de FarizeeÃ«n dat zagen, zeiden zij tegen Zijn discipelen: Waarom eet uw Meester met de tollenaars en zondaars?
 12. Maar Jezus, Die dat hoorde, zei tegen hen: Wie gezond zijn, hebben geen dokter nodig, maar wie ziek zijn.
 13. Maar ga heen en leer wat het betekent: Ik wil barmhartigheid en geen offer; want Ik ben niet gekomen om rechtvaardigen tot bekering te roepen, maar zondaars.
-14. Toen kwamen de discipelen van Johannes bij Hem en zeiden: Waarom vasten wij en de Farizeeën veel en vasten Uw discipelen niet?
+14. Toen kwamen de discipelen van Johannes bij Hem en zeiden: Waarom vasten wij en de FarizeeÃ«n veel en vasten Uw discipelen niet?
 15. Jezus zei tegen hen: De bruiloftsgasten kunnen toch niet treuren zolang de Bruidegom bij hen is? Maar de dagen zullen komen dat de Bruidegom van hen weggenomen zal zijn, en dan zullen zij vasten.
 16. Ook zet niemand een lap niet-gekrompen stof op een oud bovenkleed, want de daarop genaaide lap scheurt van het bovenkleed af, en er ontstaat een ergere scheur.
 17. Ook doet men geen nieuwe wijn in oude leren zakken; anders barsten de zakken, en de wijn stroomt eruit, en de zakken gaan verloren; maar men doet nieuwe wijn in nieuwe zakken, en beide blijven behouden.
@@ -31,8 +31,8 @@
 30. En hun ogen werden geopend. En Jezus vermaande hen streng en zei: Kijk uit, niemand mag het te weten komen!
 31. Maar zij gingen weg en maakten Hem bekend in heel dat gebied.
 32. Toen dezen weggingen, zie, men bracht iemand bij Hem die niet kon spreken en door een demon bezeten was.
-33. En toen de demon uitgedreven was, sprak hij die niet had kunnen spreken. En de menigte verwonderde zich en zei: Er is nog nooit zoiets in Israël gezien!
-34. Maar de Farizeeën zeiden: Hij drijft de demonen uit door de aanvoerder van de demonen.
+33. En toen de demon uitgedreven was, sprak hij die niet had kunnen spreken. En de menigte verwonderde zich en zei: Er is nog nooit zoiets in IsraÃ«l gezien!
+34. Maar de FarizeeÃ«n zeiden: Hij drijft de demonen uit door de aanvoerder van de demonen.
 35. En Jezus trok rond in al de steden en dorpen en gaf onderwijs in hun synagogen, en Hij predikte het Evangelie van het Koninkrijk en genas iedere ziekte en elke kwaal onder het volk.
 36. Toen Hij de menigte zag, was Hij innerlijk met ontferming bewogen over hen, omdat zij vermoeid en verstrooid waren, zoals schapen die geen herder hebben.
 37. Toen zei Hij tegen Zijn discipelen: De oogst is wel groot, maar er zijn weinig arbeiders.

@@ -15,11 +15,11 @@
 14. En er werden er steeds meer toegevoegd die in de Heere geloofden, menigten van zowel mannen als vrouwen,
 15. zodat zij de zieken naar buiten droegen op de straten en *hen* op bedden en ligmatten legden, opdat, wanneer Petrus *voorbij*kwam, ook maar *zijn* schaduw op iemand van hen zou kunnen vallen.
 16. En ook de menigte uit de steden in de omgeving kwam gezamenlijk naar Jeruzalem. Men bracht zieken en hen die door onreine geesten gekweld werden, en zij werden allen genezen.
-17. Maar de hogepriester stond op, en allen die bij hem waren (dit was de sekte van de Sadduceeën) en zij werden vervuld met afgunst.
+17. Maar de hogepriester stond op, en allen die bij hem waren (dit was de sekte van de SadduceeÃ«n) en zij werden vervuld met afgunst.
 18. En zij sloegen hun handen aan de apostelen en zetten hen *vast* in de openbare gevangenis.
 19. Maar een engel van de Heere opende 's nachts de deuren van de gevangenis, bracht hen naar buiten en zei:
 20. Ga in de tempel staan en spreek tot het volk al de woorden van dit leven.
-21. Toen zij *dit* gehoord hadden, gingen zij tegen de ochtend de tempel in en gaven onderwijs. En de hogepriester en zij die bij hem waren, kwamen *samen*, riepen de Raad en al de oudsten van de Israëlieten bijeen en stuurden *dienaars* naar de gevangenis om hen te halen.
+21. Toen zij *dit* gehoord hadden, gingen zij tegen de ochtend de tempel in en gaven onderwijs. En de hogepriester en zij die bij hem waren, kwamen *samen*, riepen de Raad en al de oudsten van de IsraÃ«lieten bijeen en stuurden *dienaars* naar de gevangenis om hen te halen.
 22. Maar toen de dienaars daar kwamen, vonden zij hen niet in de gevangenis, dus keerden zij terug en berichtten:
 23. Wij stelden wel vast dat de gevangenis met alle zorgvuldigheid afgesloten was en dat de bewakers buiten voor de deuren stonden, maar toen wij *die* geopend hadden, troffen wij binnen niemand aan.
 24. Toen de *hoge*priester, de bevelhebber van de tempel*wacht* en de overpriesters deze woorden hoorden, vroegen zij zich met betrekking tot hen vertwijfeld af wat dit moest worden.
@@ -29,13 +29,13 @@
 28. Hebben wij u niet ten strengste bevolen dat u in deze Naam niet zou onderwijzen? En zie, u hebt met deze leer van u Jeruzalem vervuld en u wilt het bloed van deze Mens over ons brengen.
 29. Maar Petrus en de apostelen antwoordden en zeiden: Men moet aan God meer gehoorzaam zijn dan aan mensen.
 30. De God van onze vaderen heeft Jezus opgewekt, Die u omgebracht hebt door *Hem* aan een *kruis*hout te hangen.
-31. Deze *Jezus* heeft God door Zijn rechter*hand* verhoogd *tot* een Vorst en Zaligmaker, om Israël bekering te geven en vergeving van zonden.
+31. Deze *Jezus* heeft God door Zijn rechter*hand* verhoogd *tot* een Vorst en Zaligmaker, om IsraÃ«l bekering te geven en vergeving van zonden.
 32. En wij zijn Zijn getuigen van deze dingen, en ook de Heilige Geest, Die God gegeven heeft aan hen die Hem gehoorzaam zijn.
 33. Toen zij *dit* hoorden, barstten zij *van woede* en maakten zij plannen om hen te doden.
-34. Maar er stond iemand op in de Raad, een Farizeeër van wie de naam Gamaliël was, een leraar van de wet, die in hoge achting stond bij heel het volk. Hij gaf opdracht dat men de apostelen even buiten zou doen *staan*.
-35. En hij zei tegen hen: Israëlitische mannen, wees op uw hoede *en bedenk* wat u met deze mensen wilt gaan doen.
-36. Want vóór deze dagen stond Theudas op, die zei dat hij wat was, en hij had een aanhang van ongeveer vierhonderd man; maar hij is omgebracht en allen die naar hem luisterden, zijn verstrooid en tot niets geworden.
-37. Na hem stond Judas de Galileeër op, in de dagen van de inschrijving, en hij maakte veel volk afvallig, dat hem volgde; en deze is ook omgekomen, en allen die naar hem luisterden, zijn uiteengedreven.
+34. Maar er stond iemand op in de Raad, een FarizeeÃ«r van wie de naam GamaliÃ«l was, een leraar van de wet, die in hoge achting stond bij heel het volk. Hij gaf opdracht dat men de apostelen even buiten zou doen *staan*.
+35. En hij zei tegen hen: IsraÃ«litische mannen, wees op uw hoede *en bedenk* wat u met deze mensen wilt gaan doen.
+36. Want vÃ³Ã³r deze dagen stond Theudas op, die zei dat hij wat was, en hij had een aanhang van ongeveer vierhonderd man; maar hij is omgebracht en allen die naar hem luisterden, zijn verstrooid en tot niets geworden.
+37. Na hem stond Judas de GalileeÃ«r op, in de dagen van de inschrijving, en hij maakte veel volk afvallig, dat hem volgde; en deze is ook omgekomen, en allen die naar hem luisterden, zijn uiteengedreven.
 38. En nu zeg ik u: Houd u ver van deze mensen en laat hen *gaan*, want als dit voornemen of dit werk van mensen afkomstig is, dan zal het afgebroken worden,
 39. maar als het van God afkomstig is, kunt u dat niet afbreken, opdat u niet misschien ook tegen God blijkt te strijden.
 40. En zij lieten zich door hem overtuigen; en toen zij de apostelen bij zich geroepen hadden, geselden zij hen en geboden *hun* dat zij niet zouden spreken in de Naam van Jezus, en zij lieten *hen* gaan.

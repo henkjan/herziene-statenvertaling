@@ -16,15 +16,15 @@
 15. dat Ik aan Mijn verbond zal denken, dat er is tussen Mij en u en alle levende wezens van alle vlees. Het water zal niet meer tot een vloed worden om alle vlees te gronde te richten.
 16. Als deze boog in de wolken is, zal Ik hem zien, en denken aan het eeuwig verbond tussen God en alle levende wezens van alle vlees dat op de aarde is.
 17. God zei dus tegen Noach: Dit is het teken van het verbond dat Ik gemaakt heb tussen Mij en alle vlees dat op de aarde is.
-18. En de zonen van Noach, die uit de ark gingen, waren Sem, Cham en Jafeth; Cham is de vader van Kana‰n.
+18. En de zonen van Noach, die uit de ark gingen, waren Sem, Cham en Jafeth; Cham is de vader van Kana√§n.
 19. Deze drie waren de zonen van Noach; en uit hen is heel de aarde bevolkt.
 20. En Noach werd landbouwer en plantte een wijngaard.
 21. Hij dronk van de wijn en werd dronken; en hij ontkleedde zich midden in zijn tent.
-22. En Cham, de vader van Kana‰n, zag de naaktheid van zijn vader en vertelde het aan zijn beide broers buiten.
+22. En Cham, de vader van Kana√§n, zag de naaktheid van zijn vader en vertelde het aan zijn beide broers buiten.
 23. Toen namen Sem en Jafeth een kleed, legden het op hun beider schouders, liepen achteruit en bedekten de naaktheid van hun vader, met het gezicht afgewend, zodat zij de naaktheid van hun vader niet zagen.
 24. Toen ontwaakte Noach uit zijn roes en kwam hij te weten wat zijn jongste zoon hem aangedaan had. 
-25. Hij zei: Vervloekt is Kana‰n! Laat hij voor zijn broers een dienaar van dienaren zijn! 
-26. Ook zei hij: Gezegend is de HEERE, de God van Sem! Laat Kana‰n een dienaar voor hem zijn! 
-27. Laat God Jafeth uitbreiden en laat hij in de tenten van Sem wonen! En laat Kana‰n voor hem een dienaar zijn!
+25. Hij zei: Vervloekt is Kana√§n! Laat hij voor zijn broers een dienaar van dienaren zijn! 
+26. Ook zei hij: Gezegend is de HEERE, de God van Sem! Laat Kana√§n een dienaar voor hem zijn! 
+27. Laat God Jafeth uitbreiden en laat hij in de tenten van Sem wonen! En laat Kana√§n voor hem een dienaar zijn!
 28. En Noach leefde na de vloed driehonderdvijftig jaar.
 29. Zo waren al de dagen van Noach negenhonderdvijftig jaar; en hij stierf.

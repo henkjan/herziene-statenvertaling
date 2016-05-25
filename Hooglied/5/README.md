@@ -7,7 +7,7 @@
 6. Ik deed mijn Liefste open, maar Mijn Liefste was weg, Hij was weggegaan. Ik was buiten mijzelf, toen Hij sprak! Ik zocht Hem, maar ik vond Hem niet, Ik riep Hem, maar Hij antwoordde mij niet. 
 7. De wachters die in de stad de ronde deden, vonden mij. Zij sloegen mij, verwondden mij, zij namen mijn sluier van mij af, de wachters op de muren. 
 8. Ik bezweer u, dochters van Jeruzalem, als u mijn Liefste vindt, wat zult u Hem vertellen? Dat ik ziek ben van liefde!
-9. Wat heeft uw Liefste v篌r boven een ander, o, allermooiste onder de vrouwen? Wat heeft uw Liefste v篌r boven een ander, dat u ons dit zo bezweert? 
+9. Wat heeft uw Liefste v贸贸r boven een ander, o, allermooiste onder de vrouwen? Wat heeft uw Liefste v贸贸r boven een ander, dat u ons dit zo bezweert? 
 10. Mijn Liefste is blank en rood, Hij steekt als een vaandel boven tienduizend uit. 
 11. Zijn hoofd is van fijn goud, van zuiver goud, Zijn haarlokken zijn krullend, zwart als een raaf. 
 12. Zijn ogen zijn als duiven bij waterstromen, badend in melk, zittend bij een volle bron. 

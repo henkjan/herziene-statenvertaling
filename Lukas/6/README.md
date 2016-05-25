@@ -1,19 +1,19 @@
 #Lukas 6
 1. En het gebeurde op de tweede sabbat na het Paasfeest dat Hij door de korenvelden ging; en Zijn discipelen plukten aren, wreven die met de handen stuk en aten ze op.
-2. Sommigen van de Farizeeën zeiden tegen hen: Waarom doet u wat niet geoorloofd is te doen op de sabbat?
+2. Sommigen van de FarizeeÃ«n zeiden tegen hen: Waarom doet u wat niet geoorloofd is te doen op de sabbat?
 3. Jezus antwoordde en zei tegen hen: Hebt u ook dat niet gelezen wat David deed toen hij honger had, en zij die bij hem waren?
 4. Hoe hij het huis van God binnengegaan is en de toonbroden genomen en gegeten heeft en ook gegeven heeft aan hen die bij hem waren, *broden* die niemand mag eten dan alleen de priesters?
-5. En Hij zei tegen hen: De Zoon des mensen is Heere, óók van de sabbat.
+5. En Hij zei tegen hen: De Zoon des mensen is Heere, Ã³Ã³k van de sabbat.
 6. Het gebeurde ook op een andere sabbat dat Hij in de synagoge kwam en onderwijs gaf. En er was daar iemand, van wie de rechterhand verschrompeld was.
-7. De schriftgeleerden en de Farizeeën letten scherp op Hem of Hij op de sabbat genezen zou, om iets te kunnen vinden om Hem te beschuldigen.
+7. De schriftgeleerden en de FarizeeÃ«n letten scherp op Hem of Hij op de sabbat genezen zou, om iets te kunnen vinden om Hem te beschuldigen.
 8. Maar Hij kende hun overwegingen en zei tegen de man met de verschrompelde hand: Sta op en ga in het midden staan; en hij stond op en ging *daar* staan.
 9. Jezus nu zei tegen hen: Ik vraag u: wat is geoorloofd op de sabbat: goed te doen of kwaad te doen, een mens te behouden of om te laten komen?
 10. En nadat Hij hen allen rondom aangekeken had, zei Hij tegen de man: Steek uw hand uit. Hij deed dat en zijn hand werd hersteld, gezond als de andere.
 11. Zij waren vol woede en spraken er met elkaar over wat zij met Jezus zouden doen.
 12. Het gebeurde in die dagen dat Hij naar buiten ging, naar de berg, om te bidden; en Hij bleef heel de nacht in gebed tot God.
 13. En toen het dag was geworden, riep Hij Zijn discipelen bij Zich en koos er twaalf van hen uit, die Hij ook apostelen noemde:
-14. Simon, die Hij ook Petrus noemde, en zijn broer Andreas, Jakobus en Johannes, Filippus en Bartholomeüs;
-15. Mattheüs en Thomas, Jakobus de *zoon* van Alfeüs, en Simon die Zelotes genoemd werd,
+14. Simon, die Hij ook Petrus noemde, en zijn broer Andreas, Jakobus en Johannes, Filippus en BartholomeÃ¼s;
+15. MattheÃ¼s en Thomas, Jakobus de *zoon* van AlfeÃ¼s, en Simon die Zelotes genoemd werd,
 16. Judas, de *broer* van Jakobus, en Judas Iskariot, die ook de verrader geworden is.
 17. En toen Hij met hen afgedaald was, bleef Hij staan op een vlakke plaats en *met Hem* een menigte van Zijn discipelen en een grote menigte van het volk uit heel Judea en Jeruzalem en van de zeekant van Tyrus en Sidon,
 18. die gekomen waren om Hem te horen en om van hun ziekten genezen te worden, ook zij die gekweld werden door onreine geesten; en zij werden genezen.

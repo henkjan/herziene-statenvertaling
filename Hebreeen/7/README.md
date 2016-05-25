@@ -9,7 +9,7 @@
 8. En hier nemen sterfelijke mensen tienden, maar daar *nam iemand ze* van wie getuigd wordt dat hij leeft.
 9. En - om zo te zeggen - ook Levi, die tienden neemt, heeft door Abraham tienden gegeven.
 10. Want hij was nog in het lichaam van zijn vader, toen Melchizedek hem tegemoetging.
-11. Als dan door het Levitische priesterschap de volmaaktheid *bereikt had kunnen worden* - want onder dit *priesterschap* had het volk de wet ontvangen - waarom was het *dan* nog nodig dat er een andere Priester naar de ordening van Melchizedek zou opstaan, Eén van Wie niet gezegd kan worden dat Hij naar de ordening van Aäron was?
+11. Als dan door het Levitische priesterschap de volmaaktheid *bereikt had kunnen worden* - want onder dit *priesterschap* had het volk de wet ontvangen - waarom was het *dan* nog nodig dat er een andere Priester naar de ordening van Melchizedek zou opstaan, EÃ©n van Wie niet gezegd kan worden dat Hij naar de ordening van AÃ¤ron was?
 12. Als het priesterschap verandert, vindt er immers ook noodzakelijkerwijs een verandering van de wet plaats.
 13. Want Hij van Wie deze dingen gezegd worden, behoort tot een andere stam, waarvan niemand zich *ooit* tot de altaar*dienst* begeven heeft.
 14. Het is immers overduidelijk dat onze Heere van Juda afstamt, over welke stam Mozes niets gezegd heeft in verband met het priesterschap.

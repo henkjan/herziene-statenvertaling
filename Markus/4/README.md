@@ -18,7 +18,7 @@
 17. en geen wortel in zichzelf hebben, maar zij zijn *mensen* van het ogenblik; als er later verdrukking of vervolging komt omwille van het Woord, struikelen zij meteen.
 18. En dit zijn zij bij wie in de dorens gezaaid wordt: zij horen het Woord,
 19. maar de zorgen van deze wereld en de verleiding van de rijkdom en de begeerten naar al het andere komen erbij en verstikken het Woord, en het wordt onvruchtbaar.
-20. En dit zijn zij bij wie in de goede aarde gezaaid wordt: zij horen het Woord en nemen het aan en dragen vrucht, de één dertig-, en de ander zestig-, en de ander honderd*voudig*.
+20. En dit zijn zij bij wie in de goede aarde gezaaid wordt: zij horen het Woord en nemen het aan en dragen vrucht, de Ã©Ã©n dertig-, en de ander zestig-, en de ander honderd*voudig*.
 21. Hij zei ook tegen hen: De lamp wordt toch niet binnengebracht om onder de korenmaat of onder het bed gezet te worden? *Is het* niet om op de standaard gezet te worden?
 22. Want er is niets verborgen wat niet geopenbaard zal worden; en er is niets gebeurd *om* verborgen *te blijven*, maar opdat het in het openbaar zou komen.
 23. Als iemand oren heeft om te horen, laat hij horen.

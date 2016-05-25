@@ -17,9 +17,9 @@
 16. En toen Hij bij de zee van Galilea wandelde, zag Hij Simon en Andreas, zijn broer, het net in de zee werpen, want zij waren vissers.
 17. En Jezus zei tegen hen: Kom achter Mij, en Ik zal maken dat u vissers van mensen wordt.
 18. En zij lieten meteen hun netten achter en volgden Hem.
-19. En toen Hij vandaar wat verdergegaan was, zag Hij Jakobus, de *zoon* van Zebedeüs, en Johannes, zijn broer, die in het schip de netten aan het herstellen waren.
-20. En meteen riep Hij hen, en zij lieten hun vader Zebedeüs in het schip achter met de loonarbeiders en gingen weg, Hem achterna.
-21. En zij kwamen in Kapernaüm; en op de sabbat ging Hij meteen naar de synagoge en gaf Hij onderwijs.
+19. En toen Hij vandaar wat verdergegaan was, zag Hij Jakobus, de *zoon* van ZebedeÃ¼s, en Johannes, zijn broer, die in het schip de netten aan het herstellen waren.
+20. En meteen riep Hij hen, en zij lieten hun vader ZebedeÃ¼s in het schip achter met de loonarbeiders en gingen weg, Hem achterna.
+21. En zij kwamen in KapernaÃ¼m; en op de sabbat ging Hij meteen naar de synagoge en gaf Hij onderwijs.
 22. En ze stonden versteld van Zijn onderricht, want Hij onderwees hen als gezaghebbende en niet zoals de schriftgeleerden.
 23. Nu was er in hun synagoge een man met een onreine geest, en die schreeuwde:
 24. Ga weg! Wat hebben wij met U *te maken*, Jezus de Nazarener? Bent U gekomen om ons te gronde te richten? Ik weet Wie U bent, *namelijk* de Heilige van God.
@@ -38,7 +38,7 @@
 37. en toen zij Hem gevonden hadden, zeiden zij tegen Hem: Iedereen zoekt U!
 38. En Hij zei tegen hen: Laten wij naar de naburige plaatsen gaan, opdat Ik ook daar predik, want daarvoor ben Ik uitgegaan.
 39. En Hij predikte in hun synagogen door heel Galilea en dreef de demonen uit.
-40. En er kwam een melaatse naar Hem toe, die Hem smeekte en voor Hem op de knieën viel en tegen Hem zei: Als U wilt, kunt U mij reinigen.
+40. En er kwam een melaatse naar Hem toe, die Hem smeekte en voor Hem op de knieÃ«n viel en tegen Hem zei: Als U wilt, kunt U mij reinigen.
 41. En Jezus, innerlijk met ontferming bewogen, stak Zijn hand uit, raakte hem aan en zei tegen hem: Ik wil *het*, word gereinigd!
 42. En toen Hij *dit* gezegd had, week de melaatsheid meteen van hem, en hij werd gereinigd.
 43. En nadat Hij hem streng vermaand had, stuurde Hij hem meteen weg,

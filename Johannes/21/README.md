@@ -1,6 +1,6 @@
 #Johannes 21
 1. Hierna openbaarde Jezus Zich opnieuw aan de discipelen, aan de zee van Tiberias. En Hij openbaarde Zich als volgt:
-2. Er waren bijeen Simon Petrus en Thomas, *ook* Didymus genoemd, en Nathanaël, die uit Kana in Galilea afkomstig was, en de *zonen* van Zebedeüs, en twee anderen van Zijn discipelen.
+2. Er waren bijeen Simon Petrus en Thomas, *ook* Didymus genoemd, en NathanaÃ«l, die uit Kana in Galilea afkomstig was, en de *zonen* van ZebedeÃ¼s, en twee anderen van Zijn discipelen.
 3. Simon Petrus zei tegen hen: Ik ga vissen. Zij zeiden tegen hem: Wij gaan met u mee. Zij gingen naar buiten, en gingen meteen aan boord van het schip; en in die nacht vingen zij niets.
 4. En toen het al ochtend geworden was, stond Jezus aan de oever, maar de discipelen wisten niet dat het Jezus was.
 5. Jezus dan zei tegen hen: Lieve kinderen, hebt u niet iets voor bij het eten? Zij antwoordden Hem: Nee.
@@ -9,7 +9,7 @@
 8. En de andere discipelen kwamen met het scheepje, want zij waren niet ver, slechts ongeveer tweehonderd el, van het land *verwijderd*, en sleepten het net met de vissen.
 9. Toen zij nu aan land gegaan waren, zagen zij een kolenvuur met vis daarop liggen, en brood.
 10. Jezus zei tegen hen: Breng *wat* van de vissen die u nu gevangen hebt.
-11. Simon Petrus ging ernaartoe en trok het net op het land, vol grote vissen, honderddrieënvijftig, en hoewel het er zoveel waren, scheurde het net niet.
+11. Simon Petrus ging ernaartoe en trok het net op het land, vol grote vissen, honderddrieÃ«nvijftig, en hoewel het er zoveel waren, scheurde het net niet.
 12. Jezus zei tegen hen: Kom, gebruik de middagmaaltijd. En niemand van de discipelen durfde Hem te vragen: Wie bent U? want zij wisten dat het de Heere was.
 13. Jezus dan kwam en nam het brood en gaf het hun, en de vis eveneens.
 14. Dit nu was de derde keer dat Jezus Zich aan Zijn discipelen openbaarde, nadat Hij uit de doden opgewekt was.

@@ -1,9 +1,9 @@
 #Jeremia 48
-1. Over Moab. Zo zegt de HEERE van de legermachten, de God van IsraÎl: Wee over Nebo, want het is verwoest! KirjathaÔm staat beschaamd, het is ingenomen. De veilige vesting staat beschaamd en is ontsteld. 
+1. Over Moab. Zo zegt de HEERE van de legermachten, de God van Isra√´l: Wee over Nebo, want het is verwoest! Kirjatha√Øm staat beschaamd, het is ingenomen. De veilige vesting staat beschaamd en is ontsteld. 
 2. Moabs roem is er niet meer, in Hesbon hebben zij kwaad tegen hem bedacht: Kom, laten we het uitroeien, zodat het geen volk *meer* is. Ook *u*, Madmen, zult verdelgd worden, het zwaard zal u achtervolgen. 
-3. Hoor, geschreeuw uit HoronaÔm: Verwoesting, een grote ramp! 
+3. Hoor, geschreeuw uit Horona√Øm: Verwoesting, een grote ramp! 
 4. Moab is gebroken, zijn kleine *kinderen* hebben geschreeuw laten horen. 
-5. Ja, de weg omhoog naar Luhith gaat men met voortdurend geween op. Ja, op de weg omlaag naar HoronaÔm hebben tegenstanders noodgeschrei gehoord. 
+5. Ja, de weg omhoog naar Luhith gaat men met voortdurend geween op. Ja, op de weg omlaag naar Horona√Øm hebben tegenstanders noodgeschrei gehoord. 
 6. Vlucht, red uw leven! Word als een kale struik in de woestijn. 
 7. Want vanwege uw vertrouwen op uw *vesting*werken en op uw schatten zult ook u ingenomen worden. Kamos zal in ballingschap weggaan, zijn priesters en zijn vorsten samen. 
 8. Want de verwoester zal komen naar elke stad, geen stad zal ontkomen. Het dal zal vergaan, de vlakte zal weggevaagd worden, zoals de HEERE *het* heeft gezegd. 
@@ -11,28 +11,28 @@
 10. Vervloekt wie het werk van de HEERE traag uitvoert, ja, vervloekt wie zijn zwaard bloed onthoudt. 
 11. Moab is vanaf zijn jeugd zonder zorgen geweest, en heeft *als wijn* op zijn droesem stilgelegen. Het is niet van het ene vat in het andere overgegoten: het is niet in ballingschap gegaan. Daarom heeft het zijn smaak behouden en is zijn geur niet veranderd.
 12. Daarom, zie, er komen dagen, spreekt de HEERE, dat Ik aftappers naar hem toe zal sturen om hem af te tappen. Zij zullen hun vaten leegmaken en hun kruiken stukslaan.
-13. Moab zal beschaamd worden vanwege Kamos, zoals het huis van IsraÎl beschaamd is vanwege Bethel, hun vertrouwen. 
+13. Moab zal beschaamd worden vanwege Kamos, zoals het huis van Isra√´l beschaamd is vanwege Bethel, hun vertrouwen. 
 14. Hoe kunt u zeggen: Wij zijn helden, dappere mannen, *gereed* voor de strijd? 
 15. Moab is verwoest en *uit* zijn steden opgetrokken, en de keur van hun jongemannen is afgevoerd ter slachting, spreekt de Koning - HEERE van de legermachten is Zijn Naam. 
 16. De ondergang van Moab is nabij, *die* is in aantocht, zijn onheil haast zich zeer. 
 17. Beklaag hem, allen rondom hem, allen die zijn naam kennen. Zeg: Hoe is de machtige scepter gebroken, die sierlijke staf! 
 18. Daal af uit *uw* luister, verblijf in dorst, u *die hier* woont, dochter van Dibon, want de verdelger van Moab is tegen u opgetrokken, hij heeft uw vestingen verwoest. 
-19. Ga aan de weg staan, en zie uit, inwoonster van AroÎr. Vraag hem die vlucht en haar die ontkomt, zeg: Wat is er gebeurd? 
+19. Ga aan de weg staan, en zie uit, inwoonster van Aro√´r. Vraag hem die vlucht en haar die ontkomt, zeg: Wat is er gebeurd? 
 20. Moab staat beschaamd, want het is ontsteld. Weeklaag, schreeuw het uit, maak in Arnon bekend dat Moab verwoest is.
-21. Ja, het oordeel is gekomen over het land van de vlakte, over Holon, over Jahza en over Mefa‰th,
-22. over Dibon, over Nebo en over Beth-DiblathaÔm,
-23. over KirjathaÔm, over Beth-Gamul en over Beth-Meon,
+21. Ja, het oordeel is gekomen over het land van de vlakte, over Holon, over Jahza en over Mefa√§th,
+22. over Dibon, over Nebo en over Beth-Diblatha√Øm,
+23. over Kirjatha√Øm, over Beth-Gamul en over Beth-Meon,
 24. over Kerioth en over Bozra, ja, over alle steden van het land Moab, die ver en dichtbij zijn. 
 25. De hoorn van Moab is afgehakt en zijn arm is gebroken, spreekt de HEERE.
 26. Maak hem dronken, want hij heeft zich groot gemaakt tegen de HEERE. Moab zal *met de handen* klappen in zijn braaksel, zodat het zelf ook belachelijk wordt.
-27. Of is IsraÎl voor u niet geweest *om* te belachen? Is hij aangetroffen onder dieven, dat u zo dikwijls als u over hem sprak, schudde *van het lachen*? 
+27. Of is Isra√´l voor u niet geweest *om* te belachen? Is hij aangetroffen onder dieven, dat u zo dikwijls als u over hem sprak, schudde *van het lachen*? 
 28. Verlaat de steden, woon in rotsen, inwoners van Moab. Word als een duif die nestelt in de openingen van een rotsspleet. 
 29. Wij hebben gehoord van de trots van Moab, *dat* zeer hoogmoedig is, van zijn hoogheid, zijn trots, zijn hoogmoed, en zijn hooghartigheid. 
-30. Õk ken zijn overmoed, spreekt de HEERE, zijn holle praat is niet gepast, zij doen wat niet gepast is! 
+30. √çk ken zijn overmoed, spreekt de HEERE, zijn holle praat is niet gepast, zij doen wat niet gepast is! 
 31. Daarom zal ik over Moab weeklagen, ja, het over heel Moab uitschreeuwen, om de mannen van Kir-Heres zal men zuchten. 
-32. Meer dan het bewenen van JaÎzer zal ik om u wenen, wijnstok van Sibma. Uw ranken zijn de zee overgestoken, zij hebben tot aan de zee van JaÎzer gereikt. Op uw zomervruchten en op uw wijnoogst heeft een verwoester zich geworpen. 
+32. Meer dan het bewenen van Ja√´zer zal ik om u wenen, wijnstok van Sibma. Uw ranken zijn de zee overgestoken, zij hebben tot aan de zee van Ja√´zer gereikt. Op uw zomervruchten en op uw wijnoogst heeft een verwoester zich geworpen. 
 33. Zo zijn de blijdschap en de vreugde weggenomen van het vruchtbare veld, namelijk het land Moab. De wijn uit de perskuipen heb Ik doen ophouden, men zal geen *druiven* treden onder vreugderoep, de vreugderoep zal geen vreugderoep zijn.
-34. Vanwege het geschreeuw van Hesbon, *te horen* tot aan Eleale, tot aan Jahaz, laten zij hun stem klinken, van Zoar tot aan HoronaÔm, Eglath Selisia. Want zelfs de wateren van Nimrim worden tot woestenijen. 
+34. Vanwege het geschreeuw van Hesbon, *te horen* tot aan Eleale, tot aan Jahaz, laten zij hun stem klinken, van Zoar tot aan Horona√Øm, Eglath Selisia. Want zelfs de wateren van Nimrim worden tot woestenijen. 
 35. Ik zal in Moab doen ophouden, spreekt de HEERE, wie offert *op* de hoogte en wie reukoffers brengt aan zijn goden. 
 36. Daarom klaagt mijn hart om Moab als de fluiten, ja, klaagt mijn hart om de mannen van Kir-Heres als de fluiten, omdat de overvloed *die* het verwierf, verloren is. 
 37. Want elk hoofd is kaal*geschoren*, elke baard is afgesneden, op alle handen zijn insnijdingen, om de heupen is een rouwgewaad. 

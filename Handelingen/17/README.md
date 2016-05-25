@@ -12,11 +12,11 @@
 11. En dezen waren edeler van gezindheid dan die in Thessalonica, want zij ontvingen het Woord met grote bereidwilligheid en onderzochten dagelijks de Schriften *om te zien* of die dingen zo waren.
 12. Velen dan van hen geloofden, en van de aanzienlijke Griekse vrouwen en mannen niet weinigen.
 13. Maar toen de Joden van Thessalonica te weten gekomen waren dat het Woord van God door Paulus ook in Berea verkondigd werd, kwamen zij ook daar de menigten in verwarring brengen.
-14. Maar de broeders stuurden Paulus toen meteen weg, in de richting van de zee; maar Silas en Timotheüs bleven daar achter.
-15. En zij die Paulus begeleidden, brachten hem tot aan Athene. En nadat zij opdracht gekregen hadden om Silas en Timotheüs *te zeggen* dat zij zo spoedig mogelijk naar hem toe moesten komen, vertrokken zij.
+14. Maar de broeders stuurden Paulus toen meteen weg, in de richting van de zee; maar Silas en TimotheÃ¼s bleven daar achter.
+15. En zij die Paulus begeleidden, brachten hem tot aan Athene. En nadat zij opdracht gekregen hadden om Silas en TimotheÃ¼s *te zeggen* dat zij zo spoedig mogelijk naar hem toe moesten komen, vertrokken zij.
 16. En terwijl Paulus in Athene op hen wachtte, raakte zijn geest in hem geprikkeld, want hij zag dat de stad vol afgodsbeelden stond.
 17. Hij ging dan in de synagoge in gesprek met de Joden en met hen die godvrezend waren, en iedere dag op de markt met hen die hij *er* tegenkwam.
-18. En enige epicurische en stoïsche wijsgeren raakten met hem in een twistgesprek. En sommigen zeiden: Wat zou deze praatjesmaker toch willen zeggen? Maar anderen *zeiden*: Hij schijnt een verkondiger te zijn van vreemde goden; want hij verkondigde hun Jezus en de opstanding.
+18. En enige epicurische en stoÃ¯sche wijsgeren raakten met hem in een twistgesprek. En sommigen zeiden: Wat zou deze praatjesmaker toch willen zeggen? Maar anderen *zeiden*: Hij schijnt een verkondiger te zijn van vreemde goden; want hij verkondigde hun Jezus en de opstanding.
 19. En zij namen hem *mee* en brachten *hem* op de Areopagus, en zij zeiden: Mogen wij weten wat die nieuwe leer inhoudt waar u over spreekt?
 20. Want u laat ons enkele vreemde dingen horen; wij willen daarom weten wat die te betekenen hebben.
 21. (Alle inwoners nu van Athene en de vreemdelingen die daar verbleven, besteedden *hun* tijd aan niets anders dan om wat nieuws te zeggen en te horen).
@@ -24,7 +24,7 @@
 23. Want toen ik *de stad* doorging en uw heiligdommen bekeek, trof ik ook een altaar aan waarop het opschrift stond: AAN EEN ONBEKENDE GOD. Deze dan, Die u dient zonder dat u Hem kent, verkondig ik u.
 24. De God Die de wereld gemaakt heeft en alles wat daarin is, Deze, Die een Heere van de hemel en van de aarde is, woont niet in tempels die met handen gemaakt zijn.
 25. Hij wordt ook door mensenhanden niet gediend alsof Hij iets nodig heeft, omdat Hij Zelf aan allen het leven, de adem en alle dingen geeft.
-26. En Hij maakte uit één bloed heel het menselijke geslacht om op heel de aardbodem te wonen; en Hij heeft de hun van tevoren toegemeten tijden bepaald, en de grenzen van hun woongebied,
+26. En Hij maakte uit Ã©Ã©n bloed heel het menselijke geslacht om op heel de aardbodem te wonen; en Hij heeft de hun van tevoren toegemeten tijden bepaald, en de grenzen van hun woongebied,
 27. opdat zij de Heere zouden zoeken, of zij Hem misschien al tastend zouden mogen vinden, hoewel Hij niet ver is van ieder van ons.
 28. Want in Hem leven wij, bewegen wij ons en bestaan wij; zoals ook enkele van uw dichters gezegd hebben: Want wij zijn ook van Zijn geslacht.
 29. Wij nu, die van Gods geslacht zijn, moeten niet denken dat de Godheid gelijk is aan goud, zilver of steen, een product van de kunstzinnigheid en gedachten van een mens.

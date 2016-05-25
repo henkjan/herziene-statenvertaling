@@ -1,7 +1,7 @@
 #Hooglied 1
 1. Het Hooglied, dat van Salomo is. 
 2. Laat Hij mij kussen met de kussen van Zijn mond, want Uw uitnemende liefde is beter dan wijn. 
-3. Uw *zalf*oliën zijn heerlijk van geur, Uw Naam is een uitgegoten *zalf*olie. Daarom hebben de meisjes U lief. 
+3. Uw *zalf*oliÃ«n zijn heerlijk van geur, Uw Naam is een uitgegoten *zalf*olie. Daarom hebben de meisjes U lief. 
 4. Trek mij mee, wij zullen achter U aan snellen. De Koning heeft mij gebracht in Zijn binnenkamers. Laten wij ons verheugen en ons in U verblijden, laten wij Uw uitnemende liefde in herinnering roepen boven de wijn. Met recht hebben zij U lief. 
 5. Donker *van huid* ben ik, maar bekoorlijk, dochters van Jeruzalem, als de tenten van Kedar, als de tentkleden van Salomo. 
 6. Zie niet op mij neer omdat ik donker ben, want de zon heeft mij beschenen. De zonen van mijn moeder ontstaken tegen mij *in woede*, zij maakten mij tot bewaakster van de wijngaarden. Mijn eigen wijngaard heb ik niet bewaakt. 

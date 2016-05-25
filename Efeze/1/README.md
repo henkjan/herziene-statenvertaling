@@ -2,7 +2,7 @@
 1. Paulus, een apostel van Jezus Christus door de wil van God, aan de heiligen en gelovigen in Christus Jezus die in Efeze zijn:
 2. genade *zij* u en vrede van God, onze Vader, en van de Heere Jezus Christus.
 3. Gezegend zij de God en Vader van onze Heere Jezus Christus, Die ons gezegend heeft met alle geestelijke zegen in de hemelse gewesten in Christus,
-4. omdat Hij ons vóór de grondlegging van de wereld in Hem uitverkoren heeft, opdat wij heilig en smetteloos voor Hem zouden zijn in de liefde.
+4. omdat Hij ons vÃ³Ã³r de grondlegging van de wereld in Hem uitverkoren heeft, opdat wij heilig en smetteloos voor Hem zouden zijn in de liefde.
 5. Hij heeft ons voorbestemd om als *Zijn* kinderen aangenomen te worden, door Jezus Christus, in Zichzelf, overeenkomstig het welbehagen van Zijn wil,
 6. tot lof van de heerlijkheid van Zijn genade, waarmee Hij ons begenadigd heeft in de Geliefde.
 7. In Hem hebben wij de verlossing, door Zijn bloed, *namelijk* de vergeving van de overtredingen, overeenkomstig de rijkdom van Zijn genade,

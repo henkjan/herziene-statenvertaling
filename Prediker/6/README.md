@@ -6,7 +6,7 @@
 5. Ook heeft hij de zon niet gezien of gekend: Hij heeft meer rust dan die *man*. 
 6. Ja, al leefde hij tweemaal duizend jaar, maar hij had het goede niet gezien - gaan zij niet allen naar een *en* dezelfde plaats? 
 7. Al het zwoegen van de mens is voor zijn mond en toch wordt de begeerte niet vervuld. 
-8. Wat heeft immers de wijze vóór op de dwaas? Wat baat het de arme dat hij weet met de levenden om te gaan? 
+8. Wat heeft immers de wijze vÃ³Ã³r op de dwaas? Wat baat het de arme dat hij weet met de levenden om te gaan? 
 9. Beter is het zien van de ogen dan het gaan *in de weg van* de begeerte. Ook dat is vluchtig en najagen van wind.
 10. Wat iemand ook is, zijn naam is al genoemd. Het is bekend dat hij een mens is. Hij kan niet in het geding treden tegen Hem Die sterker is dan hij.
 11. Immers, hoe meer woorden er zijn, hoe meer vluchtigheid. Wat baat het de mens *dan nog*?

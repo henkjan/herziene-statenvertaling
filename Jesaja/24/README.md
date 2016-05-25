@@ -10,10 +10,10 @@
 9. Zij zullen geen wijn *meer* drinken onder gezang, sterkedrank zal bitter zijn voor wie hem drinken. 
 10. Gebroken is Chaos-stad, gesloten zijn alle huizen, niemand kan erin. 
 11. Op straat is er gejammer over de wijn; alle blijdschap is ondergegaan, de vreugde uit het land is verdwenen. 
-12. In de stad is verwoesting overgebleven, een ruïne; de poort is verbrijzeld. 
+12. In de stad is verwoesting overgebleven, een ruÃ¯ne; de poort is verbrijzeld. 
 13. Want het zal op de aarde, te midden van de volken, zo gaan als bij het afschudden van een olijfboom, als bij de nalezing wanneer de wijnoogst ten einde is. 
-14. Zíj zullen hun stem verheffen, zij zullen vrolijk zingen; om de heerlijkheid van de HEERE zullen zij juichen, van de zee af. 
-15. Eer daarom de HEERE in *de landen van* het licht, op de eilanden in de zee de Naam van de HEERE, de God van Israël. 
+14. ZÃ­j zullen hun stem verheffen, zij zullen vrolijk zingen; om de heerlijkheid van de HEERE zullen zij juichen, van de zee af. 
+15. Eer daarom de HEERE in *de landen van* het licht, op de eilanden in de zee de Naam van de HEERE, de God van IsraÃ«l. 
 16. Vanaf het uiterste einde der aarde horen wij psalmen *tot* verheerlijking van de Rechtvaardige. Maar ik zeg: Ik kwijn weg, ik kwijn weg, wee mij! De trouwelozen handelen trouweloos, in ontrouw handelen de trouwelozen trouweloos. 
 17. Angst, valkuil en strik over u, bewoners van de aarde! 
 18. En het zal gebeuren dat wie vlucht voor het beangstigende geluid, neervallen zal in de valkuil; en wie opklimt uit het midden van de valkuil, gevangen zal worden in de strik. Want de sluizen in de hoogte worden geopend en de fundamenten van de aarde zullen beven. 

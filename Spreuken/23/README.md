@@ -9,7 +9,7 @@
 8. Uw stuk *brood*, dat u gegeten hebt, zou u uitspuwen, uw aangename woorden zou u verspillen. 
 9. Spreek niet ten aanhoren van een dwaas, want hij zal het verstand in uw woorden verachten. 
 10. Verleg de aloude grens*stenen* niet en kom niet op de akkers van wezen, 
-11. want hun Verlosser is sterk, Híj zal hun rechtszaak met u voeren. 
+11. want hun Verlosser is sterk, HÃ­j zal hun rechtszaak met u voeren. 
 12. Laat uw hart tot vermaning komen en uw oor tot woorden van kennis. 
 13. Onthoud een jongeman geen vermaning, als u hem met de stok slaat, zal hij niet sterven. 
 14. Zelf moet u hem met de stok slaan en zijn leven redden van het graf. 

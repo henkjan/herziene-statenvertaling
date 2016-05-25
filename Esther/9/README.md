@@ -27,7 +27,7 @@
 26. Daarom noemt men die dagen Purim, vanwege de naam van het 'pur'. Daarom, vanwege al de woorden van deze brief, en om wat zij daarvan *zelf* gezien hadden, en wat hun overkomen was,
 27. stelden de Joden vast en namen zij *de verplichting* op zich, voor zichzelf, voor hun nageslacht en voor allen die zich bij hen zouden aansluiten, dat ze nooit het vieren van deze twee dagen zouden overslaan, volgens het voorschrift daarover, en op de vastgestelde tijd, ieder jaar.
 28. Deze dagen zouden herdacht en gevierd worden door elke generatie, elk gezin, elk gewest en elke stad. Deze dagen van Purim zou men niet overslaan onder de Joden, en bij hun nageslacht mocht aan de herdenking daarvan geen einde komen.
-29. Daarna schreef koningin Esther, de dochter van Abichaïl, samen met de Jood Mordechai, met al *hun* gezag, om deze brief over Purim voor de tweede keer te bekrachtigen.
+29. Daarna schreef koningin Esther, de dochter van AbichaÃ¯l, samen met de Jood Mordechai, met al *hun* gezag, om deze brief over Purim voor de tweede keer te bekrachtigen.
 30. En *Mordechai* zond de brieven aan al de Joden in de honderdzevenentwintig gewesten van het koninkrijk van Ahasveros, met woorden van vrede en trouw,
 31. om deze dagen van Purim te bekrachtigen op hun vastgestelde tijden, zoals de Jood Mordechai en koningin Esther voor hen vastgesteld hadden en zoals zij voor zichzelf en voor hun nageslacht de zaken over het vasten en hun weeklagen vastgesteld hadden.
 32. Het bevel van Esther stelde de zaken met betrekking tot dit Purim vast, en het werd in een boek geschreven.

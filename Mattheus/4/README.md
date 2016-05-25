@@ -11,7 +11,7 @@
 10. Toen zei Jezus tegen hem: Ga weg, satan, want er staat geschreven: De Heere, uw God, zult u aanbidden en Hem alleen dienen.
 11. Toen liet de duivel Hem gaan; en zie, engelen kwamen en dienden Hem.
 12. Toen Jezus gehoord had dat Johannes overgeleverd was, keerde Hij terug naar Galilea.
-13. Hij verliet Nazareth en ging wonen in Kapernaüm, dat aan de zee lag, in het gebied van Zebulon en Naftali,
+13. Hij verliet Nazareth en ging wonen in KapernaÃ¼m, dat aan de zee lag, in het gebied van Zebulon en Naftali,
 14. opdat vervuld zou worden wat door de profeet Jesaja gesproken werd toen hij zei:
 15. Land Zebulon en land Naftali, gebied aan *de* weg naar de zee en over de Jordaan, Galilea van de volken,
 16. het volk dat in duisternis zat, heeft een groot licht gezien; en voor hen die zaten in het land en de schaduw van de dood, is een licht opgegaan.
@@ -19,8 +19,8 @@
 18. En Jezus liep langs de zee van Galilea en zag twee broers, *namelijk* Simon, die Petrus genoemd wordt, en zijn broer Andreas, het net in de zee werpen, want zij waren vissers.
 19. En Hij zei tegen hen: Kom achter Mij, en Ik zal u vissers van mensen maken.
 20. Zij lieten meteen de netten achter en volgden Hem.
-21. Hij ging vandaar verder en zag twee andere broers, *namelijk* Jakobus, de *zoon* van Zebedeüs, en Johannes, zijn broer, in het schip met hun vader Zebedeüs, terwijl zij hun netten aan het herstellen waren, en Hij riep hen.
+21. Hij ging vandaar verder en zag twee andere broers, *namelijk* Jakobus, de *zoon* van ZebedeÃ¼s, en Johannes, zijn broer, in het schip met hun vader ZebedeÃ¼s, terwijl zij hun netten aan het herstellen waren, en Hij riep hen.
 22. Zij lieten meteen het schip en hun vader achter en volgden Hem.
 23. En Jezus trok rond in heel Galilea, gaf onderwijs in hun synagogen en predikte het Evangelie van het Koninkrijk, en Hij genas elke ziekte en elke kwaal onder het volk.
-24. En het gerucht over Hem verspreidde zich over heel Syrië; en zij brachten bij Hem allen die er slecht aan toe waren en door allerlei ziekten en pijnen bevangen waren, en die door demonen bezeten waren, en maanzieken en verlamden; en Hij genas hen.
+24. En het gerucht over Hem verspreidde zich over heel SyriÃ«; en zij brachten bij Hem allen die er slecht aan toe waren en door allerlei ziekten en pijnen bevangen waren, en die door demonen bezeten waren, en maanzieken en verlamden; en Hij genas hen.
 25. En grote menigten volgden Hem, uit Galilea en Dekapolis, uit Jeruzalem en Judea, en *van* over de Jordaan.

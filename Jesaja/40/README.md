@@ -24,8 +24,8 @@
 23. Hij is het Die vorsten maakt tot niets, rechters van de aarde maakt tot leegheid. 
 24. Ja, zij zijn niet geplant, ja, zij zijn niet gezaaid, ja, hun *afgehouwen* stronk wortelt niet in de aarde. Ook als Hij op hen zal blazen, zullen zij verdorren, en een storm neemt hen weg als stoppels. 
 25. Met wie zou u Mij willen vergelijken, of aan wie ben Ik gelijk? zegt de Heilige. 
-26. Sla uw ogen op naar omhoog, en zie Wie deze dingen geschapen heeft; Hij is het Die hun leger voltallig tevoorschijn brengt, ze alle bij name roept door *Zijn* grote vermogen en *Zijn* sterke kracht; er ontbreekt er niet één. 
-27. Waarom zegt u *dan*, Jakob, en spreekt u, Israël: Mijn weg is voor de HEERE verborgen en mijn recht gaat aan mijn God voorbij? 
+26. Sla uw ogen op naar omhoog, en zie Wie deze dingen geschapen heeft; Hij is het Die hun leger voltallig tevoorschijn brengt, ze alle bij name roept door *Zijn* grote vermogen en *Zijn* sterke kracht; er ontbreekt er niet Ã©Ã©n. 
+27. Waarom zegt u *dan*, Jakob, en spreekt u, IsraÃ«l: Mijn weg is voor de HEERE verborgen en mijn recht gaat aan mijn God voorbij? 
 28. Weet u het niet? Hebt u het niet gehoord? De eeuwige God, de HEERE, de Schepper van de einden der aarde, wordt niet moe en niet afgemat. Er is geen doorgronding van Zijn inzicht. 
 29. Hij geeft de vermoeide kracht en Hij vermeerdert de sterkte van wie geen krachten heeft. 
 30. Jongeren zullen moe en afgemat worden, jonge mannen zullen zeker struikelen; 

@@ -1,10 +1,10 @@
 #Job 32
 1. Toen hielden deze drie mannen op Job te antwoorden, omdat hij in zijn *eigen* ogen rechtvaardig was.
-2. Toen ontstak de woede van Elihu, de zoon van Baracheël, de Buziet, uit het geslacht van Ram. Tegen Job ontstak zijn woede, omdat die zichzelf rechtvaardigde tegenover God.
+2. Toen ontstak de woede van Elihu, de zoon van BaracheÃ«l, de Buziet, uit het geslacht van Ram. Tegen Job ontstak zijn woede, omdat die zichzelf rechtvaardigde tegenover God.
 3. Zijn woede ontstak ook tegen zijn drie vrienden, omdat zij geen antwoord vonden, maar Job *toch* schuldig verklaarden.
 4. Maar Elihu had met spreken gewacht op Job, omdat zij ouder van dagen waren dan hij.
 5. Toen Elihu echter zag dat er geen antwoord was in de mond van die drie mannen, ontstak zijn woede.
-6. Daarom antwoordde Elihu, de zoon van Baracheël, de Buziet, en zei: Ik ben jonger van dagen, maar jullie zijn stokoud; daarom was ik beschroomd en bevreesd om jullie mijn gevoelen te vertellen. 
+6. Daarom antwoordde Elihu, de zoon van BaracheÃ«l, de Buziet, en zei: Ik ben jonger van dagen, maar jullie zijn stokoud; daarom was ik beschroomd en bevreesd om jullie mijn gevoelen te vertellen. 
 7. Ik zei: Laat de dagen spreken, en de veelheid van jaren wijsheid bekendmaken. 
 8. Voorwaar, het is de Geest *van God* in de sterveling, en de adem van de Almachtige, die hen verstandig maakt. 
 9. Niet de velen *van jaren* zijn wijs, *niet* de oude mensen begrijpen het recht. 

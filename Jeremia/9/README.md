@@ -12,8 +12,8 @@
 11. Ik zal van Jeruzalem steenhopen maken, een verblijf*plaats* van jakhalzen, Ik zal van de steden van Juda een woestenij maken, zodat niemand er *meer* woont.
 12. Wie is de wijze man die dit begrijpt, tot wie de mond van de HEERE heeft gesproken, dat hij het bekend kan maken? Waarom is het land vergaan, verwoest als de woestijn, zodat niemand erdoorheen trekt?
 13. De HEERE zegt: Omdat zij Mijn wet verlaten hebben die Ik hun had voorgehouden, en niet geluisterd hebben naar Mijn stem en daarnaar niet hebben gewandeld,
-14. maar achter hun verharde hart aan gegaan zijn en achter de Baäls aan, zoals hun vaderen hun dat geleerd hadden,
-15. daarom, zo zegt de HEERE van de legermachten, de God van Israël: Zie, Ik geef hun, dit volk, alsem te eten en galwater te drinken.
+14. maar achter hun verharde hart aan gegaan zijn en achter de BaÃ¤ls aan, zoals hun vaderen hun dat geleerd hadden,
+15. daarom, zo zegt de HEERE van de legermachten, de God van IsraÃ«l: Zie, Ik geef hun, dit volk, alsem te eten en galwater te drinken.
 16. Ik zal hen verspreiden onder de heidenvolken, die zij en hun vaderen niet gekend hebben. Ik zal het zwaard achter hen aan zenden, tot Ik aan hen een einde zal gemaakt hebben. 
 17. Zo zegt de HEERE van de legermachten: Let op en roep de klaagvrouwen, dat ze komen, stuur *boden* naar de kundige *vrouwen*, dat zij komen, 
 18. en laten zij zich haasten en over ons een rouwklacht aanheffen, zodat de tranen *uit* onze ogen naar beneden stromen, en onze oogleden van water vloeien. 
@@ -24,4 +24,4 @@
 23. Zo zegt de HEERE: Laat een wijze zich niet beroemen op zijn wijsheid, laat de held zich niet beroemen op zijn sterkte, laat een rijke zich niet beroemen op zijn rijkdom. 
 24. Maar laat wie zich beroemt, zich daarop beroemen dat hij begrijpt en Mij kent dat Ik de HEERE ben, Die goedertierenheid bewijs, recht en gerechtigheid op de aarde *doe*, want in die dingen vind Ik vreugde, spreekt de HEERE.
 25. Zie, er komen dagen, spreekt de HEERE, dat Ik elke besnedene en die de voorhuid heeft, zal straffen, *namelijk*
-26. Egypte en Juda, Edom en de Ammonieten, Moab en allen die kaalgeschoren zijn aan *hun* slapen, die in de woestijn wonen. Want alle heidenvolken zijn onbesneden, maar heel het huis van Israël is onbesneden van hart.
+26. Egypte en Juda, Edom en de Ammonieten, Moab en allen die kaalgeschoren zijn aan *hun* slapen, die in de woestijn wonen. Want alle heidenvolken zijn onbesneden, maar heel het huis van IsraÃ«l is onbesneden van hart.

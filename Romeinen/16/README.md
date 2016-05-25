@@ -1,5 +1,5 @@
 #Romeinen 16
-1. En ik beveel u Febe, onze zuster, aan, die een dienares is van de gemeente die in Kenchreeën is,
+1. En ik beveel u Febe, onze zuster, aan, die een dienares is van de gemeente die in KenchreeÃ«n is,
 2. opdat u haar ontvangt in de Heere op een wijze die de heiligen waardig is, en haar bijstaat in elke zaak waarin zij u nodig heeft, want ook zij heeft zelf bijstand verleend aan velen, ook aan mijzelf.
 3. Groet Priscilla en Aquila, mijn medearbeiders in Christus Jezus.
 4. Zij hebben voor mijn leven hun hals gewaagd. Niet alleen ik ben hun dankbaar, maar ook alle gemeenten van de heidenen.
@@ -19,7 +19,7 @@
 18. Want zulke *mensen* dienen niet onze Heere Jezus Christus, maar hun eigen buik, en door fraaie woorden en mooie praat bedriegen zij de harten van de argeloze *mensen*.
 19. Want uw gehoorzaamheid is tot allen doorgedrongen. Ik verblijd mij dan ook over u en ik wil dat u wijs bent wat het goede betreft, maar *ook* oprecht wat het kwade betreft.
 20. En de God van de vrede zal de satan spoedig onder uw voeten verpletteren. De genade van onze Heere Jezus Christus zij met u. Amen.
-21. U groeten Timotheüs, mijn medearbeider, en Lucius en Jason en Socipater, mijn familieleden.
+21. U groeten TimotheÃ¼s, mijn medearbeider, en Lucius en Jason en Socipater, mijn familieleden.
 22. Ik, Tertius, die de brief geschreven heb, groet u in de Heere.
 23. Gajus, de gastheer van mij en van de hele gemeente, groet u. Erastus, de rentmeester van de stad, en de broeder Quartus groeten u.
 24. De genade van onze Heere Jezus Christus zij met u allen. Amen.

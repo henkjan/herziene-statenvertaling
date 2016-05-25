@@ -4,7 +4,7 @@
 3. Red mij van wie onrecht bedrijven, verlos mij van de mannen van bloed. 
 4. Want zie, zij leggen een hinderlaag voor mijn ziel, sterke *mannen* scholen tegen mij samen, HEERE, zonder overtreding of zonde van mijn *kant*; 
 5. zij komen aansnellen en maken zich gereed, zonder misdaad *van mijn kant*. Word wakker, *kom* mij tegemoet, en zie. 
-6. Ja U, HEERE, God van de legermachten, God van Israël, ontwaak om al deze heidenvolken te straffen; wees niemand genadig van wie trouweloos onrecht bedrijven. [ Sela] 
+6. Ja U, HEERE, God van de legermachten, God van IsraÃ«l, ontwaak om al deze heidenvolken te straffen; wees niemand genadig van wie trouweloos onrecht bedrijven. [ Sela] 
 7. Tegen de avond keren zij terug, zij grommen als honden en trekken de stad rond. 
 8. Zie, hun mond vloeit over; zwaarden komen van hun lippen. Want, *denken zij*, wie hoort het? 
 9. Maar U, HEERE, U lacht om hen, U bespot alle heidenvolken. 

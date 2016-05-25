@@ -2,7 +2,7 @@
 1. Maar Job antwoordde en zei: 
 2. Ik heb al vaak dergelijke dingen gehoord, jullie zijn allemaal moeitevolle vertroosters. 
 3. Is er een einde aan de woorden van wind? Of wat maakt jullie *zo* stellig als jullie antwoord geven? 
-4. Zou ík ook spreken zoals jullie, als jullie ziel in de plaats van mijn ziel was? Zou ik woorden aaneenrijgen tegen jullie, en zou ik mijn hoofd over jullie schudden? 
+4. Zou Ã­k ook spreken zoals jullie, als jullie ziel in de plaats van mijn ziel was? Zou ik woorden aaneenrijgen tegen jullie, en zou ik mijn hoofd over jullie schudden? 
 5. Ik zou jullie met mijn mond bemoedigen; medelijden zou mijn lippen inhouden. 
 6. Als ik *echter* spreek, wordt mijn leed niet verzacht; en *als* ik ophoud, wat gaat er *dan* van mij weg? 
 7. Zeker, nu heeft Hij mij laten bezwijken. U hebt heel mijn gemeenschap verwoest. 

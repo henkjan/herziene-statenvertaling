@@ -1,6 +1,6 @@
 #Psalmen 24
 1. Een psalm van David. De aarde is van de HEERE en al wat zij bevat, de wereld en wie er wonen. 
-2. Want Híj heeft haar gegrondvest op de zeeën en haar vastgezet op de rivieren. 
+2. Want HÃ­j heeft haar gegrondvest op de zeeÃ«n en haar vastgezet op de rivieren. 
 3. Wie zal de berg van de HEERE beklimmen? Wie zal staan in Zijn heilige plaats? 
 4. Wie rein is van handen en zuiver van hart, wie zijn ziel niet opheft tot wat vals is, en niet bedrieglijk zweert. 
 5. Hij zal zegen ontvangen van de HEERE en gerechtigheid van de God van zijn heil. 

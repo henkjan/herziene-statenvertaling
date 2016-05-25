@@ -5,7 +5,7 @@
 4. Gezegend zal zijn de vrucht van uw schoot, de vrucht van uw land en de vrucht van uw vee, de dracht van uw koeien en de jongen van uw kleinvee.
 5. Gezegend zal zijn uw korf en uw baktrog.
 6. Gezegend zult u zijn bij uw komen, gezegend zult u zijn bij uw weggaan.
-7. De HEERE zal geven dat uw vijanden die u aanvallen, door u verslagen worden; over één weg zullen zij tegen u uittrekken, maar over zeven wegen zullen zij voor u wegvluchten.
+7. De HEERE zal geven dat uw vijanden die u aanvallen, door u verslagen worden; over Ã©Ã©n weg zullen zij tegen u uittrekken, maar over zeven wegen zullen zij voor u wegvluchten.
 8. De HEERE zal de zegen over u gebieden in uw schuren en in alles wat u ter hand neemt. Hij zal u zegenen in het land dat de HEERE, uw God, u geeft.
 9. De HEERE zal u voor Zichzelf bevestigen tot een heilig volk, zoals Hij u gezworen heeft, als u de geboden van de HEERE, uw God, in acht neemt en in Zijn wegen gaat.
 10. En alle volken van de aarde zullen zien dat de Naam van de HEERE over u uitgeroepen is, en zij zullen voor u bevreesd zijn.
@@ -23,7 +23,7 @@
 22. De HEERE zal u treffen met tering, koorts en ontsteking, met hitte en droogte, en met korenbrand en meeldauw, die u achtervolgen zullen totdat u omkomt.
 23. Uw hemel, die boven uw hoofd is, zal van brons zijn, en de aarde, die onder u is, zal van ijzer zijn.
 24. De HEERE zal stuifzand en stof geven als regen voor uw land. Uit de hemel zal het op u neerdalen, totdat u weggevaagd bent.
-25. De HEERE zal geven dat u door uw vijanden verslagen wordt; over één weg zult u tegen hen uittrekken, maar over zeven wegen zult u voor hem wegvluchten. U zult een schrikbeeld worden voor alle koninkrijken van de aarde.
+25. De HEERE zal geven dat u door uw vijanden verslagen wordt; over Ã©Ã©n weg zult u tegen hen uittrekken, maar over zeven wegen zult u voor hem wegvluchten. U zult een schrikbeeld worden voor alle koninkrijken van de aarde.
 26. Uw dode lichaam zal voedsel zijn voor alle vogels in de lucht en voor de dieren op de aarde, en niemand zal ze schrik aanjagen.
 27. De HEERE zal u treffen met zweren van Egypte, met gezwellen, met uitslag en schurft waarvan u niet genezen kunt worden.
 28. De HEERE zal u treffen met krankzinnigheid, met blindheid en met verdwaasdheid van hart.
@@ -33,7 +33,7 @@
 32. Uw zonen en uw dochters zullen aan een ander volk gegeven worden; uw ogen moeten het aanzien en zullen de hele dag naar hen smachten; maar u zult niet bij machte zijn *iets te doen*.
 33. Een volk dat u niet kent, zal de vrucht van uw land en heel uw arbeid opeten. U zult alle dagen alleen maar onderdrukt en uitgebuit worden.
 34. U zult krankzinnig worden vanwege het schouwspel dat uw ogen zien.
-35. De HEERE zal u treffen met vreselijke zweren, aan de knieën en aan de benen, waarvan u niet genezen kunt worden, vanaf uw voetzool tot aan uw schedel.
+35. De HEERE zal u treffen met vreselijke zweren, aan de knieÃ«n en aan de benen, waarvan u niet genezen kunt worden, vanaf uw voetzool tot aan uw schedel.
 36. De HEERE zal u en de koning die u over uzelf aangesteld hebt, naar een volk brengen dat u zelf niet kende, en *ook* uw vaderen *niet*. Daar zult u andere goden dienen, hout en steen.
 37. U zult een verschrikking, een spreekwoord en een voorwerp van spot zijn onder al de volken waar de HEERE u naartoe voeren zal.
 38. U zult veel zaad naar de akker brengen, maar weinig inzamelen, want de sprinkhaan zal het opvreten.

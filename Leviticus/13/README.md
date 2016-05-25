@@ -1,6 +1,6 @@
 #Leviticus 13
-1. De HEERE sprak tot Mozes en tot Aäron:
-2. Wanneer er op de huid van het lichaam van een mens een zwelling of zweer of witte vlek verschijnt, die op de huid van zijn lichaam tot de ziekte van de melaatsheid kan leiden, dan moet hij naar de priester Aäron of naar een van zijn zonen, de priesters, gebracht worden.
+1. De HEERE sprak tot Mozes en tot AÃ¤ron:
+2. Wanneer er op de huid van het lichaam van een mens een zwelling of zweer of witte vlek verschijnt, die op de huid van zijn lichaam tot de ziekte van de melaatsheid kan leiden, dan moet hij naar de priester AÃ¤ron of naar een van zijn zonen, de priesters, gebracht worden.
 3. Daarop moet de priester de aangetaste plek op de huid van het lichaam bezien. Als het haar op de aangetaste plek wit geworden is, en de aangetaste plek zichtbaar dieper ligt dan de huid van zijn lichaam, *dan* is het de ziekte van de melaatsheid. Als de priester hem bezien heeft, dan moet hij hem onrein verklaren.
 4. Maar als de vlek op de huid van zijn lichaam wit is en niet zichtbaar dieper ligt dan de huid, en het haar erop niet wit geworden is, dan moet de priester de aangetaste zeven dagen afzonderen.
 5. Heeft de priester hem nu op de zevende dag bezien en zie, de aangetaste plek is in zijn ogen onveranderd gebleven - de aangetaste plek op de huid heeft zich niet uitgebreid - dan moet de priester hem opnieuw zeven dagen afzonderen.

@@ -10,8 +10,8 @@
 9. En zij hadden borstharnassen van ijzer, en het geluid van hun vleugels was als het geluid van wagens met veel paarden die ten strijde snellen.
 10. En zij hadden staarten die leken op schorpioenen, en er zaten angels aan hun staarten. En zij hadden de macht om de mensen schade toe te brengen, vijf maanden *lang*.
 11. En zij hadden een koning over zich, de engel van de afgrond. Zijn naam is in het Hebreeuws Abaddon, en in het Grieks heeft hij de naam Apollyon.
-12. Het ene wee is voorbijgegaan. Zie, nog twee weeën komen hierna.
-13. En de zesde engel blies op de bazuin, en ik hoorde uit de vier horens van het gouden altaar dat vóór God stond, één stem *komen*.
+12. Het ene wee is voorbijgegaan. Zie, nog twee weeÃ«n komen hierna.
+13. En de zesde engel blies op de bazuin, en ik hoorde uit de vier horens van het gouden altaar dat vÃ³Ã³r God stond, Ã©Ã©n stem *komen*.
 14. Die zei tegen de zesde engel die de bazuin had: Maak de vier engelen los die gebonden zijn bij de grote rivier, de Eufraat.
 15. En de vier engelen werden losgemaakt. Zij waren in gereedheid gehouden tegen het uur en de dag en de maand en het jaar dat zij het derde deel van de mensen zouden doden.
 16. En het aantal bereden troepen bedroeg tweemaal tienduizend maal tienduizend, en ik hoorde hun aantal.

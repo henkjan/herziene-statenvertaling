@@ -7,4 +7,4 @@
 6. Als men tegen hem zegt: Wat betekenen deze wonden aan uw handen? Dan zal hij zeggen: Dat ik geslagen ben *in* het huis van hen die mij liefhebben.
 7. Zwaard, ontwaak tegen Mijn Herder en tegen de Man Die Mijn Metgezel is, spreekt de HEERE van de legermachten. Sla die Herder en de schapen zullen overal verspreid worden. *Maar* Ik zal Mijn hand tot de kleinen wenden. 
 8. Het zal gebeuren, spreekt de HEERE, dat in heel het land twee *derde* ervan uitgeroeid zal worden *en* de geest zal geven, en een derde ervan zal overblijven. 
-9. Ik zal dat derde *deel* in het vuur brengen en het louteren, zoals men zilver loutert. Ik zal het beproeven, zoals men goud beproeft. Het zal Mijn Naam aanroepen en Õk zal het verhoren. Ik zal zeggen: Dit is Mijn volk; en zij zullen zeggen: De HEERE is mijn God.
+9. Ik zal dat derde *deel* in het vuur brengen en het louteren, zoals men zilver loutert. Ik zal het beproeven, zoals men goud beproeft. Het zal Mijn Naam aanroepen en √çk zal het verhoren. Ik zal zeggen: Dit is Mijn volk; en zij zullen zeggen: De HEERE is mijn God.

@@ -1,6 +1,6 @@
 #Amos 8
 1. Dit heeft de Heere HEERE mij laten zien, en zie: een korf met zomervruchten.
-2. Toen zei Hij: Wat ziet u, Amos? Ik zei: Een korf met zomervruchten. Daarop zei de HEERE tegen mij: Het einde is gekomen voor Mijn volk Israël: Ik zal het niet langer voorbijgaan. 
+2. Toen zei Hij: Wat ziet u, Amos? Ik zei: Een korf met zomervruchten. Daarop zei de HEERE tegen mij: Het einde is gekomen voor Mijn volk IsraÃ«l: Ik zal het niet langer voorbijgaan. 
 3. De tempelliederen zullen klagend klinken op die dag, spreekt de Heere HEERE. Talrijk zullen de dode lichamen zijn. Op elke plaats werpt men ze zwijgend weg.
 4. Hoor dit, *u*, die de armen vertrapt, en *eropuit bent* om de zachtmoedigen van het land weg te doen,
 5. door te zeggen: Wanneer is de nieuwemaansdag voorbij, zodat wij graan kunnen verkopen? En de sabbat, zodat wij de korenschuren kunnen openen? U maakt de efa kleiner, de sikkel groter, en u bedriegt met valse weegschalen.

@@ -8,7 +8,7 @@
 7. Toen ging de satan weg van het aangezicht van de HEERE en hij trof Job met vreselijke zweren, van zijn voetzool af tot aan zijn schedel.
 8. En *Job* nam een potscherf om zich daarmee te krabben, terwijl hij midden in de as zat.
 9. Toen zei zijn vrouw tegen hem: Houd je nog steeds vast aan je vroomheid? Zeg God vaarwel en sterf.
-10. Maar hij zei tegen haar: Je spreekt zoals ÈÈn van de dwaze vrouwen spreekt. Zouden wij het goede wel van God ontvangen en zouden we het kwade niet ontvangen? In dit alles zondigde Job met zijn lippen niet.
-11. Toen de drie vrienden van Job van al dit onheil, dat hem overkomen was, hoorden, kwamen zij, elk uit zijn *woon*plaats: Elifaz, de Temaniet, Bildad, de Suhiet, en Zofar, de Na‰mathiet. Zij spraken met elkaar af om *naar hem toe* te gaan om hem hun medeleven te betuigen en hem te troosten.
+10. Maar hij zei tegen haar: Je spreekt zoals √©√©n van de dwaze vrouwen spreekt. Zouden wij het goede wel van God ontvangen en zouden we het kwade niet ontvangen? In dit alles zondigde Job met zijn lippen niet.
+11. Toen de drie vrienden van Job van al dit onheil, dat hem overkomen was, hoorden, kwamen zij, elk uit zijn *woon*plaats: Elifaz, de Temaniet, Bildad, de Suhiet, en Zofar, de Na√§mathiet. Zij spraken met elkaar af om *naar hem toe* te gaan om hem hun medeleven te betuigen en hem te troosten.
 12. Toen zij hun ogen van veraf opsloegen, herkenden zij hem niet. Zij begonnen luid te huilen; daarbij scheurde ieder zijn bovenkleed en ze strooiden stof naar de hemel over hun hoofden.
 13. Zo zaten zij met hem op de aarde, zeven dagen en zeven nachten. Niemand sprak een woord tot hem, want zij zagen dat het leed zeer hevig was.

@@ -6,7 +6,7 @@
 5. En de HEERE, uw God, zal u naar het land brengen dat uw vaderen in bezit hadden, en u zult het *weer* in bezit nemen; en Hij zal u goeddoen en u talrijker maken dan uw vaderen.
 6. De HEERE, uw God, zal uw hart en het hart van uw nageslacht besnijden, om de HEERE, uw God, lief te hebben met heel uw hart en met heel uw ziel, zodat u leven zult.
 7. De HEERE, uw God, zal al deze vervloekingen op uw vijanden leggen en op hen die u haten *en* die u vervolgd hebben.
-8. En ú zult zich bekeren, de stem van de HEERE gehoorzaam zijn en al Zijn geboden, die ik u heden gebied, houden.
+8. En Ãº zult zich bekeren, de stem van de HEERE gehoorzaam zijn en al Zijn geboden, die ik u heden gebied, houden.
 9. De HEERE, uw God, zal u overvloed geven in al het werk van uw handen, in de vrucht van uw schoot, in de vrucht van uw vee en in de vrucht van uw land, ten goede. Want de HEERE zal Zich weer ten goede over u verblijden, zoals Hij Zich over uw vaderen verblijd heeft,
 10. wanneer u de stem van de HEERE, uw God, gehoorzaam bent door Zijn geboden en Zijn verordeningen, die in dit wetboek geschreven zijn, in acht te nemen; wanneer u zich bekeert tot de HEERE, uw God, met heel uw hart en met heel uw ziel.
 11. Want dit gebod, dat ik u heden gebied, is niet te moeilijk voor u en het is niet ver weg.

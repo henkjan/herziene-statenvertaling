@@ -3,7 +3,7 @@
 2. Ik acht mijzelf gelukkig, koning Agrippa, dat ik mij heden tegenover u mag verdedigen tegen alles waarvan ik door de Joden beschuldigd word,
 3. vooral omdat ik weet dat u kennis hebt van alle gewoonten en geschilpunten die er onder de Joden zijn. Daarom vraag ik u geduldig naar mij te luisteren.
 4. Welnu, mijn leven van *mijn* jeugd af aan, zoals dat van het begin af aan onder mijn volk in Jeruzalem geweest is, is bij al de Joden bekend.
-5. Zij weten van mij vanuit het verleden - als zij het maar wilden getuigen! - dat ik geleefd heb volgens de meest nauwgezette richting binnen onze godsdienst, *namelijk* als Farizeeër.
+5. Zij weten van mij vanuit het verleden - als zij het maar wilden getuigen! - dat ik geleefd heb volgens de meest nauwgezette richting binnen onze godsdienst, *namelijk* als FarizeeÃ«r.
 6. En nu sta ik *hier* en word geoordeeld over de hoop op de belofte die door God aan de vaderen gedaan is,
 7. die onze twaalf stammen hopen te bereiken door voortdurend, nacht en dag, God te dienen. Om deze hoop, koning Agrippa, word ik door de Joden beschuldigd.
 8. Waarom wordt het bij u *allen* ongeloofwaardig geacht dat God de doden opwekt?
@@ -27,7 +27,7 @@
 26. Want de koning heeft weet van deze dingen. Ik spreek *daarom* ook vrijmoedig tot hem, want ik ben ervan overtuigd dat niets van deze dingen hem ontgaan is; het is immers niet in een uithoek gebeurd.
 27. Gelooft u, koning Agrippa, de Profeten? Ik weet dat u *ze* gelooft.
 28. En Agrippa zei tegen Paulus: U overtuigt mij bijna om christen te worden!
-29. En Paulus zei: Ik zou van God wel wensen dat, én bijna én geheel, niet alleen u maar ook allen die vandaag naar mij luisteren, zouden worden zoals ik ben, uitgezonderd deze boeien.
+29. En Paulus zei: Ik zou van God wel wensen dat, Ã©n bijna Ã©n geheel, niet alleen u maar ook allen die vandaag naar mij luisteren, zouden worden zoals ik ben, uitgezonderd deze boeien.
 30. En nadat hij dit gezegd had, stond de koning op en de stadhouder, Bernice en zij die bij hen zaten,
 31. en zij gingen terzijde, spraken met elkaar en zeiden: Deze man doet niets wat dood of boeien verdient.
 32. En Agrippa zei tegen Festus: Deze man had losgelaten kunnen worden, als hij zich niet op de keizer had beroepen.

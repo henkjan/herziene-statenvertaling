@@ -16,12 +16,12 @@
 15. Want het hart van dit volk is vet geworden, en zij hebben met de oren slecht gehoord, en hun ogen hebben zij dichtgedaan, opdat zij niet op enig moment met de ogen zouden zien en met de oren horen en met het hart begrijpen, en zij zich zouden bekeren en Ik hen zou genezen.
 16. Maar uw ogen zijn zalig omdat zij zien, en uw oren omdat zij horen.
 17. Want voorwaar, Ik zeg u dat veel profeten en rechtvaardigen verlangd hebben te zien wat u ziet, en zij hebben *het* niet gezien; en te horen wat u hoort, en zij hebben *het* niet gehoord.
-18. Luistert ú dan naar de gelijkenis van de zaaier.
+18. Luistert Ãº dan naar de gelijkenis van de zaaier.
 19. Als iemand het Woord van het Koninkrijk hoort en het niet begrijpt, dan komt de boze en rukt weg wat in zijn hart gezaaid was; dat is hij bij wie langs de weg gezaaid is.
 20. Maar bij wie op de steenachtige *grond* gezaaid is, dat is hij die het Woord hoort en dat meteen met vreugde ontvangt.
 21. Hij heeft echter geen wortel in zichzelf, maar hij is *iemand* van het ogenblik; en als er verdrukking of vervolging komt omwille van het Woord, struikelt hij meteen.
 22. En bij wie in de dorens gezaaid is, dat is hij die het Woord hoort; maar de zorgen van deze wereld en de verleiding van de rijkdom verstikken het Woord, en het wordt onvruchtbaar.
-23. Bij wie in de goede aarde gezaaid is, dat is hij die het Woord hoort en begrijpt, die ook vrucht draagt en voortbrengt, de één honderd-, de ander zestig-, en de ander dertig*voudig*.
+23. Bij wie in de goede aarde gezaaid is, dat is hij die het Woord hoort en begrijpt, die ook vrucht draagt en voortbrengt, de Ã©Ã©n honderd-, de ander zestig-, en de ander dertig*voudig*.
 24. Een andere gelijkenis hield Hij hun voor. Hij zei: Het Koninkrijk der hemelen is gelijk aan iemand die goed zaad zaaide in zijn akker.
 25. Maar toen de mensen sliepen, kwam zijn vijand en zaaide onkruid tussen de tarwe, en ging weg.
 26. Toen het gewas opkwam en vrucht voortbracht, kwam ook het onkruid tevoorschijn.
@@ -44,16 +44,16 @@
 43. Dan zullen de rechtvaardigen stralen als de zon, in het Koninkrijk van hun Vader. Wie oren heeft om te horen, laat hij horen.
 44. Het Koninkrijk der hemelen is ook gelijk aan een schat, in de akker verborgen, die iemand vond en verborg; en van blijdschap daarover gaat hij heen en verkoopt alles wat hij heeft, en koopt die akker.
 45. Ook is het Koninkrijk der hemelen gelijk aan een koopman die mooie parels zoekt.
-46. Toen hij één parel van grote waarde gevonden had, ging hij heen en verkocht alles wat hij had, en hij kocht hem.
+46. Toen hij Ã©Ã©n parel van grote waarde gevonden had, ging hij heen en verkocht alles wat hij had, en hij kocht hem.
 47. Het Koninkrijk der hemelen is ook gelijk aan een net, uitgeworpen in de zee, dat allerlei soorten *vissen* bijeenbrengt.
 48. Als het vol geworden is, trekken *de vissers* het op de oever. Ze gaan zitten en verzamelen de goede *vissen* in vaten, maar de slechte gooien zij weg.
 49. Zo zal het bij de voleinding van de wereld zijn: de engelen zullen uitgaan en de slechten uit het midden van de rechtvaardigen afzonderen,
 50. en zij zullen hen in de vurige oven werpen; daar zal gejammer zijn en tandengeknars.
 51. Jezus zei tegen hen: Hebt u dit alles begrepen? Zij zeiden tegen Hem: Ja, Heere.
 52. Hij zei tegen hen: Daarom, iedere schriftgeleerde, in het Koninkrijk der hemelen onderwezen, is gelijk aan een heer des huizes die uit zijn voorraad nieuwe en oude dingen tevoorschijn haalt.
-53. En toen Jezus deze gelijkenissen geëindigd had, gebeurde het dat Hij vandaar vertrok.
+53. En toen Jezus deze gelijkenissen geÃ«indigd had, gebeurde het dat Hij vandaar vertrok.
 54. En Hij kwam in Zijn vaderstad en onderwees hen in hun synagoge, zodat zij versteld stonden en zeiden: Waar heeft Deze die wijsheid en krachten vandaan?
 55. Is Dit niet de Zoon van de timmerman? En heet Zijn moeder niet Maria, en Zijn broers Jakobus en Joses, en Simon en Judas?
 56. En Zijn zusters, zijn zij niet allen onder ons? Waar heeft Deze dan dit alles vandaan?
-57. En zij namen aanstoot aan Hem. Maar Jezus zei tegen hen: Een profeet is niet ongeëerd, behalve in zijn vaderstad en in zijn huis.
+57. En zij namen aanstoot aan Hem. Maar Jezus zei tegen hen: Een profeet is niet ongeÃ«erd, behalve in zijn vaderstad en in zijn huis.
 58. En Hij deed daar niet veel krachten vanwege hun ongeloof.

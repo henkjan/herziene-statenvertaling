@@ -1,6 +1,6 @@
 #Ezechiel 7
 1. Het woord van de HEERE kwam tot mij:
-2. En u, mensenkind, zo zegt de Heere HEERE over het land van Israël: Het einde is gekomen, het einde over de vier hoeken van het land. 
+2. En u, mensenkind, zo zegt de Heere HEERE over het land van IsraÃ«l: Het einde is gekomen, het einde over de vier hoeken van het land. 
 3. Nu is het einde er voor u, Ik zal Mijn toorn op u afsturen, u oordelen overeenkomstig uw wegen, u al uw gruweldaden vergelden. 
 4. Ik zal u niet ontzien, Ik zal geen medelijden hebben, want Ik zal u uw wegen vergelden, en uw gruweldaden zullen in uw midden zijn. Dan zult u weten, dat Ik de HEERE ben. 
 5. Zo zegt de Heere HEERE: Onheil op onheil! Zie, het komt eraan. 
@@ -15,7 +15,7 @@
 14. Zij hebben op de trompet geblazen, zij hebben alles gereedgemaakt, maar niemand trekt ten strijde, want Mijn brandende *toorn* is over heel de menigte van het *land*. 
 15. Het zwaard buiten, de pest en de honger binnen: wie op het veld is, zal door het zwaard sterven, de honger en de pest zullen verteren wie in de stad is. 
 16. En wie van hen ontkomen, zullen *wel* ontkomen, maar zullen op de bergen zijn als duiven *uit* de dalen. Zij allen kermen, ieder om zijn ongerechtigheid. 
-17. Alle handen zullen slap worden, en water loopt *langs* alle knieën. 
+17. Alle handen zullen slap worden, en water loopt *langs* alle knieÃ«n. 
 18. Zij zullen zich omgorden met rouwgewaden, huiver zal hen bedekken, schaamte zal op alle gezichten zijn, en kaalheid op al hun hoofden. 
 19. Zij zullen hun zilver op de straten werpen, en hun goud zal tot onreinheid zijn. Hun zilver en hun goud zal hen niet kunnen redden op de dag van de verbolgenheid van de HEERE. Hun ziel zullen zij *er* niet *mee* verzadigen, en hun ingewanden zullen zij *er* niet *mee* vullen, want het is voor hen een struikelblok van ongerechtigheid geweest. 
 20. De pracht van Zijn sieraad heeft Hij tot iets voortreffelijks gesteld, maar zij hebben er beelden van hun gruweldaden *en* van hun afschuwelijke *afgoden* van gemaakt. Daarom heb Ik dat voor hen tot *een voorwerp van* onreinheid gemaakt. 

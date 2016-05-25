@@ -4,7 +4,7 @@
 3. Laat mijn gebed voor Uw aangezicht komen, neig Uw oor tot mijn roepen. 
 4. Want mijn ziel is verzadigd van ellende, mijn leven raakt *bijna* het graf. 
 5. Ik word gerekend tot hen die in de kuil neerdalen, ik ben geworden als een man zonder kracht, 
-6. afgezonderd onder de doden, net als de gesneuvelden, die in het graf liggen: daar denkt U niet meer aan! Zíj zijn afgesneden van Uw hand. 
+6. afgezonderd onder de doden, net als de gesneuvelden, die in het graf liggen: daar denkt U niet meer aan! ZÃ­j zijn afgesneden van Uw hand. 
 7. U hebt mij in de onderste kuil gelegd, in duistere oorden, in diepten. 
 8. Uw grimmigheid leunt op mij, U hebt *mij* neergedrukt door al Uw golven. [ Sela] 
 9. Mijn bekenden hebt U ver van mij verwijderd, U hebt mij tot iets gruwelijks voor hen gemaakt; ik ben opgesloten en kan er niet uit komen. 

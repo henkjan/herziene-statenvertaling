@@ -16,7 +16,7 @@
 15. In het licht van het gezicht van een koning is leven, zijn welgevallen is als een wolk met late regen. 
 16. Hoeveel beter is het verwerven van wijsheid dan bewerkt goud, en het verwerven van inzicht is verkieslijker dan zilver! 
 17. De gebaande weg van oprechten is zich af te keren van het kwade: wie zijn weg in acht neemt, bewaart zijn ziel. 
-18. Trots komt v篌r de ondergang, en hoogmoed komt v篌r de val. 
+18. Trots komt v贸贸r de ondergang, en hoogmoed komt v贸贸r de val. 
 19. Het is beter met zachtmoedigen nederig van geest te zijn, dan de buit met hoogmoedigen te delen. 
 20. Wie verstandig omgaat met het woord, zal het goede vinden, en wie op de HEERE vertrouwt: welzalig is hij. 
 21. De wijze van hart wordt verstandig genoemd, en zoetheid van lippen vermeerdert het inzicht. 

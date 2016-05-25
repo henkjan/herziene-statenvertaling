@@ -3,7 +3,7 @@
 2. Want als gras zullen zij snel verdorren, als groene grasscheutjes zullen zij verwelken. 
 3. Vertrouw op de HEERE en doe het goede; [ beth] bewoon de aarde en voed u *met* trouw. 
 4. Schep vreugde in de HEERE, dan zal Hij u geven wat uw hart verlangt. 
-5. Vertrouw uw weg aan de HEERE toe [ gimel] en vertrouw op Hem: Híj zal het doen. 
+5. Vertrouw uw weg aan de HEERE toe [ gimel] en vertrouw op Hem: HÃ­j zal het doen. 
 6. Hij zal uw gerechtigheid tevoorschijn doen komen als het *morgen*licht, uw recht *doen stralen* als de middag*zon*. 
 7. Zwijg voor de HEERE [ daleth] en verwacht Hem; ontsteek niet *in woede* over hem wiens weg voorspoedig is, over een man die listige plannen uitvoert. 
 8. Laat *uw* woede bedaren en laat *uw* grimmigheid varen; [ he] ontsteek niet *in woede* - het brengt slechts kwaad. 

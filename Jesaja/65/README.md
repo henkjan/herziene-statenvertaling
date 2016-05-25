@@ -11,8 +11,8 @@
 10. Saron zal tot een schaapskooi worden en het Dal van Achor tot een rustplaats voor rundvee, voor Mijn volk, dat Mij gezocht heeft. 
 11. Maar u die de HEERE verlaat, u die Mijn heilige berg vergeet, u die de tafel gereedmaakt voor de *god* Gad, u die voor *de god* Meni *de bekers* vult *met* gemengde drank, 
 12. Ik zal u tellen, *maar* voor het zwaard. U zult allen moeten neerbukken ter slachting, omdat Ik geroepen heb, maar u niet geantwoord hebt, *omdat* Ik gesproken heb, maar u niet geluisterd hebt, maar gedaan hebt wat slecht was in Mijn ogen, en gekozen hebt voor wat Mij niet behaagt. 
-13. Daarom, zo zegt de Heere HEERE: Zie, Mijn dienaren zullen eten, maar ˙ zult hongerlijden. Zie, Mijn dienaren zullen drinken, maar ˙ zult dorst hebben. Zie, Mijn dienaren zullen verblijd zijn, maar ˙ zult beschaamd worden. 
-14. Zie, Mijn dienaren zullen juichen vanwege een hart vol vreugde, maar ˙ zult schreeuwen vanwege een hart *vol* leed, en vanwege een gebroken geest zult u weeklagen. 
+13. Daarom, zo zegt de Heere HEERE: Zie, Mijn dienaren zullen eten, maar √∫ zult hongerlijden. Zie, Mijn dienaren zullen drinken, maar √∫ zult dorst hebben. Zie, Mijn dienaren zullen verblijd zijn, maar √∫ zult beschaamd worden. 
+14. Zie, Mijn dienaren zullen juichen vanwege een hart vol vreugde, maar √∫ zult schreeuwen vanwege een hart *vol* leed, en vanwege een gebroken geest zult u weeklagen. 
 15. U zult uw naam voor Mijn uitverkorenen achterlaten als een vloekwoord en de Heere HEERE zal u doden, maar Zijn dienaren zal Hij noemen met een andere naam, 
 16. zodat wie zich zegenen zal op aarde, zich zal zegenen in de God van de waarheid, en wie zweren zal op aarde, zal zweren bij de God van de waarheid, omdat de benauwdheden van vroeger vergeten zullen zijn, omdat zij verborgen zullen zijn voor Mijn ogen.
 17. Want zie, Ik schep een nieuwe hemel en een nieuwe aarde. Aan de vorige dingen zal niet *meer* gedacht worden, ze zullen niet *meer* opkomen in het hart. 
@@ -22,5 +22,5 @@
 21. Zij zullen huizen bouwen en *erin* wonen, zij zullen wijngaarden planten en van hun vrucht eten. 
 22. In *wat* zij bouwen, zal geen ander wonen, van *wat* zij planten, zal geen ander eten. Want de dagen van Mijn volk zullen zijn als de dagen van een boom, en Mijn uitverkorenen zullen lang genieten van het werk van hun handen. 
 23. Zij zullen zich niet voor niets vermoeien of kinderen baren voor iets verschrikkelijks, want zij zijn het nageslacht van de gezegenden door de HEERE, en hun nakomelingen met hen. 
-24. En het zal geschieden dat voordat zij roepen, Õk zal antwoorden, terwijl zij nog spreken, Õk zal horen. 
+24. En het zal geschieden dat voordat zij roepen, √çk zal antwoorden, terwijl zij nog spreken, √çk zal horen. 
 25. Een wolf en een lammetje zullen gezamenlijk weiden, een leeuw zal stro eten als een rund, een slang - zijn voedsel zal stof zijn. Zij zullen geen kwaad doen en geen verderf aanrichten op heel Mijn heilige berg, zegt de HEERE.

@@ -19,4 +19,4 @@
 18. De goddelozen keren terug, naar de hel toe, alle heidenvolken, die God vergeten. 
 19. Want de arme wordt niet voor altijd vergeten, de hoop van de ellendigen vergaat *niet* voor eeuwig. 
 20. Sta op, HEERE, laat de sterveling zich niet sterk maken; laat de heidenvolken voor Uw aangezicht geoordeeld worden. 
-21. HEERE, jaag hun vrees aan; laat de heidenvolken weten *dat* zíj stervelingen zijn. [ Sela]
+21. HEERE, jaag hun vrees aan; laat de heidenvolken weten *dat* zÃ­j stervelingen zijn. [ Sela]

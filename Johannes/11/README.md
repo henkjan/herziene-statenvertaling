@@ -1,5 +1,5 @@
 #Johannes 11
-1. En er was iemand ziek, Lazarus van Bethanië, uit het dorp van Maria en haar zuster Martha.
+1. En er was iemand ziek, Lazarus van BethaniÃ«, uit het dorp van Maria en haar zuster Martha.
 2. (Maria nu was het die de Heere gezalfd heeft met mirre en Zijn voeten afgedroogd heeft met haar haren; haar broer Lazarus was ziek.)
 3. Zijn zusters dan stuurden Hem *de boodschap*: Heere, zie, hij die U liefhebt, is ziek.
 4. En toen Jezus *dat* hoorde, zei Hij: Deze ziekte is niet tot de dood, maar *is er* met het oog op de heerlijkheid van God, opdat de Zoon van God erdoor verheerlijkt wordt.
@@ -16,7 +16,7 @@
 15. En Ik ben blij voor u dat Ik daar niet was, opdat u gelooft; maar laten wij naar hem toe gaan.
 16. Thomas dan, die Didymus genoemd werd, zei tegen *zijn* medediscipelen: Laten ook wij gaan om met Hem te sterven.
 17. Toen Jezus dan gekomen was, bleek dat hij al vier dagen in het graf lag.
-18. (Bethanië nu lag dicht bij Jeruzalem, ongeveer vijftien stadiën daarvandaan.)
+18. (BethaniÃ« nu lag dicht bij Jeruzalem, ongeveer vijftien stadiÃ«n daarvandaan.)
 19. En velen van de Joden waren naar Martha en Maria gekomen om hen te troosten over hun broer.
 20. Zodra Martha dan hoorde dat Jezus kwam, ging zij Hem tegemoet, maar Maria bleef in huis zitten.
 21. Martha nu zei tegen Jezus: Heere, als U hier geweest was, zou mijn broer niet gestorven zijn,
@@ -44,15 +44,15 @@
 43. En toen Hij dit gezegd had, riep Hij met een luide stem: Lazarus, kom naar buiten!
 44. En de gestorvene kwam naar buiten, gebonden aan handen en voeten met grafdoeken, en zijn gezicht was omwonden met een zweetdoek. Jezus zei tegen hen: Maak hem los en laat hem weggaan.
 45. Velen dan van de Joden die naar Maria toe gekomen waren en gezien hadden wat Jezus gedaan had, geloofden in Hem.
-46. Maar sommigen van hen gingen naar de Farizeeën en zeiden tegen hen wat Jezus gedaan had.
-47. De overpriesters dan en de Farizeeën riepen de Raad bijeen en zeiden: Wat doen we? Want deze Mens doet vele tekenen.
+46. Maar sommigen van hen gingen naar de FarizeeÃ«n en zeiden tegen hen wat Jezus gedaan had.
+47. De overpriesters dan en de FarizeeÃ«n riepen de Raad bijeen en zeiden: Wat doen we? Want deze Mens doet vele tekenen.
 48. Als wij Hem zo laten *begaan*, zullen allen in Hem geloven, en de Romeinen zullen komen en onze plaats en onze natie van ons wegnemen.
 49. Maar een van hen, Kajafas, die de hogepriester van dat jaar was, zei tegen hen: U weet niets,
-50. en u overweegt niet dat het nuttig voor ons is dat één mens sterft voor het volk, en niet heel het volk verloren gaat.
+50. en u overweegt niet dat het nuttig voor ons is dat Ã©Ã©n mens sterft voor het volk, en niet heel het volk verloren gaat.
 51. Dit zei hij echter niet uit zichzelf, maar als hogepriester van dat jaar profeteerde hij dat Jezus sterven zou voor het volk,
 52. en niet alleen voor het volk, maar ook om de kinderen van God, overal verspreid, bijeen te brengen.
 53. Vanaf die dag dan waren zij vastbesloten om Hem te doden.
-54. Jezus dan verkeerde niet meer openlijk onder de Joden, maar Hij ging vandaar naar het land bij de woestijn, naar een stad die Efraïm heette, en verbleef daar met Zijn discipelen.
-55. En het Pascha van de Joden was nabij en velen uit dat land gingen naar Jeruzalem, vóór het Pascha, om zich te reinigen.
+54. Jezus dan verkeerde niet meer openlijk onder de Joden, maar Hij ging vandaar naar het land bij de woestijn, naar een stad die EfraÃ¯m heette, en verbleef daar met Zijn discipelen.
+55. En het Pascha van de Joden was nabij en velen uit dat land gingen naar Jeruzalem, vÃ³Ã³r het Pascha, om zich te reinigen.
 56. Zij dan zochten Jezus en zeiden onder elkaar, terwijl zij in de tempel stonden: Wat denkt u? Dat Hij niet op het feest komt?
-57. De overpriesters nu en de Farizeeën hadden de opdracht gegeven dat, als iemand wist waar Hij was, hij het *hun* te kennen zou geven, zodat zij Hem konden grijpen.
+57. De overpriesters nu en de FarizeeÃ«n hadden de opdracht gegeven dat, als iemand wist waar Hij was, hij het *hun* te kennen zou geven, zodat zij Hem konden grijpen.

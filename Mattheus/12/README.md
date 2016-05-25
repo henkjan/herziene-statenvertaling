@@ -1,18 +1,18 @@
 #Mattheus 12
 1. In die tijd ging Jezus op een sabbat door de korenvelden, en Zijn discipelen hadden honger en begonnen aren te plukken en te eten.
-2. Toen de Farizeeën dat zagen, zeiden zij tegen Hem: Zie, Uw discipelen doen iets wat niet geoorloofd is te doen op de sabbat.
+2. Toen de FarizeeÃ«n dat zagen, zeiden zij tegen Hem: Zie, Uw discipelen doen iets wat niet geoorloofd is te doen op de sabbat.
 3. Maar Hij zei tegen hen: Hebt u niet gelezen wat David deed toen hij honger had, en zij die bij hem *waren*?
 4. Hoe hij het huis van God binnengegaan is en de toonbroden gegeten heeft, die hij niet mocht eten, evenmin als zij die bij hem *waren*, maar alleen de priesters?
 5. Of hebt u niet gelezen in de Wet dat de priesters op de sabbatdagen de sabbat ontheiligen in de tempel, en *toch* onschuldig zijn?
 6. Ik zeg u echter dat hier Iemand is Die meer is dan de tempel.
 7. Maar als u geweten had wat het betekent: Ik wil barmhartigheid en geen offer, dan zou u de onschuldigen niet veroordeeld hebben.
-8. Want de Zoon des mensen is Heere, óók van de sabbat.
+8. Want de Zoon des mensen is Heere, Ã³Ã³k van de sabbat.
 9. En Hij vertrok vandaar en kwam in hun synagoge.
 10. En zie, er was iemand die een verschrompelde hand had. En ze vroegen Hem: Is het ook geoorloofd op de sabbatdagen te genezen? *Dit* om Hem te kunnen beschuldigen.
-11. Hij zei tegen hen: Welk mens onder u die één schaap heeft, zal het niet, als het op een sabbat in een kuil valt, grijpen en eruit tillen?
+11. Hij zei tegen hen: Welk mens onder u die Ã©Ã©n schaap heeft, zal het niet, als het op een sabbat in een kuil valt, grijpen en eruit tillen?
 12. Hoeveel gaat niet een mens een schaap te boven! Daarom is het geoorloofd op de sabbatdagen goed te doen.
 13. Toen zei Hij tegen die man: Steek uw hand uit. En hij stak hem uit, en hij werd hersteld, gezond als de andere.
-14. De Farizeeën gingen weg en beraadslaagden tegen Hem, hoe zij Hem om zouden kunnen brengen.
+14. De FarizeeÃ«n gingen weg en beraadslaagden tegen Hem, hoe zij Hem om zouden kunnen brengen.
 15. Maar Jezus wist dat en vertrok vandaar, en veel menigten volgden Hem en Hij genas hen allen.
 16. En Hij gebood hun streng dat zij niet bekend zouden maken *wie* Hij *was*,
 17. opdat vervuld zou worden wat gesproken is door de profeet Jesaja toen hij zei:
@@ -22,10 +22,10 @@
 21. En op Zijn Naam zullen de heidenen hopen.
 22. Toen werd er iemand bij Hem gebracht die door een demon bezeten was en die blind was en niet kon spreken; en Hij genas hem, zodat hij die blind was en niet had kunnen spreken zowel kon spreken als zien.
 23. En heel de menigte was buiten zichzelf en zei: Is dit niet de Zoon van David?
-24. Maar de Farizeeën hoorden dit en zeiden: Deze drijft de demonen alleen maar uit door Beëlzebul, de aanvoerder van de demonen.
+24. Maar de FarizeeÃ«n hoorden dit en zeiden: Deze drijft de demonen alleen maar uit door BeÃ«lzebul, de aanvoerder van de demonen.
 25. Jezus echter kende hun gedachten en zei tegen hen: Ieder koninkrijk dat tegen zichzelf verdeeld is, wordt verwoest; en geen enkele stad of geen enkel huis dat tegen zichzelf verdeeld is, zal standhouden.
 26. En als de satan de satan uitdrijft, dan is hij tegen zichzelf verdeeld; hoe kan zijn rijk dan standhouden?
-27. En als Ik door Beëlzebul de demonen uitdrijf, door wie drijven uw zonen ze dan uit? Daarom zullen die uw rechters zijn.
+27. En als Ik door BeÃ«lzebul de demonen uitdrijf, door wie drijven uw zonen ze dan uit? Daarom zullen die uw rechters zijn.
 28. Maar als Ik door de Geest van God de demonen uitdrijf, dan is het Koninkrijk van God bij u gekomen.
 29. Of hoe kan iemand het huis van de sterke binnengaan en zijn huisraad roven, als hij niet eerst de sterke gebonden heeft? En dan zal hij zijn huis leegroven.
 30. Wie niet met Mij is, die is tegen Mij; en wie niet met Mij bijeenbrengt, die drijft uiteen.
@@ -36,7 +36,7 @@
 35. De goede mens brengt goede dingen voort uit de goede schat van het hart, en de slechte mens brengt slechte dingen voort uit de slechte schat.
 36. Maar Ik zeg u dat de mensen van elk nutteloos woord dat zij zullen spreken, rekenschap moeten geven op de dag van het oordeel.
 37. Want op grond van uw woorden zult u rechtvaardig verklaard worden, en op grond van uw woorden zult u veroordeeld worden.
-38. Toen antwoordden sommigen van de schriftgeleerden en Farizeeën: Meester, wij zouden van U een teken willen zien.
+38. Toen antwoordden sommigen van de schriftgeleerden en FarizeeÃ«n: Meester, wij zouden van U een teken willen zien.
 39. Maar Hij antwoordde en zei tegen hen: Een verdorven en overspelig geslacht verlangt een teken, maar het zal geen teken gegeven worden dan het teken van Jona, de profeet.
 40. Want zoals Jona drie dagen en drie nachten in de buik van de grote vis was, zo zal de Zoon des mensen drie dagen en drie nachten in het hart van de aarde zijn.
 41. De mannen van Nineve zullen opstaan in het oordeel samen met dit geslacht en zullen het veroordelen, want zij hebben zich bekeerd op de prediking van Jona; en zie, meer dan Jona is hier!

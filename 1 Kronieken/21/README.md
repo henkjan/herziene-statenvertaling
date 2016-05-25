@@ -1,18 +1,18 @@
 #1 Kronieken 21
-1. Toen stond de satan op tegen Israël, en hij zette David ertoe aan om Israël te tellen.
-2. David zei tegen Joab en tegen de leiders van het volk: Ga Israël tellen van Berseba tot Dan toe, en breng mij *de uitslag*, zodat ik hun aantal weet.
-3. Toen zei Joab: Moge de HEERE er aan Zijn volk honderdmaal *meer* toevoegen dan zij *nu* zijn; *maar*, mijn heer de koning, zijn zij niet allen *voor* mijn heer tot dienaren? Waarom wil mijn heer dit? Waarom zou hij Israël tot schuld worden?
-4. Het woord van de koning was echter te sterk voor Joab. Daarom trok Joab weg, en hij ging door heel Israël; daarna kwam hij *terug* in Jeruzalem.
-5. Joab gaf David het aantal van het getelde volk: er waren in heel Israël één miljoen honderdduizend man die het zwaard *konden* hanteren, en *in* Juda vierhonderdzeventigduizend man, die het zwaard *konden* hanteren.
+1. Toen stond de satan op tegen IsraÃ«l, en hij zette David ertoe aan om IsraÃ«l te tellen.
+2. David zei tegen Joab en tegen de leiders van het volk: Ga IsraÃ«l tellen van Berseba tot Dan toe, en breng mij *de uitslag*, zodat ik hun aantal weet.
+3. Toen zei Joab: Moge de HEERE er aan Zijn volk honderdmaal *meer* toevoegen dan zij *nu* zijn; *maar*, mijn heer de koning, zijn zij niet allen *voor* mijn heer tot dienaren? Waarom wil mijn heer dit? Waarom zou hij IsraÃ«l tot schuld worden?
+4. Het woord van de koning was echter te sterk voor Joab. Daarom trok Joab weg, en hij ging door heel IsraÃ«l; daarna kwam hij *terug* in Jeruzalem.
+5. Joab gaf David het aantal van het getelde volk: er waren in heel IsraÃ«l Ã©Ã©n miljoen honderdduizend man die het zwaard *konden* hanteren, en *in* Juda vierhonderdzeventigduizend man, die het zwaard *konden* hanteren.
 6. Levi en Benjamin telde hij echter onder hen niet, want Joab had een afschuw van het woord van de koning.
-7. En deze zaak was slecht in de ogen van God, daarom trof Hij Israël.
+7. En deze zaak was slecht in de ogen van God, daarom trof Hij IsraÃ«l.
 8. Toen zei David tegen God: Ik heb zwaar gezondigd, *omdat* ik deze zaak gedaan heb. Maar nu, neem de ongerechtigheid van Uw dienaar toch weg, want ik heb heel dwaas gehandeld.
 9. De HEERE sprak tot Gad, de ziener van David:
-10. Ga *op weg* en spreek tot David: Zo zegt de HEERE: Drie dingen leg Ik u voor; kies er voor u één daarvan uit, dan zal Ik dat bij u doen.
+10. Ga *op weg* en spreek tot David: Zo zegt de HEERE: Drie dingen leg Ik u voor; kies er voor u Ã©Ã©n daarvan uit, dan zal Ik dat bij u doen.
 11. Toen kwam Gad naar David, en zei tegen hem: Zo zegt de HEERE: Kies voor u:
-12. óf drie jaar hongersnood, óf drie maanden weggevaagd worden voor uw vijanden, terwijl het zwaard van uw vijanden *u* inhaalt; óf drie dagen het zwaard van de HEERE: de pest in het land, met de engel van de HEERE die in heel het gebied van Israël verderf aanricht. Welnu, zie wat voor antwoord ik Hem Die mij gezonden heeft, moet brengen.
+12. Ã³f drie jaar hongersnood, Ã³f drie maanden weggevaagd worden voor uw vijanden, terwijl het zwaard van uw vijanden *u* inhaalt; Ã³f drie dagen het zwaard van de HEERE: de pest in het land, met de engel van de HEERE die in heel het gebied van IsraÃ«l verderf aanricht. Welnu, zie wat voor antwoord ik Hem Die mij gezonden heeft, moet brengen.
 13. Toen zei David tegen Gad: Het benauwt mij zeer. Laat mij toch in de hand van de HEERE vallen, want Zijn barmhartigheid is zeer groot. Laat mij echter niet in de hand van mensen vallen.
-14. Toen gaf de HEERE *een uitbraak van* de pest in Israël. En er viel van Israël zeventigduizend man.
+14. Toen gaf de HEERE *een uitbraak van* de pest in IsraÃ«l. En er viel van IsraÃ«l zeventigduizend man.
 15. Vervolgens zond God een engel naar Jeruzalem om er verderf aan te richten. Maar toen hij er verderf aanrichtte, zag de HEERE het, en Hij kreeg berouw over dit kwaad, en Hij zei tegen de engel die verderf *onder het volk* aanrichtte: Het is genoeg, trek uw hand nu terug. Nu stond de engel van de HEERE *op dat moment* bij de dorsvloer van Ornan, de Jebusiet.
 16. Toen David zijn ogen opsloeg, zag hij de engel van de HEERE staan tussen de aarde en de hemel, met zijn uitgetrokken zwaard in zijn hand, uitgestrekt over Jeruzalem. Toen wierpen David en de oudsten, gehuld in rouwgewaden, zich met hun gezichten *ter aarde*.
 17. David zei tegen God: Ben ik het niet die gezegd heb dat men het volk tellen zou? Ja, ik zelf ben het, die gezondigd en volstrekt kwalijk gehandeld heb, maar deze schapen, wat hebben zij gedaan? HEERE, mijn God, laat Uw hand toch tegen mij en tegen mijn familie zijn, maar niet als een plaag tegen Uw volk.
@@ -28,4 +28,4 @@
 27. Daarna zei de HEERE tegen de engel dat hij zijn zwaard weer in zijn schede moest steken.
 28. In die tijd, toen David zag dat de HEERE hem geantwoord had op de dorsvloer van Ornan, de Jebusiet, offerde hij daar.
 29. De tabernakel van de HEERE, die Mozes in de woestijn gemaakt had, en het brandofferaltaar, stond in die tijd immers op de *offer*hoogte van Gibeon.
-30. Maar David kon niet *op weg* gaan om vóór *dat altaar* God te raadplegen, want hij was overvallen door angst voor het zwaard van de engel van de HEERE.
+30. Maar David kon niet *op weg* gaan om vÃ³Ã³r *dat altaar* God te raadplegen, want hij was overvallen door angst voor het zwaard van de engel van de HEERE.

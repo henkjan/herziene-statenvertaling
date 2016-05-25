@@ -16,13 +16,13 @@
 15. Worden wij door hem niet als vreemden beschouwd? Hij heeft ons immers verkocht en ook ons geld geheel en al opgemaakt,
 16. want al de rijkdom die God aan onze vader ontrukt heeft, die behoort ons en onze kinderen toe! Nu dan, doe alles wat God tegen je gezegd heeft.
 17. Toen stond Jakob op, zette zijn kinderen en zijn vrouwen op de kamelen,
-18. voerde al zijn vee en al zijn bezittingen, die hij verworven had, mee - het vee dat hij bezat, dat hij in Paddan-Aram verworven had - om bij zijn vader Izak te komen, in het land Kanaän.
+18. voerde al zijn vee en al zijn bezittingen, die hij verworven had, mee - het vee dat hij bezat, dat hij in Paddan-Aram verworven had - om bij zijn vader Izak te komen, in het land KanaÃ¤n.
 19. Laban was *op weg* gegaan om zijn schapen te scheren; Rachel stal toen de afgodsbeeldjes die haar vader toebehoorden.
-20. Jakob bedroog Laban, de Syriër, door hem niet te vertellen dat hij vluchtte.
+20. Jakob bedroog Laban, de SyriÃ«r, door hem niet te vertellen dat hij vluchtte.
 21. Zo vluchtte hij, met alles wat van hem was. Hij stond op, stak de Rivier over en ging in de richting van het bergland van Gilead.
 22. Op de derde dag werd Laban verteld dat Jakob gevlucht was.
 23. Hij nam toen zijn verwanten met zich mee, achtervolgde hem over een afstand van zeven dagreizen en haalde hem in in het bergland van Gilead.
-24. Maar God kwam 's nachts in een droom bij Laban, de Syriër, en zei tegen hem: Wees op uw hoede dat u met Jakob niet goedwillend of kwaadwillend spreekt.
+24. Maar God kwam 's nachts in een droom bij Laban, de SyriÃ«r, en zei tegen hem: Wees op uw hoede dat u met Jakob niet goedwillend of kwaadwillend spreekt.
 25. Zo haalde Laban Jakob in. Jakob nu had zijn tent opgezet in het bergland; ook Laban en zijn verwanten zetten *de hunne* op in het bergland van Gilead.
 26. Toen zei Laban tegen Jakob: Wat heb je gedaan, dat je mij bedrogen hebt en mijn dochters als krijgsgevangenen hebt weggevoerd?
 27. Waarom ben je heimelijk gevlucht en heb je mij bedrogen en mij niets verteld? Ik zou je uitgeleide gedaan hebben met blijdschap en liederen, met tamboerijn en harp.
@@ -37,7 +37,7 @@
 36. Toen ontstak Jakob *in woede* en riep Laban ter verantwoording. Jakob nam het woord en zei tegen Laban: Wat is mijn overtreding? Wat is mijn zonde, dat u mij zo verwoed hebt achtervolgd
 37. en dat u al mijn huisraad hebt doorzocht? Wat hebt u van al uw eigen huisraad gevonden? Leg het *hier* neer ten overstaan van mijn verwanten en uw verwanten en laten zij tussen ons beiden rechtspreken.
 38. Deze twintig jaar dat ik bij u geweest ben, hebben uw ooien en uw geiten geen misdracht gehad en de rammen van uw kleinvee heb ik niet gegeten.
-39. Verscheurde dieren heb ik niet naar u toe gebracht, ik moest ze *zelf* vergoeden. *Ook* hebt u van mij *vergoeding* geëist van wat overdag gestolen was en wat 's nachts gestolen was.
+39. Verscheurde dieren heb ik niet naar u toe gebracht, ik moest ze *zelf* vergoeden. *Ook* hebt u van mij *vergoeding* geÃ«ist van wat overdag gestolen was en wat 's nachts gestolen was.
 40. Het is *zo* met mij geweest: overdag werd ik gekweld door de hitte, 's nachts door de kou, zodat de slaap van mijn ogen week.
 41. Twintig jaar ben ik nu bij u in huis geweest: veertien jaar heb ik u gediend voor uw beide dochters en zes jaar voor uw kleinvee, en u hebt mijn loon tien keer veranderd.
 42. Als de God van mijn vader, de God van Abraham en de Gevreesde van Izak niet met mij geweest was, zou u mij nu met lege *handen* weggestuurd hebben. God heeft mijn ellende en de inspanning van mijn handen gezien en heeft u gisternacht bestraft.

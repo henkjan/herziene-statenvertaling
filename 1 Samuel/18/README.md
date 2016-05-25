@@ -4,9 +4,9 @@
 3. Jonathan sloot een verbond met David, omdat hij hem liefhad als zichzelf.
 4. Jonathan deed zijn mantel af die hij aanhad, en gaf hem aan David; ook zijn kleding, ja, tot zijn zwaard, tot zijn boog en tot zijn gordel toe.
 5. David trok eropuit, overal waar Saul hem *naartoe* stuurde; hij gedroeg zich verstandig, en Saul stelde hem aan over de strijdbare mannen. Hij was goed in de ogen van heel het volk, en ook in de ogen van de dienaren van Saul.
-6. Toen David *en zijn mannen* terugkwamen na het verslaan van de Filistijnen, gebeurde het dat de vrouwen uit al de steden van Israël met gezang en reidans koning Saul tegemoet trokken; met tamboerijnen, met blijdschap en met muziekinstrumenten.
+6. Toen David *en zijn mannen* terugkwamen na het verslaan van de Filistijnen, gebeurde het dat de vrouwen uit al de steden van IsraÃ«l met gezang en reidans koning Saul tegemoet trokken; met tamboerijnen, met blijdschap en met muziekinstrumenten.
 7. Terwijl de vrouwen huppelden, zongen zij in beurtzang: Saul heeft zijn duizenden verslagen, maar David zijn tienduizenden!
-8. Toen ontstak Saul *in woede*; die woorden waren namelijk kwalijk in zijn ogen. Hij zei: Ze hebben er aan David tienduizend gegeven, maar mij hebben ze er *maar* duizend gegeven; het koninkrijk zal zeker nog *eens* voor hém zijn!
+8. Toen ontstak Saul *in woede*; die woorden waren namelijk kwalijk in zijn ogen. Hij zei: Ze hebben er aan David tienduizend gegeven, maar mij hebben ze er *maar* duizend gegeven; het koninkrijk zal zeker nog *eens* voor hÃ©m zijn!
 9. Vanaf die dag hield Saul David in het oog.
 10. De volgende dag gebeurde het dat de boze geest van God *weer* vaardig werd over Saul, en hij raakte binnenshuis in geestvervoering. David tokkelde *op de harp* zoals elke dag. Nu had Saul een speer in zijn hand,
 11. en Saul wierp de speer en zei: Ik zal David aan de wand spietsen, maar David ontweek hem tot tweemaal toe.
@@ -14,10 +14,10 @@
 13. Daarom deed Saul *David* van zich weggaan, en stelde hij hem aan tot bevelhebber over duizend, zodat hij voor het volk uit *ten strijde* trok en *weer* terugkeerde.
 14. David gedroeg zich verstandig op al zijn wegen, en de HEERE was met hem.
 15. Toen Saul zag dat hij zich heel verstandig gedroeg, was hij bevreesd voor hem.
-16. Maar heel Israël en Juda hielden van David, want hij trok voor hen uit *ten strijde* en keerde *weer* terug.
+16. Maar heel IsraÃ«l en Juda hielden van David, want hij trok voor hen uit *ten strijde* en keerde *weer* terug.
 17. Daarom zei Saul tegen David: Zie, mijn oudste dochter Merab; haar zal ik u tot vrouw geven. Alleen, wees voor mij een dappere zoon, en voer de strijd van de HEERE. Want Saul dacht: Laat niet mijn hand tegen hem zijn, maar laat de hand van de Filistijnen tegen hem zijn.
-18. Maar David zei tegen Saul: Wie ben ik, wat is mijn leven, *en wat is* het geslacht van mijn vader in Israël, dat ik de schoonzoon van de koning zou worden?
-19. In de tijd dat men Merab, de dochter van Saul, aan David zou geven, gebeurde het echter dat zij aan Adriël uit Mehola tot vrouw gegeven werd.
+18. Maar David zei tegen Saul: Wie ben ik, wat is mijn leven, *en wat is* het geslacht van mijn vader in IsraÃ«l, dat ik de schoonzoon van de koning zou worden?
+19. In de tijd dat men Merab, de dochter van Saul, aan David zou geven, gebeurde het echter dat zij aan AdriÃ«l uit Mehola tot vrouw gegeven werd.
 20. Maar Michal, de dochter van Saul, hield van David. Toen dat aan Saul werd verteld, was dat een goede zaak in zijn ogen.
 21. Saul zei: Ik zal haar aan hem geven. Dan zal zij hem tot een valstrik zijn en dan zal de hand van de Filistijnen tegen hem zijn. Daarom zei Saul tegen David: Door de andere *dochter* kun je vandaag mijn schoonzoon worden.
 22. Saul gebood zijn dienaren: Zeg in het geheim tegen David: Zie, de koning is u genegen, en al zijn dienaren houden van u, word daarom de schoonzoon van de koning.

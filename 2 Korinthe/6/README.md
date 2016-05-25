@@ -9,7 +9,7 @@
 8. door eer en oneer, door kwaad gerucht en goed gerucht; als misleiders en *toch* waarachtigen;
 9. als onbekenden en *toch* bekenden; als stervenden, en zie, wij leven; als bestraft en *toch* niet gedood;
 10. als bedroefden, maar *toch* steeds blij; als armen, maar die *toch* velen rijk maken; als mensen die niets hebben en *toch* alles bezitten.
-11. Onze mond heeft zich *vrijmoedig* voor u geopend, Korinthiërs, ons hart staat wijd open.
+11. Onze mond heeft zich *vrijmoedig* voor u geopend, KorinthiÃ«rs, ons hart staat wijd open.
 12. U neemt geen kleine plaats in ons *hart* in, maar *zelf* bent u enghartig.
 13. Zet dan ook van uw kant - ik spreek als tot *mijn* kinderen - uw *hart* wijd open.
 14. Vorm geen ongelijk span met ongelovigen, want wat heeft gerechtigheid gemeenschappelijk met wetteloosheid, en welke gemeenschap is er tussen licht en duisternis?

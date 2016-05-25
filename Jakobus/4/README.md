@@ -10,7 +10,7 @@
 9. Besef uw ellendige staat en treur en huil. Laat uw lachen veranderd worden in treuren en *uw* blijdschap in droefheid.
 10. Verneder u voor de Heere, en Hij zal u verhogen.
 11. Broeders, spreek geen kwaad van elkaar. Wie van zijn broeder kwaadspreekt en over zijn broeder oordeelt, spreekt kwaad over de wet en oordeelt over de wet. Als u over de wet oordeelt, bent u geen dader van de wet, maar een rechter.
-12. Er is één Wetgever, *namelijk* Hij Die kan zalig maken én te gronde richten. Maar wie bent u, die over de ander oordeelt?
+12. Er is Ã©Ã©n Wetgever, *namelijk* Hij Die kan zalig maken Ã©n te gronde richten. Maar wie bent u, die over de ander oordeelt?
 13. En nu dan u die zegt: Wij zullen vandaag of morgen naar die en die stad reizen, en daar een jaar doorbrengen en handeldrijven en winst maken,
 14. u, die niet weet wat er morgen *gebeuren zal,* want hoe is uw leven? Het is immers een damp, die voor een korte *tijd* verschijnt en daarna verdwijnt.
 15. In plaats daarvan zou u moeten zeggen: Als de Heere wil en wij leven, dan zullen wij dit of dat doen.

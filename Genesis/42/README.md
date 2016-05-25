@@ -3,15 +3,15 @@
 2. Verder zei hij: Zie, ik heb gehoord dat er koren in Egypte is; trek erheen en koop daar koren voor ons, zodat wij in leven blijven en niet sterven.
 3. Toen vertrokken tien broers van Jozef om koren uit Egypte te kopen.
 4. Maar Benjamin, de broer van Jozef, stuurde Jakob niet met zijn broers mee, want hij zei: Anders zou hem een ongeluk kunnen overkomen!
-5. Zo kwamen de zonen van IsraÎl *daar* aan om koren te kopen, te midden van *anderen* die kwamen, want er was hongersnood in het land Kana‰n.
+5. Zo kwamen de zonen van Isra√´l *daar* aan om koren te kopen, te midden van *anderen* die kwamen, want er was hongersnood in het land Kana√§n.
 6. En Jozef - hij was de machthebber over dat land; hij verkocht koren aan de hele bevolking van het land. De broers van Jozef kwamen en bogen zich voor hem neer *met* het gezicht ter aarde.
-7. Toen Jozef zijn broers zag, herkende hij hen, maar hij deed zich tegenover hen voor als een vreemde en sprak harde *woorden* tot hen. Hij zei tegen hen: Waar komt u vandaan? Zij zeiden: Uit het land Kana‰n, om voedsel te kopen.
+7. Toen Jozef zijn broers zag, herkende hij hen, maar hij deed zich tegenover hen voor als een vreemde en sprak harde *woorden* tot hen. Hij zei tegen hen: Waar komt u vandaan? Zij zeiden: Uit het land Kana√§n, om voedsel te kopen.
 8. Jozef herkende zijn broers, maar zij herkenden hem niet.
 9. Toen dacht Jozef aan de dromen die hij over hen gekregen had, en hij zei tegen hen: U bent spionnen, u bent gekomen om de onbeschermde plekken van het land te bekijken.
 10. Zij zeiden tegen hem: Nee, mijn heer, uw dienaren zijn gekomen om voedsel te kopen.
-11. Wij zijn allemaal zonen van ÈÈn man; wij zijn eerlijke *mensen*, uw dienaren zijn geen spionnen.
-12. Maar hij zei tegen hen: Nee, u bent wÈl gekomen om de onbeschermde plekken van het land te bekijken.
-13. Zij zeiden: Wij, uw dienaren, waren twaalf broers, zonen van ÈÈn man in het land Kana‰n; en zie, de jongste is heden *nog* bij onze vader, en een is er niet *meer*.
+11. Wij zijn allemaal zonen van √©√©n man; wij zijn eerlijke *mensen*, uw dienaren zijn geen spionnen.
+12. Maar hij zei tegen hen: Nee, u bent w√©l gekomen om de onbeschermde plekken van het land te bekijken.
+13. Zij zeiden: Wij, uw dienaren, waren twaalf broers, zonen van √©√©n man in het land Kana√§n; en zie, de jongste is heden *nog* bij onze vader, en een is er niet *meer*.
 14. Maar Jozef zei tegen hen: Het is *zoals* ik tot u gesproken heb: U bent spionnen!
 15. Hiermee zult beproefd worden: *Zo waar* de farao leeft, u zult niet vanhier vertrekken, tenzij dat uw jongste broer hier komt!
 16. Stuur er een van u *terug* om uw broer te halen, terwijl u gevangen blijft. Zo zullen uw woorden beproefd worden, *om te zien* of u de waarheid *spreekt*. Zo niet, *zo waar* de farao leeft, dan bent u spionnen!
@@ -20,17 +20,17 @@
 19. Als u eerlijke *mensen* bent, laat dan een van uw broers gevangen blijven in het huis waar u in hechtenis bent. U echter, ga koren brengen om de honger van uw gezinnen *te stillen*.
 20. En breng uw jongste broer naar mij toe; dan zullen uw woorden bewaarheid worden, en zult u niet sterven. En zij deden zo.
 21. Toen zeiden zij tegen elkaar: Werkelijk, wij zijn schuldig vanwege onze broer. Wij zagen zijn zielsbenauwdheid toen hij ons om genade smeekte, maar wij gaven hem geen gehoor! Daarom komt deze benauwdheid over ons.
-22. Ruben antwoordde hun: Heb ik het jullie niet gezegd: Bezondig je niet aan deze jongen! Maar jullie luisterden niet; zie, nu wordt er vergelding geÎist voor zijn bloed!
+22. Ruben antwoordde hun: Heb ik het jullie niet gezegd: Bezondig je niet aan deze jongen! Maar jullie luisterden niet; zie, nu wordt er vergelding ge√´ist voor zijn bloed!
 23. Zij wisten echter niet dat Jozef het verstond, want er was een tolk tussen hen.
 24. Toen wendde hij zich van hen af en huilde. Daarna keerde hij naar hen terug en sprak met hen; hij nam Simeon uit hun midden en *liet* hem voor hun ogen vastbinden.
 25. Jozef gaf opdracht hun zakken met koren te vullen, bij ieder het geld in zijn zak terug te leggen en hun proviand voor onderweg te geven; en zo deed men voor hen.
 26. Zij laadden hun koren op hun ezels en gingen vandaar op weg.
 27. Toen een *van hen* zijn zak opendeed om in de herberg zijn ezel voer te geven, zag hij zijn geld; zie, het lag boven in zijn zak!
 28. Hij zei tegen zijn broers: Mijn geld is teruggelegd! Zie toch, het zit in mijn zak! Toen ontzonk hun de moed, en bevend zeiden zij tegen elkaar: Wat is dit *dat* God ons heeft aangedaan?
-29. En zij kwamen in het land Kana‰n bij hun vader Jakob, en zij vertelden hem al wat hun overkomen was:
+29. En zij kwamen in het land Kana√§n bij hun vader Jakob, en zij vertelden hem al wat hun overkomen was:
 30. Die man, de heer van dat land, sprak harde *woorden* tegen ons en hield ons voor spionnen van het land.
 31. Maar wij zeiden tegen hem: Wij zijn eerlijke *mensen*, wij zijn geen spionnen.
-32. Wij waren twaalf broers, zonen van onze vader; een is er niet *meer*, en de jongste is heden *nog* bij onze vader in het land Kana‰n.
+32. Wij waren twaalf broers, zonen van onze vader; een is er niet *meer*, en de jongste is heden *nog* bij onze vader in het land Kana√§n.
 33. Toen zei die man, de heer van dat land, tegen ons: Hierdoor zal ik te weten komen dat u eerlijke *mensen* bent: laat een van uw broers bij mij, neem *koren* mee om de honger van uw gezinnen *te stillen*, en ga *op weg*.
 34. Breng uw jongste broer naar mij toe; dan zal ik weten dat u geen spionnen bent, maar eerlijke *mensen*. Uw broer zal ik aan u teruggeven, en u kunt *vrij* in dit land rondtrekken.
 35. En het gebeurde, toen zij hun zakken leegmaakten, zie, ieders geldbuidel zat in zijn zak! Zij zagen hun geldbuidels, zij en hun vader, en zij werden bevreesd.

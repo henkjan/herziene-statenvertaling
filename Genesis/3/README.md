@@ -20,6 +20,6 @@
 19. In het zweet van uw gezicht zult u brood eten, totdat u tot de aardbodem terugkeert, omdat u daaruit genomen bent; want stof bent u en u zult tot stof terugkeren.
 20. En Adam gaf zijn vrouw de naam Eva, omdat zij moeder van alle levenden is.
 21. En de HEERE God maakte voor Adam en voor zijn vrouw kleren van huiden en kleedde hen *daarmee*.
-22. Toen zei de HEERE God: Zie, de mens is geworden als één van Ons, omdat hij goed en kwaad kent. Nu dan, laat hij zijn hand niet uitsteken en ook van de boom des levens nemen en eten, zodat hij eeuwig zou leven!
+22. Toen zei de HEERE God: Zie, de mens is geworden als Ã©Ã©n van Ons, omdat hij goed en kwaad kent. Nu dan, laat hij zijn hand niet uitsteken en ook van de boom des levens nemen en eten, zodat hij eeuwig zou leven!
 23. Daarom zond de HEERE God hem weg uit de hof van Eden, om de aardbodem te bewerken, waaruit hij genomen was.
 24. Hij verdreef de mens, en plaatste ten oosten van de hof van Eden de cherubs met een vlammend zwaard, dat heen en weer bewoog, om de weg naar de boom des levens te bewaken.

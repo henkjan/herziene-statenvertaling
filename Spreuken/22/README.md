@@ -8,7 +8,7 @@
 7. Een rijke heerst over armen, en wie leent, wordt slaaf van de uitlener. 
 8. Wie onrecht zaait, zal onheil oogsten, en de stok van zijn verbolgenheid zal vergaan. 
 9. Wie gunnend is, die wordt gezegend, want hij geeft van zijn brood aan de armen. 
-10. Verdrijf een spotter, en de ruzie is weg, en het geschil zal mét de schande ophouden. 
+10. Verdrijf een spotter, en de ruzie is weg, en het geschil zal mÃ©t de schande ophouden. 
 11. Wie reinheid van hart liefheeft, en vriendelijkheid van zijn lippen: een koning is zijn vriend. 
 12. De ogen van de HEERE behoeden kennis, maar de zaken van de trouweloze stort Hij *in het verderf*. 
 13. Een luiaard zegt: Er is een leeuw op straat, midden op de pleinen zal ik gedood worden! 

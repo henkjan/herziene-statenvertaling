@@ -1,5 +1,5 @@
 #Filemon 1
-1. Paulus, een gevangene van Christus Jezus, en Timotheüs, de broeder, aan Filemon, de geliefde en onze medearbeider,
+1. Paulus, een gevangene van Christus Jezus, en TimotheÃ¼s, de broeder, aan Filemon, de geliefde en onze medearbeider,
 2. en aan Appia, de geliefde, en aan Archippus, onze medestrijder, en aan de gemeente, *die* bij u thuis *samenkomt*:
 3. genade *zij* u en vrede van God, onze Vader, en van de Heere Jezus Christus.
 4. Ik dank mijn God, terwijl ik steeds in mijn gebeden aan u denk.

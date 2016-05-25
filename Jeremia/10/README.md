@@ -1,12 +1,12 @@
 #Jeremia 10
-1. Hoor het woord dat de HEERE tot u spreekt, huis van Israël.
+1. Hoor het woord dat de HEERE tot u spreekt, huis van IsraÃ«l.
 2. Zo zegt de HEERE: U mag u de weg van de heidenvolken niet aanleren, en u niet ontstellen door de tekenen aan de hemel, omdat de heidenvolken zich daardoor ontstellen. 
 3. Want de gebruiken van die volken zijn onzinnig: het is immers een stuk hout, *iemand* heeft het uit het bos gekapt, vakwerk met de bijl. 
 4. Met zilver en met goud maken ze het mooi, met spijkers en met hamers zetten ze het vast, zodat het niet kan wiebelen. 
 5. Zij zijn als een vogelverschrikker op een komkommerveld, want spreken kunnen zij niet. Zij moeten helemaal gedragen worden, want zij kunnen geen stap verzetten. Wees niet bevreesd voor hen, want kwaad kunnen zij niet doen, maar ook goeddoen is er bij hen niet bij. 
 6. Niemand, HEERE, is U gelijk, groot bent U en groot is Uw Naam in sterkte. 
 7. Wie zou U niet vrezen, Koning van de heidenvolken? Want *dat* komt U toe. Immers, onder al de wijzen van de heidenvolken en in heel hun koninkrijk is niemand U gelijk. 
-8. In één ding zijn zij toch dom en dwaas: onderwijs in onzinnigheid, hout is het! 
+8. In Ã©Ã©n ding zijn zij toch dom en dwaas: onderwijs in onzinnigheid, hout is het! 
 9. Geplet zilver wordt uit Tarsis gebracht en goud uit Ufaz; werk van een vakman, en van de handen van een edelsmid, - blauwpurper en roodpurper is hun gewaad - alles is het werk van kundige *mensen*. 
 10. De HEERE God is echter de Waarheid, Hij is de levende God, een eeuwig Koning. Voor Zijn grote toorn beeft de aarde, de heidenvolken kunnen Zijn gramschap niet verdragen. 
 11. Dit moet u tegen hen zeggen: De goden die de hemel en de aarde niet gemaakt hebben, die zullen van de aarde en van onder deze hemel vergaan. 
@@ -14,7 +14,7 @@
 13. Als Hij Zijn stem laat klinken, *dan* is er gedruis van wateren aan de hemel. Hij doet dampen opstijgen van het einde van de aarde. Hij heeft bliksemflitsen bij de regen gemaakt. De wind brengt Hij uit Zijn schatkamers tevoorschijn. 
 14. Ieder mens is dom geworden, zonder kennis, elke edelsmid is beschaamd over *zijn* beeld. Zijn gegoten beeld is immers bedrog: er zit in hen geen adem. 
 15. Nietig zijn zij, bespottelijk werk, ten tijde van hun vergelding zullen zij vergaan. 
-16. *Maar* het Deel van Jakob is niet als zij, want Hij is Formeerder van alles, en Israël is de stam *die* Zijn eigendom is, HEERE van de legermachten is Zijn Naam.
+16. *Maar* het Deel van Jakob is niet als zij, want Hij is Formeerder van alles, en IsraÃ«l is de stam *die* Zijn eigendom is, HEERE van de legermachten is Zijn Naam.
 17. Verzamel uit het land uw handelswaar, u die in de vesting woont. 
 18. Want zo zegt de HEERE: Zie, Ik ga de inwoners van het land deze keer wegslingeren. Ik zal hen benauwen, dat zij het ondervinden. 
 19. Wee mij om mijn breuk, mijn wond is pijnlijk. En ik had zelf gezegd: Zeker, dit is een ziekte, ik moet die dragen. 

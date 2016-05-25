@@ -1,5 +1,5 @@
 #Romeinen 10
-1. Broeders, de oprechte wens van mijn hart en *mijn* gebed tot God voor Israël is gericht op *hun* zaligheid.
+1. Broeders, de oprechte wens van mijn hart en *mijn* gebed tot God voor IsraÃ«l is gericht op *hun* zaligheid.
 2. Want ik getuig van hen dat zij ijver voor God hebben, maar niet met *het juiste* inzicht.
 3. Omdat zij immers de gerechtigheid van God niet kennen en een eigen gerechtigheid tot stand proberen te brengen, hebben zij zich niet aan de gerechtigheid van God onderworpen.
 4. Want het einddoel van de wet is Christus, tot gerechtigheid voor ieder die gelooft.
@@ -17,6 +17,6 @@
 16. Maar zij zijn niet allen het Evangelie gehoorzaam geweest. Jesaja zegt namelijk: Heere, wie heeft onze prediking geloofd?
 17. Zo *is* dan het geloof uit het gehoor en het gehoor door het Woord van God.
 18. Maar ik zeg: Hebben zij het *dan* echt niet gehoord? Zeker wel: Hun geluid is over heel de aarde uitgegaan, en hun woorden tot de einden van de wereld.
-19. Maar ik zeg: Heeft Israël het *dan* niet begrepen? Ten eerste is het Mozes die zegt: Ik zal u tot jaloersheid verwekken door wat geen volk is; door een onverstandig volk zal Ik u tot toorn verwekken.
+19. Maar ik zeg: Heeft IsraÃ«l het *dan* niet begrepen? Ten eerste is het Mozes die zegt: Ik zal u tot jaloersheid verwekken door wat geen volk is; door een onverstandig volk zal Ik u tot toorn verwekken.
 20. En Jesaja durft het aan te zeggen: Ik ben gevonden door hen die Mij niet zochten, Ik heb Mij geopenbaard aan hen die naar Mij niet vroegen.
-21. Met het oog op Israël zegt Hij echter: Heel de dag heb Ik Mijn handen uitgebreid naar een ongehoorzaam en tegensprekend volk.
+21. Met het oog op IsraÃ«l zegt Hij echter: Heel de dag heb Ik Mijn handen uitgebreid naar een ongehoorzaam en tegensprekend volk.

@@ -1,7 +1,7 @@
 #Markus 14
 1. En na twee dagen was het Pascha en het *feest* van de ongezuurde *broden*. En de overpriesters en de schriftgeleerden zochten naar een manier om Hem door een list te grijpen en te doden.
 2. Maar zij zeiden: Niet tijdens het feest, opdat er niet misschien opschudding onder het volk ontstaat.
-3. En toen Hij in Bethanië was, in het huis van Simon de melaatse, kwam er, toen Hij aanlag, een vrouw met een albasten fles met zuivere, kostbare narduszalf en nadat zij de albasten fles gebroken had, goot zij hem uit op Zijn hoofd.
+3. En toen Hij in BethaniÃ« was, in het huis van Simon de melaatse, kwam er, toen Hij aanlag, een vrouw met een albasten fles met zuivere, kostbare narduszalf en nadat zij de albasten fles gebroken had, goot zij hem uit op Zijn hoofd.
 4. En er waren er sommigen die verontwaardigd waren bij zichzelf en zeiden: Waartoe diende deze verkwisting van de zalf?
 5. Want die had voor meer dan driehonderd penningen verkocht en aan de armen gegeven kunnen worden; en zij vielen scherp tegen haar uit.
 6. Maar Jezus zei: Laat haar met rust. Waarom valt u haar lastig? Zij heeft een goed werk aan Mij verricht.
@@ -30,12 +30,12 @@
 29. En Petrus zei tegen Hem: Ook al zullen allen aanstoot *aan U* nemen, ik echter niet.
 30. En Jezus zei tegen hem: Voorwaar, Ik zeg u dat u vandaag, in deze nacht, voordat de haan twee keer gekraaid zal hebben, Mij driemaal zult verloochenen.
 31. Maar hij zei nog krachtiger: Al moest ik met U sterven, ik zal U beslist niet verloochenen! En evenzo spraken zij ook allen.
-32. En zij kwamen op een plaats waarvan de naam Gethsémané was, en Hij zei tegen Zijn discipelen: Ga hier zitten totdat Ik gebeden zal hebben.
+32. En zij kwamen op een plaats waarvan de naam GethsÃ©manÃ© was, en Hij zei tegen Zijn discipelen: Ga hier zitten totdat Ik gebeden zal hebben.
 33. En Hij nam Petrus, Jakobus en Johannes met Zich mee en begon ontdaan en zeer angstig te worden;
 34. en Hij zei tegen hen: Mijn ziel is zeer bedroefd, tot de dood toe; blijf hier en waak.
 35. En toen Hij iets verder gegaan was, wierp Hij Zich ter aarde en bad dat, als het mogelijk was, dat uur aan Hem voorbij zou gaan.
 36. En Hij zei: Abba, Vader, alle dingen zijn mogelijk voor U; neem deze drinkbeker van Mij weg, maar niet wat Ik wil, maar wat U *wilt*.
-37. En Hij kwam en trof hen slapend aan en Hij zei tegen Petrus: Simon, slaapt u? Was u niet in staat één uur te waken?
+37. En Hij kwam en trof hen slapend aan en Hij zei tegen Petrus: Simon, slaapt u? Was u niet in staat Ã©Ã©n uur te waken?
 38. Waak *allen* en bid, opdat u niet in verzoeking komt; de geest *is* wel gewillig, maar het vlees is zwak.
 39. En toen Hij weer weggegaan was, bad Hij en sprak dezelfde woorden.
 40. En toen Hij terugkwam, trof Hij hen opnieuw slapend aan, want hun ogen waren zwaar geworden; en zij wisten niet wat zij Hem moesten antwoorden.
@@ -68,6 +68,6 @@
 67. en toen zij Petrus zich zag warmen, keek zij hem aan en zei: Ook u was bij Jezus de Nazarener.
 68. Maar hij ontkende het en zei: Ik ken *Hem* niet, en ik weet niet wat u zegt. En hij ging naar buiten, naar het voorportaal, en de haan kraaide.
 69. En toen het dienstmeisje hem opnieuw zag, begon zij te zeggen tegen hen die daarbij stonden: Hij is een van hen.
-70. Maar hij ontkende het opnieuw. En kort daarna zeiden zij die daarbij stonden, opnieuw tegen Petrus: Werkelijk, u bent een van hen, want u bent ook een Galileeër en uw spraak vertoont overeenkomst.
+70. Maar hij ontkende het opnieuw. En kort daarna zeiden zij die daarbij stonden, opnieuw tegen Petrus: Werkelijk, u bent een van hen, want u bent ook een GalileeÃ«r en uw spraak vertoont overeenkomst.
 71. En hij begon *zichzelf* te vervloeken en te zweren: Ik ken deze Mens niet over Wie u spreekt.
 72. En de haan kraaide voor de tweede keer; en Petrus herinnerde zich het woord dat Jezus tegen hem gezegd had: Voordat de haan twee keer gekraaid zal hebben, zult u Mij driemaal verloochenen. En toen *dat* tot hem doordrong, begon hij te huilen.

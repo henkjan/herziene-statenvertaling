@@ -1,7 +1,7 @@
 #Psalmen 98
 1. Een psalm. Zing voor de HEERE een nieuw lied, want Hij heeft wonderen gedaan; Zijn rechterhand en Zijn heilige arm hebben Hem heil gebracht. 
 2. De HEERE heeft Zijn heil bekendgemaakt en Zijn gerechtigheid geopenbaard voor de ogen van de heidenvolken. 
-3. Hij heeft gedacht aan Zijn goedertierenheid en trouw voor het huis van Israël; alle einden der aarde hebben gezien het heil van onze God. 
+3. Hij heeft gedacht aan Zijn goedertierenheid en trouw voor het huis van IsraÃ«l; alle einden der aarde hebben gezien het heil van onze God. 
 4. Juich voor de HEERE, heel de aarde, breek uit *in gejuich*, zing vrolijk en zing psalmen. 
 5. Zing psalmen voor de HEERE met de harp, met de harp en met luid psalmgezang, 
 6. met trompetten en bazuingeschal, juich voor het aangezicht van de Koning, de HEERE. 

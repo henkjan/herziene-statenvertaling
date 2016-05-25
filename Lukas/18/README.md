@@ -8,19 +8,19 @@
 7. Zal God dan geen recht doen aan Zijn uitverkorenen, die nacht en dag tot Hem roepen, hoewel Hij hen *soms* lang laat wachten?
 8. Ik zeg u dat Hij hun met spoed recht zal doen. Maar zal de Zoon des mensen, als Hij komt, wel het geloof op de aarde vinden?
 9. En Hij sprak ook met het oog op sommigen die van zichzelf overtuigd waren dat zij rechtvaardig waren en *alle* anderen minachtten, deze gelijkenis:
-10. Twee mensen gingen naar de tempel om te bidden. De één was een Farizeeër en de ander een tollenaar.
-11. De Farizeeër stond *daar* en bad dit bij zichzelf: O God, ik dank U dat ik niet ben zoals de andere mensen: rovers, onrechtvaardigen, overspelers of ook als deze tollenaar.
+10. Twee mensen gingen naar de tempel om te bidden. De Ã©Ã©n was een FarizeeÃ«r en de ander een tollenaar.
+11. De FarizeeÃ«r stond *daar* en bad dit bij zichzelf: O God, ik dank U dat ik niet ben zoals de andere mensen: rovers, onrechtvaardigen, overspelers of ook als deze tollenaar.
 12. Ik vast tweemaal per week. Ik geef tienden van alles wat ik bezit.
 13. En de tollenaar bleef op een afstand staan en wilde ook zelfs zijn ogen niet naar de hemel opheffen, maar sloeg op zijn borst en zei: O God, wees mij, de zondaar, genadig.
 14. Ik zeg u: Deze *man* ging gerechtvaardigd *terug* naar zijn huis, in tegenstelling tot die *andere*. Want ieder die zichzelf verhoogt, zal vernederd worden en wie zichzelf vernedert, zal verhoogd worden.
 15. En zij brachten ook de jonge kinderen bij Hem, opdat Hij die zou aanraken. En toen de discipelen dat zagen, bestraften ze hen.
 16. Jezus echter riep die *kleinen* tot Zich en zei: Laat de kleine kinderen tot Mij komen en verhinder hen niet, want voor zulke *mensen* is het Koninkrijk van God.
 17. Voorwaar zeg Ik u: Wie het Koninkrijk van God niet ontvangt als een kind, zal daarin beslist niet binnengaan.
-18. En een leidinggevende vroeg Hem en zei: Goede Meester, wat moet ik doen om het eeuwige leven te beërven?
-19. En Jezus zei tegen hem: Waarom noemt u Mij goed? Niemand is goed behalve Eén, *namelijk* God.
+18. En een leidinggevende vroeg Hem en zei: Goede Meester, wat moet ik doen om het eeuwige leven te beÃ«rven?
+19. En Jezus zei tegen hem: Waarom noemt u Mij goed? Niemand is goed behalve EÃ©n, *namelijk* God.
 20. U kent de geboden: U zult geen overspel plegen, u zult niet doden, u zult niet stelen, u zult geen vals getuigenis afleggen, eer uw vader en uw moeder.
 21. En hij zei: Al deze dingen heb ik in acht genomen vanaf mijn jeugd.
-22. Maar toen Jezus dit hoorde, zei Hij tegen hem: Nog één ding ontbreekt u: Verkoop al wat u hebt en deel het uit onder de armen en u zult een schat hebben in de hemel. En kom *dan* en volg Mij.
+22. Maar toen Jezus dit hoorde, zei Hij tegen hem: Nog Ã©Ã©n ding ontbreekt u: Verkoop al wat u hebt en deel het uit onder de armen en u zult een schat hebben in de hemel. En kom *dan* en volg Mij.
 23. Maar toen hij dit hoorde, werd hij diep bedroefd, want hij was erg rijk.
 24. Toen nu Jezus zag dat hij diep bedroefd was geworden, zei Hij: Hoe moeilijk kunnen zij die rijkdommen hebben, het Koninkrijk van God binnengaan.
 25. Want het is gemakkelijker dat een kameel gaat door het oog van een naald, dan dat een rijke het Koninkrijk van God binnengaat.

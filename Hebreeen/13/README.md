@@ -21,6 +21,6 @@
 20. De God nu van de vrede, Die de grote Herder van de schapen, onze Heere Jezus Christus, uit de doden heeft teruggebracht, op grond van het bloed van het eeuwige verbond,
 21. moge u toerusten tot elk goed werk om Zijn wil te doen, en in u werken wat in Zijn ogen welbehaaglijk is, door Jezus Christus. Hem zij de heerlijkheid in alle eeuwigheid. Amen.
 22. Overigens roep ik u ertoe op, broeders, deze woorden van vermaning te verdragen, ook al heb ik u slechts in het kort geschreven.
-23. U moet weten dat broeder Timotheüs losgelaten is. Samen met hem zal ik u zien, zodra hij komt.
-24. Groet al uw voorgangers en al de heiligen. De broeders uit Italië groeten u.
+23. U moet weten dat broeder TimotheÃ¼s losgelaten is. Samen met hem zal ik u zien, zodra hij komt.
+24. Groet al uw voorgangers en al de heiligen. De broeders uit ItaliÃ« groeten u.
 25. De genade *zij* met u allen. Amen.

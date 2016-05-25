@@ -18,5 +18,5 @@
 17. Beveel de rijken in deze tegenwoordige wereld dat zij niet hoogmoedig zijn, en *hun* hoop niet gevestigd houden op de onzekerheid van de rijkdom, maar op de levende God, Die ons alle dingen in rijke mate verschaft om *ervan* te genieten;
 18. *ook* om goed te doen, rijk te zijn in goede werken, vrijgevig te zijn en bereid om samen te delen.
 19. Zo verzamelen zij voor zichzelf een schat: een goed fundament voor de toekomst, opdat zij het eeuwige leven verkrijgen.
-20. O Timotheüs, bewaar het *u* toevertrouwde pand, wend u af van onheilige, inhoudsloze praat en tegenstellingen van de ten onrechte zo genoemde kennis.
+20. O TimotheÃ¼s, bewaar het *u* toevertrouwde pand, wend u af van onheilige, inhoudsloze praat en tegenstellingen van de ten onrechte zo genoemde kennis.
 21. Sommigen, die *deze kennis* verkondigden, zijn van het geloof afgeweken. De genade *zij* met u. Amen.

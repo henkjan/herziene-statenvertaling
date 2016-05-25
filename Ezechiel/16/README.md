@@ -1,7 +1,7 @@
 #Ezechiel 16
 1. Het woord van de HEERE kwam tot mij:
 2. Mensenkind, laat Jeruzalem zijn gruweldaden weten,
-3. en zeg: Zo zegt de Heere HEERE tegen Jeruzalem: Uw oorsprong en uw geboorte zijn uit het land van de Kana‰nieten. Uw vader was die Amoriet en uw moeder een Hethitische.
+3. en zeg: Zo zegt de Heere HEERE tegen Jeruzalem: Uw oorsprong en uw geboorte zijn uit het land van de Kana√§nieten. Uw vader was die Amoriet en uw moeder een Hethitische.
 4. Wat uw geboorte betreft, op de dag dat u geboren werd, werd uw navelstreng niet afgesneden, werd u niet met water schoongewassen, werd u ook al niet met zout ingewreven, en al helemaal niet in doeken gewikkeld.
 5. Geen oog zag naar u om, om een van die dingen uit medelijden bij u te doen. U werd weggeworpen op het open veld uit afschuw voor uw leven op de dag dat u geboren werd.
 6. Toen Ik voorbij u kwam, zag Ik u trappelend in uw bloed en Ik zei tegen u in uw bloed: Leef! Ja, Ik zei tegen u in uw bloed: Leef!
@@ -26,7 +26,7 @@
 25. Bij elk kruispunt bouwde u uw hoogten. U misbruikte uw schoonheid afschuwelijk, u spreidde uw benen voor ieder die voorbij trekt en maakte uw hoererijen talrijk.
 26. U bedreef hoererij met de Egyptenaren, uw zwaargeschapen buren. U maakte uw hoererijen talrijk, zodat u Mij tot toorn verwekte.
 27. Zie, daarop strekte Ik Mijn hand tegen u uit en verminderde het u toegewezen deel, en Ik gaf u over aan de willekeur van hen die u haten, aan de dochters van de Filistijnen, die te schande werden vanwege uw schandelijk gedrag.
-28. Daarna bedreef u hoererij met de AssyriÎrs, omdat u onverzadigbaar was. U bleef hoererij met hen bedrijven, en nog raakte u niet verzadigd.
+28. Daarna bedreef u hoererij met de Assyri√´rs, omdat u onverzadigbaar was. U bleef hoererij met hen bedrijven, en nog raakte u niet verzadigd.
 29. Vervolgens maakte u uw hoererij talrijk tot in het land van de kooplieden, Chaldea. En ook daardoor raakte u niet verzadigd.
 30. Wat moet uw hart verkommerd zijn - spreekt de Heere HEERE - bij het doen van dit alles: werk van een schaamteloze vrouw die een hoer is!
 31. Toen u uw verhoging bouwde op elk kruispunt en uw hoogte maakte op elk plein, was u, door met het hoerenloon de spot te drijven, niet als een *echte* hoer.
@@ -55,10 +55,10 @@
 54. opdat u uw smaad draagt en te schande wordt vanwege alles wat u gedaan hebt, wanneer u hen troost.
 55. Wanneer uw zusters, Sodom en haar dochters, zullen terugkeren naar hun vorige staat, en Samaria en haar dochters zullen terugkeren naar hun vorige staat, dan zullen *ook* u en uw dochters terugkeren naar uw vorige staat.
 56. Op de dag van uw trots is *de naam van* uw zuster Sodom niet over uw lippen gekomen,
-57. voordat uw kwaad openbaar werd! Zo is het de tijd voor de smaad van de dochters van SyriÎ en van allen rondom haar, *en* van de dochters van de Filistijnen, die u van rondom verachten.
-58. ⁄ zult uw schandelijk gedrag en uw gruweldaden dragen, spreekt de HEERE.
+57. voordat uw kwaad openbaar werd! Zo is het de tijd voor de smaad van de dochters van Syri√´ en van allen rondom haar, *en* van de dochters van de Filistijnen, die u van rondom verachten.
+58. √ö zult uw schandelijk gedrag en uw gruweldaden dragen, spreekt de HEERE.
 59. Want zo zegt de Heere HEERE: Ik zal met u doen zoals u gedaan hebt: u hebt de eed veracht door het verbond te verbreken.
-60. Toch zal Õk denken aan Mijn verbond met u in de dagen van uw jeugd. Ik zal met u een eeuwig verbond maken.
+60. Toch zal √çk denken aan Mijn verbond met u in de dagen van uw jeugd. Ik zal met u een eeuwig verbond maken.
 61. Dan zult u zich uw wegen herinneren en te schande worden, wanneer u uw zusters die ouder zijn dan u en degenen die jonger zijn dan u, hebt aangenomen. Ik zal u hen tot dochters geven, maar niet op grond van het verbond met u.
-62. Want Õk zal met u Mijn verbond maken. Dan zult u weten dat Ik de HEERE ben,
+62. Want √çk zal met u Mijn verbond maken. Dan zult u weten dat Ik de HEERE ben,
 63. opdat u *eraan* denkt, u schaamt en uw mond niet meer opendoet vanwege uw smaad, wanneer Ik voor u verzoening doe over alles wat u gedaan hebt, spreekt de Heere HEERE.

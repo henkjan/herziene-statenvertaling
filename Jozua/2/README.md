@@ -1,6 +1,6 @@
 #Jozua 2
 1. Daarna stuurde Jozua, de zoon van Nun, er vanuit Sittim in het geheim twee mannen als verkenners op uit, *en* zei: Ga *op weg*, bekijk het land en Jericho. Zij gingen en kwamen in het huis van een vrouw, een hoer, van wie de naam Rachab was, en zij sliepen daar.
-2. Toen werd tegen de koning van Jericho gezegd: Zie, er zijn hier deze nacht mannen gekomen van de Israëlieten om het land te verkennen.
+2. Toen werd tegen de koning van Jericho gezegd: Zie, er zijn hier deze nacht mannen gekomen van de IsraÃ«lieten om het land te verkennen.
 3. Daarop stuurde de koning van Jericho *boden* naar Rachab om te zeggen: Breng de mannen naar buiten die naar u toe gekomen zijn *en* die uw huis zijn binnengegaan, want zij zijn gekomen om het hele land te verkennen.
 4. Maar de vrouw had die beide mannen ontvangen en zij had hen verborgen. Zij zei: Inderdaad zijn er mannen naar mij toe gekomen, maar ik wist niet waar zij vandaan *kwamen*.
 5. En het gebeurde bij het sluiten van de poort, toen het donker was, dat die mannen naar buiten gingen. Ik weet niet waar die mannen heen gegaan zijn. Achtervolg hen snel, u zult hen zeker inhalen.
@@ -17,7 +17,7 @@
 16. En zij zei tegen hen: Ga naar het bergland, anders treffen de achtervolgers u aan. Verberg u daar drie dagen, totdat de achtervolgers teruggekeerd zijn. Daarna kunt u uw weg vervolgen.
 17. De mannen zeiden tegen haar: Wij zullen vrij zijn van deze eed aan u, die u ons hebt laten zweren, *tenzij u het volgende doet*:
 18. Zie, als wij in het land komen, moet u dit koord van scharlaken draad aan het venster binden waardoor u ons hebt neergelaten. En verzamel bij u in huis uw vader, uw moeder, uw broers en heel uw familie.
-19. Dan zal het gebeuren *dat* het bloed van al wie uit de deuren van uw huis naar buiten gaat, op zijn *eigen* hoofd zal rusten, en wij zullen vrij zijn *van deze eed*. Maar van iedereen die bij u in huis is, zal zijn bloed op ons hoofd rusten, als *ook maar* één hand zich tegen hem keert.
+19. Dan zal het gebeuren *dat* het bloed van al wie uit de deuren van uw huis naar buiten gaat, op zijn *eigen* hoofd zal rusten, en wij zullen vrij zijn *van deze eed*. Maar van iedereen die bij u in huis is, zal zijn bloed op ons hoofd rusten, als *ook maar* Ã©Ã©n hand zich tegen hem keert.
 20. Maar als u deze zaak van ons bekendmaakt, dan zullen wij vrij zijn van uw eed, die u ons hebt laten zweren.
 21. Zij zei daarop: Laat het zijn zoals u gezegd hebt. Toen liet zij hen gaan, en zij gingen weg. En zij bond het scharlaken koord aan het venster.
 22. Zij gingen weg, kwamen in het bergland en bleven daar drie dagen, totdat de achtervolgers teruggekeerd waren. Want de achtervolgers hadden hen op heel de weg gezocht maar niet gevonden.

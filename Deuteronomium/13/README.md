@@ -9,11 +9,11 @@
 8. bewillig er dan niet in en luister niet naar hem! Laat uw oog hem niet ontzien, heb geen medelijden en houd hem niet verborgen.
 9. Integendeel, u moet hem zeker doden. Eerst moet uw *eigen* hand zich tegen hem keren om hem ter dood te brengen, daarna de hand van heel het volk.
 10. U moet hem met stenen stenigen zodat hij sterft, omdat hij heeft geprobeerd u af te brengen van de HEERE, uw God, Die u uit het land Egypte, uit het slavenhuis, heeft geleid.
-11. Heel Israël zal het horen en bevreesd zijn, en een dergelijke wandaad niet meer in uw midden verrichten.
+11. Heel IsraÃ«l zal het horen en bevreesd zijn, en een dergelijke wandaad niet meer in uw midden verrichten.
 12. Als u over een van uw steden die de HEERE, uw God, u geeft om er te wonen, hoort zeggen:
 13. Er zijn mannen, verdorven lieden, uit uw midden voortgekomen en zij hebben de inwoners van hun stad verleid door te zeggen: Laten we andere goden gaan dienen, die u niet kent,
 14. dan moet u het onderzoeken, grondig uitzoeken en goed navragen. En zie, is het de waarheid, staat de zaak vast, is zo'n gruwelijke daad in uw midden gedaan,
 15. dan moet u de inwoners van die stad geheel en al slaan met de scherpte van het zwaard, door haar met alles wat erin is, ook haar vee, met de scherpte van het zwaard met de ban te slaan.
-16. Al haar buit moet u op het midden van haar marktplein bijeenbrengen, en vervolgens moet u de stad en al haar buit met vuur verbranden, als een offer dat geheel verteerd wordt voor de HEERE, uw God. Ze moet eeuwig een ruïne blijven *en* mag nooit herbouwd worden,
+16. Al haar buit moet u op het midden van haar marktplein bijeenbrengen, en vervolgens moet u de stad en al haar buit met vuur verbranden, als een offer dat geheel verteerd wordt voor de HEERE, uw God. Ze moet eeuwig een ruÃ¯ne blijven *en* mag nooit herbouwd worden,
 17. en niets van datgene waarop de ban rust, mag u zelf houden. Dan zal de HEERE Zijn brandende toorn laten varen en u barmhartigheid geven, Zich over u ontfermen en u talrijk maken, zoals Hij aan uw vaderen gezworen heeft *te zullen doen*
 18. als u de stem van de HEERE, uw God, gehoorzaamt, door al Zijn geboden die ik u heden gebied, in acht te nemen, *en* door te doen wat juist is in de ogen van de HEERE, uw God.

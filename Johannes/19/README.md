@@ -16,12 +16,12 @@
 15. Maar zij schreeuwden: Weg met *Hem*, weg met *Hem*, kruisig Hem! Pilatus zei tegen hen: Moet ik uw Koning kruisigen? De overpriesters antwoordden: Wij hebben geen koning dan de keizer.
 16. Toen leverde hij Hem dan aan hen over om gekruisigd te worden. En zij namen Jezus mee en leidden Hem weg.
 17. En terwijl Hij Zijn kruis droeg, ging Hij op weg naar de *plaats* die Schedelplaats genoemd wordt *en* in het Hebreeuws Golgotha.
-18. Daar kruisigden zij Hem en met Hem twee anderen, aan elke kant één, en Jezus in het midden.
+18. Daar kruisigden zij Hem en met Hem twee anderen, aan elke kant Ã©Ã©n, en Jezus in het midden.
 19. En Pilatus schreef ook een opschrift en zette *dat* op het kruis; en er was geschreven: JEZUS DE NAZARENER, DE KONING VAN DE JODEN.
 20. Dit opschrift dan lazen velen van de Joden, want de plaats waar Jezus gekruisigd werd, was dicht bij de stad; en het was geschreven in het Hebreeuws, in het Grieks *en* in het Latijn.
 21. De overpriesters van de Joden dan zeiden tegen Pilatus: Schrijf niet: De Koning van de Joden, maar dat Hij gezegd heeft: Ik ben de Koning van de Joden.
 22. Pilatus antwoordde: Wat ik geschreven heb, heb ik geschreven.
-23. Nadat de soldaten dan Jezus gekruisigd hadden, namen zij Zijn kleren en maakten vier delen, voor elke soldaat een deel, en *zij namen ook* het onderkleed. Het onderkleed nu was zonder naad, van bovenaf als één geheel geweven.
+23. Nadat de soldaten dan Jezus gekruisigd hadden, namen zij Zijn kleren en maakten vier delen, voor elke soldaat een deel, en *zij namen ook* het onderkleed. Het onderkleed nu was zonder naad, van bovenaf als Ã©Ã©n geheel geweven.
 24. Zij dan zeiden tegen elkaar: Laten wij dat niet scheuren, maar laten wij erom loten voor wie het zal zijn. Opdat het Schriftwoord vervuld zou worden dat zegt: Zij hebben Mijn kleren onder elkaar verdeeld en over Mijn kleed hebben zij het lot geworpen. Dit hebben dan de soldaten gedaan.
 25. En bij het kruis van Jezus stonden Zijn moeder, de zuster van Zijn moeder, *en* Maria, *de vrouw* van Klopas, en Maria Magdalena.
 26. Toen nu Jezus *Zijn* moeder zag en de discipel die Hij liefhad, bij haar *zag* staan, zei Hij tegen Zijn moeder: Vrouw, zie, uw zoon.
@@ -37,7 +37,7 @@
 36. Want deze dingen zijn geschied, opdat het Schriftwoord vervuld wordt: Geen been van Hem zal gebroken worden.
 37. En verder zegt een ander Schriftwoord: Zij zullen zien op Hem Die zij doorstoken hebben.
 38. En daarna vroeg Jozef van Arimathea, die een discipel van Jezus was (maar in het geheim, uit vrees voor de Joden) aan Pilatus het lichaam van Jezus te mogen wegnemen; en Pilatus stond het toe. Hij dan ging en nam het lichaam van Jezus weg.
-39. En Nicodemus (die eerst 's nachts naar Jezus toe gekomen was) kwam ook en bracht een mengsel van mirre en aloë mee, ongeveer honderd pond.
+39. En Nicodemus (die eerst 's nachts naar Jezus toe gekomen was) kwam ook en bracht een mengsel van mirre en aloÃ« mee, ongeveer honderd pond.
 40. Zij namen dan het lichaam van Jezus en wikkelden het in linnen doeken, met de specerijen, zoals het de gewoonte van de Joden is bij het begraven.
 41. En er was bij de plaats waar Hij gekruisigd was, een hof en in de hof een nieuw graf, waarin nog nooit iemand gelegd was.
 42. Daar nu legden zij Jezus vanwege de voorbereiding van de Joden, omdat het graf dichtbij was.

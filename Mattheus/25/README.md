@@ -13,7 +13,7 @@
 12. Hij antwoordde en zei: Voorwaar, ik zeg u: ik ken u niet.
 13. Wees dan waakzaam, want u weet de dag en ook het uur niet waarop de Zoon des mensen komen zal.
 14. Want *het is* als iemand die naar het buitenland ging, zijn eigen slaven bij zich riep en hun zijn bezittingen toevertrouwde.
-15. En aan de één gaf hij vijf talenten, aan de ander twee en aan de derde één, ieder naar zijn bekwaamheid, en hij reisde meteen weg.
+15. En aan de Ã©Ã©n gaf hij vijf talenten, aan de ander twee en aan de derde Ã©Ã©n, ieder naar zijn bekwaamheid, en hij reisde meteen weg.
 16. Hij die de vijf talenten ontvangen had, ging weg en handelde daarmee en hij verdiende vijf andere talenten erbij.
 17. Evenzo verdiende degene die de twee *talenten ontvangen had*, er nog twee bij.
 18. Maar hij die het ene ontvangen had, ging weg en groef *een gat* in de aarde en verborg het geld van zijn heer.
@@ -32,7 +32,7 @@
 31. Wanneer de Zoon des mensen komen zal in Zijn heerlijkheid en al de heilige engelen met Hem, dan zal Hij zitten op de troon van Zijn heerlijkheid.
 32. En voor Hem zullen al de volken bijeengebracht worden, en Hij zal ze van elkaar scheiden zoals de herder de schapen van de bokken scheidt.
 33. En Hij zal de schapen aan Zijn rechter*hand* zetten, maar de bokken aan *Zijn* linker*hand*.
-34. Dan zal de Koning zeggen tegen hen die aan Zijn rechter*hand zijn*: Kom, gezegenden van Mijn Vader, beërf het Koninkrijk dat voor u bestemd is vanaf de grondlegging van de wereld.
+34. Dan zal de Koning zeggen tegen hen die aan Zijn rechter*hand zijn*: Kom, gezegenden van Mijn Vader, beÃ«rf het Koninkrijk dat voor u bestemd is vanaf de grondlegging van de wereld.
 35. Want Ik had honger en u hebt Mij te eten gegeven; Ik had dorst en u hebt Mij te drinken gegeven; Ik was een vreemdeling en u hebt Mij gastvrij onthaald.
 36. *Ik was* naakt en u hebt Mij gekleed; Ik ben ziek geweest en u hebt Mij bezocht; Ik was in de gevangenis en u bent bij Mij gekomen.
 37. Dan zullen de rechtvaardigen Hem antwoorden: Heere, wanneer hebben wij U hongerig gezien en te eten gegeven? Of dorstig en te drinken gegeven?

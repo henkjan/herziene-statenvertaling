@@ -1,6 +1,6 @@
 #Genesis 7
 1. Daarna zei de HEERE tegen Noach: Ga in de ark, u en heel uw gezin, want Ik heb gezien dat u te midden van uw tijdgenoten voor Mijn aangezicht rechtvaardig bent.
-2. U moet voor uzelf van alle reine dieren zeven paar nemen, een mannetje en zijn vrouwtje; maar van de dieren die niet rein zijn, *één* paar, een mannetje en zijn vrouwtje;
+2. U moet voor uzelf van alle reine dieren zeven paar nemen, een mannetje en zijn vrouwtje; maar van de dieren die niet rein zijn, *Ã©Ã©n* paar, een mannetje en zijn vrouwtje;
 3. ook van de vogels in de lucht zeven paar, mannelijk en vrouwelijk, om de soort op heel de aarde in leven te houden.
 4. Want over nog zeven dagen zal Ik het op de aarde veertig dagen en veertig nachten laten regenen; en Ik zal al wat bestaat, wat Ik gemaakt heb, van de aardbodem verdelgen.
 5. En Noach deed overeenkomstig alles wat de HEERE hem geboden had.

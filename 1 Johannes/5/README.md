@@ -5,8 +5,8 @@
 4. Want al wat uit God geboren is, overwint de wereld; en dit is de overwinning die de wereld overwonnen heeft: ons geloof.
 5. Wie anders is het die de wereld overwint dan hij die gelooft dat Jezus de Zoon van God is?
 6. Hij is het Die kwam door water en bloed: Jezus, de Christus; niet door het water alleen, maar door het water en het bloed. En de Geest is het Die getuigt, omdat de Geest de waarheid is.
-7. Want drie zijn er die getuigen in de hemel: de Vader, het Woord en de Heilige Geest; en deze drie zijn één.
-8. En drie zijn er die getuigen op de aarde: de Geest, het water en het bloed; en deze drie zijn één.
+7. Want drie zijn er die getuigen in de hemel: de Vader, het Woord en de Heilige Geest; en deze drie zijn Ã©Ã©n.
+8. En drie zijn er die getuigen op de aarde: de Geest, het water en het bloed; en deze drie zijn Ã©Ã©n.
 9. Als wij het getuigenis van de mensen aannemen, het getuigenis van God is groter; want dit is het getuigenis van God dat Hij van Zijn Zoon getuigd heeft.
 10. Wie gelooft in de Zoon van God, heeft het getuigenis in zichzelf; wie God niet gelooft, heeft Hem tot leugenaar gemaakt, omdat hij niet geloofd heeft het getuigenis dat God van Zijn Zoon getuigd heeft.
 11. En dit is het getuigenis, namelijk dat God ons het eeuwige leven gegeven heeft; en dit leven is in Zijn Zoon.

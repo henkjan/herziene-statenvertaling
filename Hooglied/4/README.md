@@ -7,11 +7,11 @@
 6. Tot de wind van de dag opsteekt en de schaduwen vluchten, zal Ik naar de mirreberg gaan, naar de wierookheuvel. 
 7. Alles aan u is mooi, Mijn vriendin, er is geen enkel gebrek aan u. 
 8. *Kom* met Mij van de Libanon af, bruid, met Mij van de Libanon af, kom! Daal af van de top van de Amana, weg van de top van de Senir en de Hermon, van de holen van de leeuwen, van de bergen met de luipaarden. 
-9. U hebt Mijn hart veroverd, Mijn zuster, *Mijn* bruid, u hebt Mijn hart veroverd met één *blik* van uw ogen, met één schakel van uw halsketting. 
-10. Hoe mooi is uw liefde, Mijn zuster, Mijn bruid, hoeveel beter is uw liefde dan wijn en de geur van uw *zalf*oliën dan allerlei specerijen! 
+9. U hebt Mijn hart veroverd, Mijn zuster, *Mijn* bruid, u hebt Mijn hart veroverd met Ã©Ã©n *blik* van uw ogen, met Ã©Ã©n schakel van uw halsketting. 
+10. Hoe mooi is uw liefde, Mijn zuster, Mijn bruid, hoeveel beter is uw liefde dan wijn en de geur van uw *zalf*oliÃ«n dan allerlei specerijen! 
 11. Uw lippen druipen van honingzeem, *Mijn* bruid, honing en melk zijn onder uw tong en de geur van uw kleding is als de geur van de Libanon. 
 12. Een gesloten tuin bent u, Mijn zuster, *Mijn* bruid, een gesloten bron, een verzegelde fontein. 
 13. Uw scheuten vormen een paradijs van granaatappelbomen met de beste vruchten, hennastruiken en nardusplanten, 
-14. nardus en saffraan, kalmoes en kaneel, met allerlei wierookbomen, mirre en aloë, met een keur van allerlei specerijen. 
+14. nardus en saffraan, kalmoes en kaneel, met allerlei wierookbomen, mirre en aloÃ«, met een keur van allerlei specerijen. 
 15. O, bron van de tuinen put van levend water dat van de Libanon stroomt! 
 16. Ontwaak, noordenwind, en kom, zuidenwind, waai door mijn tuin, zodat *de geur* van zijn specerijen zich verspreidt. Laat mijn Liefste in Zijn tuin komen en eten van Zijn beste vruchten!

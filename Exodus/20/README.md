@@ -17,10 +17,10 @@
 16. U zult geen vals getuigenis spreken tegen uw naaste.
 17. U zult niet begeren het huis van uw naaste. U zult niet begeren de vrouw van uw naaste, noch zijn slaaf, noch zijn slavin, noch zijn rund, noch zijn ezel, noch iets wat van uw naaste is.
 18. En heel het volk was getuige van de donderslagen, de bliksems, het bazuingeschal en de rokende berg. Toen het volk *dit* zag, sidderden zij en bleven op een afstand staan.
-19. Zij zeiden tegen Mozes: Spreekt ú met ons, dan zullen wij luisteren, maar laat God niet met ons spreken, anders sterven wij.
+19. Zij zeiden tegen Mozes: Spreekt Ãº met ons, dan zullen wij luisteren, maar laat God niet met ons spreken, anders sterven wij.
 20. Mozes zei tegen het volk: Wees niet bevreesd, want God is gekomen om u op de proef te stellen en opdat de vreze voor Hem u voor ogen staat, opdat u niet zondigt.
 21. Het volk bleef op een afstand staan, maar Mozes naderde tot de donkere *wolk*, waar God was.
-22. Toen zei de HEERE tegen Mozes: Zo moet u tegen de Israëlieten zeggen: U hebt zelf gezien dat Ik met u vanuit de hemel gesproken heb.
+22. Toen zei de HEERE tegen Mozes: Zo moet u tegen de IsraÃ«lieten zeggen: U hebt zelf gezien dat Ik met u vanuit de hemel gesproken heb.
 23. U mag naast Mij geen goden van zilver maken, en goden van goud mag u *ook* niet voor uzelf maken.
 24. U moet voor Mij een altaar van aarde maken en daarop uw brandoffers en uw dankoffers, uw kleinvee en uw runderen offeren. Op elke plaats waar Ik Mijn Naam zal laten gedenken, zal Ik naar u toe komen en u zegenen.
 25. Maar als u voor Mij een stenen altaar maakt, mag u dit niet bouwen van gehouwen *stenen*, want als u ze met uw houweel bewerkt, ontheiligt u ze.

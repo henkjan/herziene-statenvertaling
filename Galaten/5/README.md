@@ -12,14 +12,14 @@
 11. Maar ik, broeders, als ik nog de besnijdenis verkondig, waarom word ik dan nog vervolgd? Dan is immers het struikelblok van het kruis tenietgedaan.
 12. Lieten zij die u opruien, zich maar afsnijden!
 13. Want u bent tot vrijheid geroepen, broeders, alleen niet tot die vrijheid die aanleiding geeft aan het vlees; maar dien elkaar door de liefde.
-14. Want de hele wet wordt in één woord vervuld, *namelijk* hierin: U zult uw naaste liefhebben als uzelf.
+14. Want de hele wet wordt in Ã©Ã©n woord vervuld, *namelijk* hierin: U zult uw naaste liefhebben als uzelf.
 15. Maar als u elkaar bijt en verslindt, pas dan op dat u niet door elkaar verteerd wordt.
 16. Maar ik zeg: Wandel door de Geest en u zult zeker de begeerte van het vlees niet volbrengen.
 17. Want het vlees begeert tegen de Geest in, en de Geest tegen het vlees in; en die staan tegenover elkaar, zodat u niet doet wat u zou willen.
 18. Als u echter door de Geest geleid wordt, bent u niet onder de wet.
 19. Het is bekend wat de werken van het vlees zijn, namelijk overspel, hoererij, onreinheid, losbandigheid,
-20. afgoderij, toverij, vijandschappen, ruzie, afgunst, woede-uitbarstingen, egoïsme, onenigheid, afwijkingen in de leer,
-21. jaloersheid, moord, dronkenschap, zwelgpartijen, en dergelijke; waarvan ik u voorzeg, zoals ik ook al eerder gezegd heb, dat wie zulke dingen doen, het Koninkrijk van God niet zullen beërven.
+20. afgoderij, toverij, vijandschappen, ruzie, afgunst, woede-uitbarstingen, egoÃ¯sme, onenigheid, afwijkingen in de leer,
+21. jaloersheid, moord, dronkenschap, zwelgpartijen, en dergelijke; waarvan ik u voorzeg, zoals ik ook al eerder gezegd heb, dat wie zulke dingen doen, het Koninkrijk van God niet zullen beÃ«rven.
 22. De vrucht van de Geest is echter: liefde, blijdschap, vrede, geduld, vriendelijkheid, goedheid, geloof, zachtmoedigheid, zelfbeheersing.
 23. Daartegen richt de wet zich niet.
 24. Maar wie van Christus zijn, hebben het vlees met zijn hartstochten en begeerten gekruisigd.

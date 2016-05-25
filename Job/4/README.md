@@ -2,7 +2,7 @@
 1. Toen antwoordde Elifaz, de Temaniet, en zei: 
 2. Als wij een woord tot jou trachten *te richten*, bezwijk je *dan*? Echter, wie zou *nu zijn* woorden kunnen inhouden? 
 3. Zie, je hebt velen onderwezen, en je hebt slappe handen versterkt. 
-4. Je woorden hebben degene die struikelde opgericht, en de knikkende knieën heb je sterk gemaakt. 
+4. Je woorden hebben degene die struikelde opgericht, en de knikkende knieÃ«n heb je sterk gemaakt. 
 5. Maar nu overkomt het jezelf, en je bezwijkt; het treft je, en je wordt door schrik overmand. 
 6. Is je vrezen *van God dan* niet je verwachting, de oprechtheid van je wegen je hoop? 
 7. Denk er toch aan: wie is *ooit* als onschuldige omgekomen, en waar zijn er *ooit* oprechten uitgeroeid? 

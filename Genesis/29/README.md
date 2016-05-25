@@ -24,7 +24,7 @@
 23. En het gebeurde 's avonds dat hij zijn dochter Lea nam en haar bij hem bracht; en *Jakob* kwam bij haar.
 24. Ook gaf Laban haar zijn slavin Zilpa; aan zijn dochter Lea *gaf hij haar* als slavin.
 25. En het gebeurde 's morgens - zie, het was Lea! Daarom zei hij tegen Laban: Wat hebt u me nu aangedaan? Heb ik niet voor u gewerkt om Rachel? Waarom hebt u me dan bedrogen?
-26. Laban antwoordde: Zo doet men niet bij ons, dat men de jongste vóór de eerstgeborene *ten huwelijk* geeft.
+26. Laban antwoordde: Zo doet men niet bij ons, dat men de jongste vÃ³Ã³r de eerstgeborene *ten huwelijk* geeft.
 27. Maak de *bruilofts*week van deze *dochter* vol; daarna zullen wij je ook de andere geven, voor het werk waarmee je mij nog *eens* zeven jaar dienen zult.
 28. Dat deed Jakob en hij maakte de *bruilofts*week van deze *dochter* vol. Daarna gaf *Laban* hem zijn dochter Rachel tot vrouw.
 29. Laban gaf zijn dochter Rachel zijn slavin Bilha als haar slavin.

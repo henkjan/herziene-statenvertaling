@@ -11,7 +11,7 @@
 10. Hij boog de hemel en daalde neer, een donkere *wolk* was onder Zijn voeten. 
 11. Hij reed op een cherub en vloog, ja, Hij zweefde snel op de vleugels van de wind. 
 12. Hij maakte duisternis tot Zijn schuilplaats, om Hem heen was Zijn tent: duistere wateren, donkere wolken. 
-13. Door de lichtglans, die vóór Hem was, dreven Zijn wolken weg. Hagel en vurige kolen! 
+13. Door de lichtglans, die vÃ³Ã³r Hem was, dreven Zijn wolken weg. Hagel en vurige kolen! 
 14. De HEERE deed het in de hemel donderen, de Allerhoogste liet Zijn stem klinken: hagel en vurige kolen. 
 15. Hij schoot Zijn pijlen af en verspreidde hen, Hij slingerde de bliksemflitsen en bracht hen in verwarring. 
 16. De waterstromen werden zichtbaar, de fundamenten van de wereld werden blootgelegd door Uw bestraffing, HEERE, door het blazen van de adem uit Uw neus. 
@@ -23,11 +23,11 @@
 22. Want ik heb mij aan de wegen van de HEERE gehouden, ik ben van mijn God niet goddeloos afgeweken. 
 23. Want al Zijn bepalingen *hield* ik voor *ogen*, Zijn verordeningen deed ik niet van mij weg, 
 24. maar ik was oprecht voor Hem, ik was op mijn hoede voor mijn ongerechtigheid. 
-25. Daarom gaf de HEERE mij naar mijn gerechtigheid, naar de reinheid van mijn handen vóór Zijn ogen. 
+25. Daarom gaf de HEERE mij naar mijn gerechtigheid, naar de reinheid van mijn handen vÃ³Ã³r Zijn ogen. 
 26. Tegenover de goedertierene toont U Zich goedertieren, tegenover de oprechte man oprecht. 
 27. Tegenover de reine toont U Zich rein, maar tegenover de slinkse toont U Zich een Strijder. 
-28. Want Ú verlost het ellendige volk, maar de hoogmoedige ogen vernedert U. 
-29. Want Ú doet mijn lamp schijnen, HEERE; mijn God doet mijn duisternis opklaren. 
+28. Want Ãš verlost het ellendige volk, maar de hoogmoedige ogen vernedert U. 
+29. Want Ãš doet mijn lamp schijnen, HEERE; mijn God doet mijn duisternis opklaren. 
 30. Want met U ren ik door een *leger*bende, met mijn God spring ik over een muur. 
 31. Gods weg is volmaakt, het woord van de HEERE is gelouterd, Hij is een schild voor allen die tot Hem de toevlucht nemen. 
 32. Want wie is God, behalve de HEERE? Wie is een rots dan alleen onze God? 

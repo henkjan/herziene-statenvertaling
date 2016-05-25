@@ -3,7 +3,7 @@
 2. Jonathan vertelde David: Mijn vader Saul probeert je te doden; welnu, wees *morgen*ochtend toch op je hoede, houd je verborgen en verstop je.
 3. Maar ik zal naar buiten gaan en naast mijn vader gaan staan op het veld waar je bent. Ik zal met mijn vader over je spreken en zien wat het wordt; dat zal ik je vervolgens vertellen.
 4. En Jonathan sprak met zijn vader Saul goed over David en zei tegen hem: Laat de koning niet zondigen tegen zijn dienaar David. Hij heeft immers niet tegen u gezondigd, en wat hij doet is heel goed voor u.
-5. Hij heeft zijn leven immers in de waagschaal gesteld en de Filistijn verslagen. De HEERE heeft voor heel Israël een grote verlossing teweeggebracht. U hebt het gezien en bent er blij mee geweest. Waarom zou u dan tegen onschuldig bloed zondigen, door David zonder reden te doden?
+5. Hij heeft zijn leven immers in de waagschaal gesteld en de Filistijn verslagen. De HEERE heeft voor heel IsraÃ«l een grote verlossing teweeggebracht. U hebt het gezien en bent er blij mee geweest. Waarom zou u dan tegen onschuldig bloed zondigen, door David zonder reden te doden?
 6. Saul luisterde naar de stem van Jonathan en Saul zwoer: *Zo waar* de HEERE leeft, hij zal niet gedood worden!
 7. Jonathan riep David en Jonathan vertelde hem al deze woorden. Jonathan bracht David naar Saul, en hij was in zijn tegenwoordigheid zoals voorheen.
 8. Er kwam opnieuw oorlog. David trok *ten strijde*, streed tegen de Filistijnen en bracht hun een grote slag toe. Zij vluchtten voor hem weg.

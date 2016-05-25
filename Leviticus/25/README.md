@@ -1,6 +1,6 @@
 #Leviticus 25
-1. De HEERE sprak tot Mozes bij de berg Sinaï:
-2. Spreek tot de Israëlieten, en zeg tegen hen: Wanneer u gekomen bent in het land dat Ik u geven zal, dan moet het land rust krijgen, een sabbat voor de HEERE.
+1. De HEERE sprak tot Mozes bij de berg SinaÃ¯:
+2. Spreek tot de IsraÃ«lieten, en zeg tegen hen: Wanneer u gekomen bent in het land dat Ik u geven zal, dan moet het land rust krijgen, een sabbat voor de HEERE.
 3. Zes jaar mag u uw akker bezaaien, zes jaar mag u uw wijngaard snoeien en de opbrengst ervan inzamelen.
 4. Maar in het zevende jaar moet het voor het land sabbat zijn, een periode van volledige rust, een sabbat voor de HEERE. Uw akker mag u niet bezaaien en uw wijngaard mag u niet snoeien.
 5. Wat er na uw *laatste* oogst *nog* opkomt, mag u niet oogsten, en de druiven van uw ongesnoeide wijnstok mag u niet plukken. Het is een jaar van volkomen rust voor het land.
@@ -31,12 +31,12 @@
 30. Maar als het niet ingelost wordt voordat het volledige jaar voor hem voorbij is, dan behoort het huis dat in de ommuurde stad staat, voor altijd hem toe die het gekocht heeft, *al* zijn generaties door. Het mag *ook* in het jubeljaar niet vrijkomen.
 31. De huizen *in* de dorpen die niet ommuurd zijn, moeten echter tot het akkerland gerekend worden. Hiervoor geldt het recht op loskoping, en in het jubeljaar komt het vrij.
 32. Wat de steden van de Levieten betreft, de huizen die zij in *die* steden in bezit hebben, *daarvoor* geldt voor de Levieten een eeuwig recht op loskoping.
-33. Als *iemand* van de Levieten het vrijkoopt, dan moet het huis dat verkocht is in de stad waar zijn bezit is, in het jubeljaar vrijkomen, want de huizen van de steden van de Levieten gelden als hun bezit in het midden van de Israëlieten.
+33. Als *iemand* van de Levieten het vrijkoopt, dan moet het huis dat verkocht is in de stad waar zijn bezit is, in het jubeljaar vrijkomen, want de huizen van de steden van de Levieten gelden als hun bezit in het midden van de IsraÃ«lieten.
 34. De weidegrond die bij hun steden hoort, mag niet verkocht worden, want die is voor hen een eeuwig bezit.
 35. En wanneer uw broeder in armoede raakt en met lege handen staat, dan moet u hem steunen, *ook als* hij een vreemdeling en bijwoner is, zodat hij bij u in leven blijft.
 36. U mag geen rente of winst van hem nemen, maar u moet uw God vrezen, zodat uw broeder bij u in leven blijft.
 37. U mag uw geld niet met rente aan hem lenen en u mag uw voedsel niet tegen winst geven.
-38. Ik ben de HEERE, uw God, Die u uit het land Egypte geleid heeft om u het land Kanaän te geven om u tot een God te zijn.
+38. Ik ben de HEERE, uw God, Die u uit het land Egypte geleid heeft om u het land KanaÃ¤n te geven om u tot een God te zijn.
 39. En wanneer uw broeder bij u in armoede raakt en zich aan u verkocht heeft, *dan* mag u hem geen slavenarbeid laten verrichten.
 40. Als een dagloner, als een bijwoner moet hij bij u zijn. Tot het jubeljaar is hij bij u in dienst.
 41. Dan mag hij bij u vertrekken, hij en zijn kinderen met hem, en hij mag naar zijn familie terugkeren en terugkeren naar het bezit van zijn vaderen.
@@ -44,7 +44,7 @@
 43. U mag niet met harde *hand* over hem heersen, maar u moet uw God vrezen.
 44. Wat uw slaaf of uw slavin betreft die u toebehoren, zij moeten *afkomstig* zijn uit de heidenvolken die rondom u zijn. Van hen mag u een slaaf of slavin kopen.
 45. U mag hen verder ook kopen van de nakomelingen van de bijwoners die bij u als vreemdeling verblijven, uit hen die bij u zijn en uit hun familie, die zij in uw land verwekt hebben. Zij mogen voor u als bezit dienen.
-46. U mag hen als erfbezit aan uw kinderen na u nalaten om *hen* als bezit te erven. U moet hen voor altijd laten dienen, maar over uw broeders, de Israëlieten, mag u niet - de een over de ander - met harde *hand* heersen.
+46. U mag hen als erfbezit aan uw kinderen na u nalaten om *hen* als bezit te erven. U moet hen voor altijd laten dienen, maar over uw broeders, de IsraÃ«lieten, mag u niet - de een over de ander - met harde *hand* heersen.
 47. En wanneer voor een vreemdeling of een bijwoner die bij u is, het vermogen toereikend is geworden, en uw *eigen* broeder die bij hem is, in armoede raakt, zodat hij zich heeft moeten verkopen aan de vreemdeling, de bijwoner die bij u is, of aan een afstammeling van de familie van de vreemdeling,
 48. dan geldt voor hem het recht op loskoping, nadat hij zich heeft verkocht. Een van zijn broers mag hem vrijkopen,
 49. of zijn oom of een zoon van zijn oom mag hem vrijkopen, of *een* van zijn naaste bloedverwanten, uit zijn *eigen* familie, mag hem vrijkopen, of hij mag zichzelf vrijkopen *als* zijn *eigen* vermogen toereikend is.
@@ -53,4 +53,4 @@
 52. En als er nog weinig jaren overblijven tot het jubeljaar, dan moet hij *dat* met hem berekenen. Overeenkomstig zijn jaren moet hij zijn loskoping vergoeden.
 53. Hij moet als een dagloner jaar op jaar bij hem blijven. Men mag onder uw ogen niet met harde *hand* over hem heersen.
 54. Maar als hij op deze manier niet kan worden vrijgekocht, dan mag hij in het jubeljaar vertrekken, hij en zijn kinderen met hem.
-55. Want de Israëlieten behoren Mij als dienaren toe. Zij zijn Mijn dienaren, die Ik uit het land Egypte geleid heb. Ik ben de HEERE, uw God.
+55. Want de IsraÃ«lieten behoren Mij als dienaren toe. Zij zijn Mijn dienaren, die Ik uit het land Egypte geleid heb. Ik ben de HEERE, uw God.

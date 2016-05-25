@@ -32,5 +32,5 @@
 31. Wie een geringe onderdrukt, smaadt diens Maker, maar wie zich over een arme ontfermt, eert Hem. 
 32. Een goddeloze wordt weggedreven door zijn *eigen* kwaad, maar een rechtvaardige vindt een toevlucht, *zelfs* in zijn dood. 
 33. Wijsheid rust in het hart van de verstandige, maar wat in het binnenste van dwazen is, wordt bekend. 
-34. Gerechtigheid verhoogt een volk, maar zonde is een schandvlek voor de natiën. 
+34. Gerechtigheid verhoogt een volk, maar zonde is een schandvlek voor de natiÃ«n. 
 35. Aan een verstandige dienaar heeft de koning een welgevallen, maar zijn verbolgenheid treft hem die beschaamd maakt.

@@ -8,5 +8,5 @@
 7. De volgende dag beschikte God bij het aanbreken van de dageraad een worm, die de wonderboom stak, zodat hij verdorde.
 8. En het gebeurde, toen de zon opging, dat God een verzengende oostenwind beschikte. En de zon stak op het hoofd van Jona, zodat hij geheel uitgeput raakte. Hij verlangde ernaar te sterven en zei toen: Het is voor mij beter te sterven dan te leven.
 9. Maar God zei tegen Jona: Bent u terecht *in woede* ontstoken over die wonderboom? Hij zei: Terecht ben ik *in woede* ontstoken, tot de dood toe.
-10. Daarop zei de HEERE: ⁄ ontziet die wonderboom, waarvoor u niet gezwoegd hebt en die u niet hebt laten groeien, die in ÈÈn nacht ontstond en in ÈÈn nacht verging.
-11. Zou Õk dan die grote stad NinevÈ niet ontzien, waarin meer dan honderdtwintigduizend mensen zijn die het verschil tussen hun rechter- en hun linker*hand* niet weten, en *daarbij* veel vee?
+10. Daarop zei de HEERE: √ö ontziet die wonderboom, waarvoor u niet gezwoegd hebt en die u niet hebt laten groeien, die in √©√©n nacht ontstond en in √©√©n nacht verging.
+11. Zou √çk dan die grote stad Ninev√© niet ontzien, waarin meer dan honderdtwintigduizend mensen zijn die het verschil tussen hun rechter- en hun linker*hand* niet weten, en *daarbij* veel vee?

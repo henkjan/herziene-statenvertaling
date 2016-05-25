@@ -1,6 +1,6 @@
 #Prediker 9
-1. Voorzeker, dit alles heb ik ter harte genomen, zodat ik dit alles zou kunnen verklaren: hoe de rechtvaardigen en de wijzen en hun werken in de hand van God zijn. Ook liefde, ook haat kent de mens niet: alles ligt vóór hem.
-2. Eén *en* hetzelfde overkomt allen als alle *anderen*: de rechtvaardige en de goddeloze, de goede en reine en de onreine, wie offert en wie niet offert, wie goed is *vergaat het* net als de zondaar, wie zweert net als wie bevreesd is een eed *af te leggen*.
+1. Voorzeker, dit alles heb ik ter harte genomen, zodat ik dit alles zou kunnen verklaren: hoe de rechtvaardigen en de wijzen en hun werken in de hand van God zijn. Ook liefde, ook haat kent de mens niet: alles ligt vÃ³Ã³r hem.
+2. EÃ©n *en* hetzelfde overkomt allen als alle *anderen*: de rechtvaardige en de goddeloze, de goede en reine en de onreine, wie offert en wie niet offert, wie goed is *vergaat het* net als de zondaar, wie zweert net als wie bevreesd is een eed *af te leggen*.
 3. Dit is een kwaad bij alles wat er onder de zon plaatsvindt: dat allen een *en* hetzelfde overkomt. Ook is het hart van de mensenkinderen vol kwaad. Hun leven is vervuld van onverstand in hun hart, en daarna *gaan zij* naar de doden.
 4. Want wie nog bij al de levenden mag behoren, heeft hoop. Een levende hond is namelijk beter dan een dode leeuw.
 5. Want de levenden weten dat zij sterven zullen, maar de doden weten helemaal niets. Zij hebben ook geen loon meer, maar hun nagedachtenis is vergeten.
@@ -16,4 +16,4 @@
 15. Daar trof men een arme, wijze man aan. Hij had de stad kunnen redden door zijn wijsheid, maar geen mens dacht aan die arme man. 
 16. Toen zei ik: Wijsheid is beter dan kracht, maar de wijsheid van de arme wordt veracht en zijn woorden worden door niemand gehoord.
 17. Woorden van wijzen, in rust aangehoord, zijn beter dan het geroep van hem die over de dwazen heerst.
-18. Wijsheid is beter dan wapentuig, maar één zondaar bederft veel goeds.
+18. Wijsheid is beter dan wapentuig, maar Ã©Ã©n zondaar bederft veel goeds.

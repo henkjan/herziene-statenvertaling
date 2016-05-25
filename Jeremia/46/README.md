@@ -7,7 +7,7 @@
 6. Laat de snelle niet op de vlucht slaan, laat de held niet ontkomen: in het noorden, aan de oever van de rivier de Eufraat, struikelen zij en vallen. 
 7. Wie is dat? Als de Nijl komt hij opzetten, als rivieren kolkt zijn water. 
 8. Egypte - als de Nijl komt het opzetten, als rivieren kolkt *zijn* water. Het zegt: Ik kom opzetten, ik zal de aarde bedekken, ik zal de stad verdelgen en wie daarin wonen. 
-9. Kom op, paarden, raas, strijdwagens, Laten de helden uittrekken, de Cusjieten, de Puteeërs, die het schild hanteren, de Lydiërs, die de boog hanteren *en* spannen. 
+9. Kom op, paarden, raas, strijdwagens, Laten de helden uittrekken, de Cusjieten, de PuteeÃ«rs, die het schild hanteren, de LydiÃ«rs, die de boog hanteren *en* spannen. 
 10. Deze dag is van de Heere, de HEERE van de legermachten, een dag van wraak om Zich te wreken op Zijn tegenstanders. Het zwaard zal verslinden en verzadigd worden, en dronken worden van hun bloed. Want het is een slachting voor de Heere, de HEERE van de legermachten, in het land in het noorden, aan de rivier de Eufraat. 
 11. Ruk op naar Gilead en haal balsem, maagd, dochter van Egypte. Tevergeefs verhoogt u de medicijnen, herstel is er niet voor u. 
 12. De volken hebben van uw schande gehoord, het land is vol van uw gejammer, want de ene held is over de andere held gestruikeld, samen zijn zij gevallen - zij beiden.
@@ -23,7 +23,7 @@
 22. Het geluid *van Egypte* is als dat van een slang die wegschuifelt, want met een legermacht zullen zij erheen gaan; met bijlen zullen zij bij hem komen, als houthakkers. 
 23. Zij zullen zijn woud omhakken, spreekt de HEERE, al is het ondoordringbaar. Want zij zijn talrijker dan sprinkhanen, zodat zij niet te tellen zijn. 
 24. De dochter van Egypte staat beschaamd, zij is in de hand van het volk van het noorden gegeven.
-25. De HEERE van de legermachten, de God van Israël, zegt: Zie, Ik ga Amon, *de god* van No, de farao, Egypte, zijn goden, en zijn koningen straffen, ja, *Ik straf* de farao en wie op hem vertrouwen.
+25. De HEERE van de legermachten, de God van IsraÃ«l, zegt: Zie, Ik ga Amon, *de god* van No, de farao, Egypte, zijn goden, en zijn koningen straffen, ja, *Ik straf* de farao en wie op hem vertrouwen.
 26. Ik zal hen geven in de hand van hen die hen naar het leven staan, zowel in de hand van Nebukadrezar, de koning van Babel, als in de hand van zijn dienaren. Maar daarna zal zij bewoond worden als *in* de dagen van weleer, spreekt de HEERE. 
-27. U dan, wees niet bevreesd, Mijn dienaar Jakob, wees niet ontsteld, Israël! Want zie, Ik ga u verlossen uit verre *landen*, uw nageslacht uit het land van hun gevangenschap. Jakob zal terugkeren, rust hebben en zonder zorgen zijn, en niemand zal *hem* schrik aanjagen. 
+27. U dan, wees niet bevreesd, Mijn dienaar Jakob, wees niet ontsteld, IsraÃ«l! Want zie, Ik ga u verlossen uit verre *landen*, uw nageslacht uit het land van hun gevangenschap. Jakob zal terugkeren, rust hebben en zonder zorgen zijn, en niemand zal *hem* schrik aanjagen. 
 28. U *dan*, wees niet bevreesd, Mijn dienaar Jakob, spreekt de HEERE, want Ik ben met u. Ik ga immers een *vernietigend* einde maken aan alle heidenvolken waarheen Ik u verdreven heb. Aan u echter zal Ik geen *vernietigend* einde maken. Ik zal u bestraffen met mate, maar u beslist niet voor onschuldig houden.

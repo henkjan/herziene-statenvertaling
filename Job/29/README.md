@@ -20,7 +20,7 @@
 19. Mijn wortel was uitgestrekt naar het water, en dauw overnachtte op mijn twijgen. 
 20. Mijn eer was *steeds* nieuw bij mij, en mijn boog vernieuwde zich in mijn hand. 
 21. Zij luisterden naar mij, en wachtten, en zwegen om mijn raad *te horen*. 
-22. Na mijn woorden spraken zij niet opnieuw, en míjn woorden druppelden op hen neer. 
+22. Na mijn woorden spraken zij niet opnieuw, en mÃ­jn woorden druppelden op hen neer. 
 23. Want zij wachtten op mij, zoals *op* de regen, en sperden hun mond open, *zoals* naar de late regen. 
 24. Lachte ik hun toe, zij geloofden het niet; en het licht van mijn aangezicht konden zij niet verdonkeren. 
 25. Ik koos hun weg en zat aan het hoofd, en ik woonde als een koning onder de troepen, als iemand die treurenden troost.

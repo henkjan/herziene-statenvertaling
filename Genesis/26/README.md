@@ -8,7 +8,7 @@
 7. Toen de mannen van die plaats hem naar zijn vrouw vroegen, zei hij: Zij is mijn zuster, want hij was bevreesd om te zeggen: *Zij is* mijn vrouw. *Hij dacht:* Anders zullen de mannen van deze plaats mij doden om Rebekka. Zij was namelijk knap om te zien.
 8. Toen hij daar al lange tijd geweest was, gebeurde het dat Abimelech, de koning van de Filistijnen, uit het venster keek en zag, en zie, Izak was zijn vrouw Rebekka aan het liefkozen.
 9. Toen riep Abimelech Izak en zei: Nee maar, zie, zij is uw vrouw! Hoe kunt u dan zeggen: Zij is mijn zuster? Izak antwoordde hem: Omdat ik dacht dat ik anders om haar zou moeten sterven.
-10. Abimelech zei daarop: Wat hebt u ons aangedaan? Hoe gemakkelijk had er één van het volk met uw vrouw kunnen slapen, en *dan* zou u een schuld over ons gebracht hebben!
+10. Abimelech zei daarop: Wat hebt u ons aangedaan? Hoe gemakkelijk had er Ã©Ã©n van het volk met uw vrouw kunnen slapen, en *dan* zou u een schuld over ons gebracht hebben!
 11. Toen gebood Abimelech heel het volk: Wie deze man of zijn vrouw aanraakt, zal zeker gedood worden.
 12. Izak zaaide in dat land en oogstte in dat jaar het honderdvoudige, want de HEERE zegende hem.
 13. De man kreeg aanzien, ja, gaandeweg meer aanzien, totdat hij zeer aanzienlijk geworden was.
@@ -32,5 +32,5 @@
 31. Zij stonden 's morgens vroeg op en zwoeren elkaar *een eed*. Daarna liet Izak hen gaan en zij gingen in vrede bij hem weg.
 32. Het gebeurde *nog* op diezelfde dag dat de dienaren van Izak hem kwamen vertellen over de put die zij gegraven hadden; zij zeiden tegen hem: Wij hebben water gevonden!
 33. Hij noemde hem Seba *en* daarom is de naam van die stad Berseba, tot op deze dag.
-34. Toen Ezau veertig jaar oud was, nam hij Judith, de dochter van Beëri, de Hethiet, en Basmath, de dochter van Elon, de Hethiet, tot vrouw.
+34. Toen Ezau veertig jaar oud was, nam hij Judith, de dochter van BeÃ«ri, de Hethiet, en Basmath, de dochter van Elon, de Hethiet, tot vrouw.
 35. Zij waren een bittere kwelling voor Izak en Rebekka.

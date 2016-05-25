@@ -9,18 +9,18 @@
 8. En zij aten en werden verzadigd. En zij raapten het overschot van de stukken *brood* op, zeven manden.
 9. Het waren er ongeveer vierduizend, die gegeten hadden; en Hij stuurde hen weg.
 10. En toen Hij meteen in het schip gegaan was met Zijn discipelen, kwam Hij in de streken van Dalmanutha.
-11. En de Farizeeën liepen uit en begonnen met Hem te redetwisten en verlangden van Hem, om Hem te verzoeken, een teken uit de hemel.
+11. En de FarizeeÃ«n liepen uit en begonnen met Hem te redetwisten en verlangden van Hem, om Hem te verzoeken, een teken uit de hemel.
 12. En Hij zuchtte diep in Zijn geest en zei: Waarom verlangt dit geslacht een teken? Voorwaar, Ik zeg u: Eer aan dit geslacht een teken gegeven zal worden!
 13. En Hij verliet hen en nadat Hij opnieuw in het schip gegaan was, voer Hij weg naar de overkant.
-14. En Zijn discipelen hadden vergeten broden mee te nemen en zij hadden niet meer dan één brood bij zich in het schip.
-15. En Hij gebood hun en zei: Kijk uit, pas op voor het zuurdeeg van de Farizeeën en voor het zuurdeeg van Herodes.
+14. En Zijn discipelen hadden vergeten broden mee te nemen en zij hadden niet meer dan Ã©Ã©n brood bij zich in het schip.
+15. En Hij gebood hun en zei: Kijk uit, pas op voor het zuurdeeg van de FarizeeÃ«n en voor het zuurdeeg van Herodes.
 16. En zij spraken er met elkaar over en zeiden: *Dit zegt Hij*, omdat wij geen broden hebben.
 17. En Jezus, Die dat wist, zei tegen hen: Waarom spreekt u *erover* met elkaar dat u geen broden hebt? Ziet u *het* nog niet in en begrijpt u *het* niet? Hebt u nog uw verharde hart?
 18. U hebt ogen, en u ziet niet? En u hebt oren, en u hoort niet?
 19. En herinnert u zich niet, toen Ik de vijf broden brak voor de vijfduizend *mannen*, hoeveel volle manden met stukken *brood* u opraapte? Zij zeiden tegen Hem: Twaalf.
 20. En toen Ik de zeven *brak* voor de vierduizend *mannen*, hoeveel volle manden met stukken *brood* u opraapte? En zij zeiden: Zeven.
 21. En Hij zei tegen hen: Waarom begrijpt u *het dan* niet?
-22. En Hij kwam in Bethsaïda; en ze brachten een blinde bij Hem en smeekten Hem dat Hij hem aanraakte.
+22. En Hij kwam in BethsaÃ¯da; en ze brachten een blinde bij Hem en smeekten Hem dat Hij hem aanraakte.
 23. En toen Hij de hand van de blinde genomen had, leidde Hij hem het dorp uit; en nadat Hij in zijn ogen gespuwd en de handen op hem gelegd had, vroeg Hij hem of hij iets zag.
 24. En hij keek op en zei: Ik zie de mensen, want ik zie hen, als bomen, rondlopen.
 25. Daarna legde Hij de handen opnieuw op zijn ogen en liet hem weer kijken. En hij was hersteld en zag allen heel duidelijk.

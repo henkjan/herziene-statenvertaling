@@ -15,7 +15,7 @@
 14. Breng deze dingen *voortdurend* in herinnering *en* bezweer *hun*, ten overstaan van de Heere, dat zij geen woordenstrijd voeren, *die* nergens toe dient *dan* tot de ondergang van de hoorders.
 15. Beijver u om uzelf welbeproefd voor God te stellen, als een arbeider die zich niet hoeft te schamen *en* die het Woord van de waarheid recht snijdt.
 16. Maar ontwijk onheilige, inhoudsloze praat. Want zij *die dat doen*, zullen steeds meer in goddeloosheid toenemen.
-17. En hun woord zal zich uitzaaien als kanker; onder hen bevinden zich Hymeneüs en Filetus.
+17. En hun woord zal zich uitzaaien als kanker; onder hen bevinden zich HymeneÃ¼s en Filetus.
 18. Zij zijn van de waarheid afgeweken door te beweren dat de opstanding reeds heeft plaatsgevonden, en breken het geloof van sommigen af.
 19. Toch blijft het vaste fundament van God staan, met dit zegel: De Heere kent wie van Hem zijn, en: Ieder die de Naam van Christus noemt, moet zich ver houden van de ongerechtigheid.
 20. Maar in een groot huis zijn niet alleen voorwerpen van goud en van zilver, maar ook van hout en aardewerk. Sommige zijn voor eervol, maar andere voor oneervol *gebruik.*

@@ -1,5 +1,5 @@
 #Psalmen 73
-1. Een psalm van Asaf. Ja, God is goed voor Israël, voor hen die zuiver van hart zijn. 
+1. Een psalm van Asaf. Ja, God is goed voor IsraÃ«l, voor hen die zuiver van hart zijn. 
 2. Maar wat mij betreft, mijn voeten waren bijna uitgegleden, mijn schreden waren haast uitgeschoten, 
 3. want ik was jaloers op de dwazen, toen ik de vrede van de goddelozen zag. 
 4. Tot aan hun dood zijn er immers geen boeien, en hun kracht is fris. 

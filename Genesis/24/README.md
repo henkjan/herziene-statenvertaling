@@ -1,14 +1,14 @@
 #Genesis 24
 1. Abraham nu was oud *en* op dagen gekomen en de HEERE had Abraham in alles gezegend.
 2. Toen zei Abraham tegen zijn dienaar, de oudste van zijn huis, die alles wat hij had, beheerde: Leg toch uw hand onder mijn heup.
-3. Ik wil u laten zweren bij de HEERE, de God van de hemel en de God van de aarde, dat u voor mijn zoon geen vrouw zult nemen uit de dochters van de Kanaänieten te midden van wie ik woon,
+3. Ik wil u laten zweren bij de HEERE, de God van de hemel en de God van de aarde, dat u voor mijn zoon geen vrouw zult nemen uit de dochters van de KanaÃ¤nieten te midden van wie ik woon,
 4. maar dat u naar mijn vaderland en mijn familiekring gaat om voor mijn zoon Izak een vrouw te nemen.
 5. En de dienaar zei tegen hem: Misschien zal die vrouw mij niet willen volgen naar dit land. Zal ik dan uw zoon terug moeten brengen naar het land waaruit u vertrokken bent?
 6. Abraham zei tegen hem: Wees op uw hoede dat u mijn zoon daar niet terugbrengt!
 7. De HEERE, de God van de hemel, Die mij uit mijn familie en uit mijn geboorteland weggehaald heeft, Die tot mij gesproken heeft en Die mij gezworen heeft: Aan uw nageslacht zal Ik dit land geven - die *God* zal Zijn engel voor u uit sturen, opdat u voor mijn zoon daarvandaan een vrouw zult nemen.
 8. Maar als die vrouw u niet wil volgen, dan bent u vrij van deze eed aan mij; breng mijn zoon echter niet daarheen terug.
 9. Toen legde de dienaar zijn hand onder de heup van Abraham, zijn heer, en hij zwoer hem dat.
-10. Daarop nam de dienaar tien kamelen van de kamelen van zijn heer en ging op weg met allerlei kostbaarheden van zijn heer bij zich. Zo stond hij op en ging hij op weg naar Mesopotamië, naar de stad van Nahor.
+10. Daarop nam de dienaar tien kamelen van de kamelen van zijn heer en ging op weg met allerlei kostbaarheden van zijn heer bij zich. Zo stond hij op en ging hij op weg naar MesopotamiÃ«, naar de stad van Nahor.
 11. Buiten die stad liet hij de kamelen neerknielen bij een waterput, tegen de avond, tegen de tijd waarop de vrouwen water komen putten.
 12. Toen zei hij: HEERE, God van mijn heer Abraham, laat het mij vandaag toch gebeuren en bewijs Abraham, mijn heer, *Uw* goedertierenheid.
 13. Zie, ik sta bij deze waterbron en de dochters van de mannen van de stad komen om water te putten.
@@ -35,7 +35,7 @@
 34. Toen zei hij: Ik ben een dienaar van Abraham.
 35. De HEERE heeft mijn heer rijk gezegend, zodat hij een aanzienlijk *man* geworden is; Hij gaf hem kleinvee en runderen, zilver en goud, slaven en slavinnen, kamelen en ezels.
 36. Sara, de vrouw van mijn heer, heeft mijn heer een zoon gebaard toen zij oud was, en alles wat hij heeft, heeft hij hem gegeven.
-37. Mijn heer heeft mij laten zweren: U mag voor mijn zoon geen vrouw nemen uit de dochters van de Kanaänieten, in wier land ik woon,
+37. Mijn heer heeft mij laten zweren: U mag voor mijn zoon geen vrouw nemen uit de dochters van de KanaÃ¤nieten, in wier land ik woon,
 38. maar u moet naar mijn familie en naar mijn geslacht gaan en *daar* een vrouw nemen voor mijn zoon.
 39. Toen zei ik tegen mijn heer: Misschien wil die vrouw mij niet volgen.
 40. Hij zei toen tegen mij: De HEERE, voor Wiens aangezicht ik gewandeld heb, zal Zijn engel met u meesturen en Hij zal uw weg voorspoedig maken, zodat u voor mijn zoon een vrouw kunt nemen uit mijn geslacht en uit mijn familie.
@@ -43,7 +43,7 @@
 42. Toen ik vandaag bij de bron aankwam, zei ik: HEERE, God van mijn heer Abraham, als U de weg die ik ga voorspoedig wilt maken -
 43. zie, ik sta bij de waterbron - laat het *dan* zo gebeuren dat het meisje dat naar buiten komt om te putten, tegen wie ik zal zeggen: Geef mij toch wat water uit uw kruik te drinken,
 44. en dat tegen mij zal zeggen: Drinkt u maar en ik zal ook *water* putten voor uw kamelen, dat zij de vrouw zal zijn die de HEERE bestemd heeft voor de zoon van mijn heer.
-45. Nog voordat ik geëindigd had *dit* in mijn hart te spreken, zie, Rebekka kwam *de stad* uit, met haar kruik op haar schouder, en daalde af naar de bron en putte water. Ik zei tegen haar: Geef mij toch *wat* te drinken.
+45. Nog voordat ik geÃ«indigd had *dit* in mijn hart te spreken, zie, Rebekka kwam *de stad* uit, met haar kruik op haar schouder, en daalde af naar de bron en putte water. Ik zei tegen haar: Geef mij toch *wat* te drinken.
 46. Zij haastte zich, liet haar kruik van haar *schouder* glijden en zei: Drinkt u *maar*, ik zal ook uw kamelen te drinken geven. Ik dronk en zij gaf ook de kamelen te drinken.
 47. Toen vroeg ik haar en zei: Van wie bent u een dochter? Zij antwoordde: *Ik ben* de dochter van Bethuel, de zoon van Nahor, die Milka hem gebaard heeft. Toen deed ik een ring in haar neus en de armbanden aan haar armen.
 48. Ik knielde en boog mij neer voor de HEERE; ik loofde de HEERE, de God van mijn heer Abraham, Die mij op de goede weg geleid had om voor zijn zoon de dochter van de broeder van mijn heer *tot vrouw* te nemen.
@@ -60,7 +60,7 @@
 59. Toen lieten zij Rebekka, hun zuster, en haar voedster en de dienaar van Abraham en zijn mannen vertrekken.
 60. Zij zegenden Rebekka en zeiden tegen haar: Zuster van ons, word tot duizenden van tienduizenden en laat jouw nageslacht in bezit krijgen de poort van zijn vijanden.
 61. Rebekka en haar dienaressen stonden op, bestegen de kamelen en volgden de man. Zo nam die dienaar Rebekka mee en vertrok.
-62. Izak kwam inmiddels uit de richting van de put Lachai-Roï; hij woonde namelijk in het Zuiderland.
+62. Izak kwam inmiddels uit de richting van de put Lachai-RoÃ¯; hij woonde namelijk in het Zuiderland.
 63. Izak ging tegen het vallen van de avond naar buiten om te bidden in het veld. Hij sloeg zijn ogen op, en zag, en zie, er kwamen kamelen aan.
 64. Ook Rebekka sloeg haar ogen op en zag Izak; zij liet zich snel van de kameel glijden.
 65. Zij zei tegen de dienaar: Wie is die man die ons in het veld tegemoet komt lopen? De dienaar antwoordde: Dat is mijn heer. Toen pakte zij *haar* sluier en bedekte zich.

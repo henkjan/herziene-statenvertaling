@@ -2,18 +2,18 @@
 1. Trek rond door de straten van Jeruzalem, kijk toch en let op, zoek op zijn pleinen, of u iemand vindt, of er een is die recht doet, *een* die betrouwbaarheid nastreeft, dan zal Ik *Jeruzalem* vergeven. 
 2. Als ze zeggen ?*Zo waar* de HEERE leeft?, leggen zij toch een valse eed af. 
 3. HEERE, *zien* Uw ogen niet uit naar betrouwbaarheid? U hebt hen geslagen, maar zij voelden geen pijn. U hebt hen omgebracht, *maar* zij weigerden vermaning te aanvaarden. Zij hebben hun gezichten harder gemaakt dan een rots, zij hebben geweigerd zich te bekeren. 
-4. Õk zei echter: Zij zijn maar geringe *mensen*, zij gedragen zich als dwazen, omdat zij de weg van de HEERE niet kennen, het recht van hun God. 
+4. √çk zei echter: Zij zijn maar geringe *mensen*, zij gedragen zich als dwazen, omdat zij de weg van de HEERE niet kennen, het recht van hun God. 
 5. Laat ik naar de aanzienlijken gaan en met hen spreken, want die kennen de weg van de HEERE *wel*, het recht van hun God. Zij echter hebben samen het juk gebroken, de banden verscheurd. 
 6. Daarom zal een leeuw uit het woud hen doden, een wolf van de vlakten zal hen uiteenrijten, terwijl een luipaard op de loer ligt bij hun steden, - al wie daar uitgaat, wordt verscheurd - want hun overtredingen zijn talrijk geworden, machtig veel hun afdwalingen. 
 7. Hoe zou Ik u dit vergeven? Uw kinderen hebben Mij verlaten en zweren bij wat geen goden zijn. Als Ik hen overvloed geef, plegen zij overspel, en in het hoerenhuis drommen zij samen. 
 8. Weldoorvoede, hitsige hengsten zijn het, ieder hinnikt naar de vrouw van zijn naaste. 
 9. Zou Ik deze dingen niet straffen? spreekt de HEERE, of op een volk als dit Mijzelf niet wreken? 
 10. Klim zijn wijnbergen op, richt *ze* te gronde, maar maak er geen *vernietigend* einde aan. Verwijder zijn ranken, want die zijn niet van de HEERE. 
-11. Zij hebben immers volkomen trouweloos tegen Mij gehandeld, het huis van IsraÎl en het huis van Juda, spreekt de HEERE. 
+11. Zij hebben immers volkomen trouweloos tegen Mij gehandeld, het huis van Isra√´l en het huis van Juda, spreekt de HEERE. 
 12. Zij hebben de HEERE verloochend en zeggen: Hij is het niet! Geen onheil zal over ons komen, zwaard of honger zullen wij niet zien! 
 13. Die profeten zullen worden als wind, het woord is niet bij hen. Zo zal aan hen gedaan worden. 
 14. Daarom, zo zegt de HEERE, de God van de legermachten: Omdat *u* dit woord spreekt, zie, Ik ga Mijn woorden in uw mond tot vuur maken en dit volk *tot* hout, zodat het hen zal verteren. 
-15. Zie, Ik ga over u een volk van ver weg brengen, huis van IsraÎl, spreekt de HEERE. Een taai volk is het, een volk, van oude tijden af is het er, een volk waarvan u de taal niet kent, en niet verstaat wat het spreekt. 
+15. Zie, Ik ga over u een volk van ver weg brengen, huis van Isra√´l, spreekt de HEERE. Een taai volk is het, een volk, van oude tijden af is het er, een volk waarvan u de taal niet kent, en niet verstaat wat het spreekt. 
 16. Zijn pijlkoker is als een open graf, het zijn allen helden. 
 17. Verslinden zal het uw oogst en uw brood, verslinden zullen ze uw zonen en uw dochters, verslinden zal het uw schapen en uw runderen, verslinden uw wijnstok en uw vijgenboom, met het zwaard uw versterkte steden verwoesten, waarop u vertrouwt.
 18. Maar ook in die dagen, spreekt de HEERE, zal Ik geen *vernietigend* einde aan u maken.

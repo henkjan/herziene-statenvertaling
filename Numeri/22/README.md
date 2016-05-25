@@ -1,7 +1,7 @@
 #Numeri 22
-1. Daarna braken de Israëlieten op en sloegen hun kamp op in de vlakten van Moab, aan deze zijde van de Jordaan, *ter hoogte* van Jericho.
-2. Balak, de zoon van Zippor, zag alles wat Israël met de Amorieten gedaan had.
-3. Daarom was Moab zeer bevreesd voor dit volk, want het was talrijk. Moab verkeerde in angst voor de Israëlieten.
+1. Daarna braken de IsraÃ«lieten op en sloegen hun kamp op in de vlakten van Moab, aan deze zijde van de Jordaan, *ter hoogte* van Jericho.
+2. Balak, de zoon van Zippor, zag alles wat IsraÃ«l met de Amorieten gedaan had.
+3. Daarom was Moab zeer bevreesd voor dit volk, want het was talrijk. Moab verkeerde in angst voor de IsraÃ«lieten.
 4. Toen zei Moab tegen de oudsten van Midian: Nu zal deze menigte alles wat rondom ons is, afgrazen, zoals een rund het groen van het veld afgraast. Balak, de zoon van Zippor, was in die tijd koning van Moab.
 5. Hij stuurde boden naar Bileam, de zoon van Beor, in Pethor, aan de rivier *de Eufraat*, in het land van zijn volksgenoten, om hem bij zich te laten roepen: Zie, er is een volk uit Egypte getrokken; zie, het heeft het oppervlak van het land bedekt, en het blijft recht tegenover mij liggen.
 6. Nu dan, kom toch, vervloek dit volk voor mij, want het is machtiger dan ik. Misschien kan ik het verslaan en kan ik het uit het land verdrijven, want ik weet: wie u zegent, is gezegend, en wie u vervloekt, is vervloekt.
@@ -39,4 +39,4 @@
 38. Toen zei Bileam tegen Balak: Zie, ik ben nu naar u toe gekomen; zal ik nu echter ook maar iets kunnen spreken? Het woord dat God mij in de mond legt, zal ik spreken.
 39. Bileam ging met Balak mee, en zij kwamen in Kirjath-Huzoth.
 40. Toen slachtte Balak runderen en schapen, en hij stuurde *ervan* naar Bileam en naar de vorsten die bij hem waren.
-41. De *volgende* morgen gebeurde het dat Balak Bileam meenam en hem op de Baälshoogten liet klimmen, zodat hij vandaar het uiterste *deel* van het volk kon zien.
+41. De *volgende* morgen gebeurde het dat Balak Bileam meenam en hem op de BaÃ¤lshoogten liet klimmen, zodat hij vandaar het uiterste *deel* van het volk kon zien.

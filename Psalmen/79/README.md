@@ -11,4 +11,4 @@
 10. Waarom zouden de heidenvolken zeggen: Waar is hun God? Laat de wraak voor het vergoten bloed van Uw dienaren bekend worden voor onze ogen onder de heidenvolken. 
 11. Laat het gekerm van de gevangenen voor Uw aangezicht komen, laat wie ten dode zijn opgeschreven, overeenkomstig de grootheid van Uw arm het leven behouden. 
 12. Vergeld onze buren zevenvoudig de smaad in hun boezem die zij U, Heere, aangedaan hebben. 
-13. Dan zullen wíj, Uw volk en de schapen van Uw weide, U voor eeuwig loven; van generatie op generatie zullen wij van Uw roem vertellen.
+13. Dan zullen wÃ­j, Uw volk en de schapen van Uw weide, U voor eeuwig loven; van generatie op generatie zullen wij van Uw roem vertellen.

@@ -11,7 +11,7 @@
 10. want er staat geschreven dat Hij Zijn engelen voor U bevel zal geven om U te bewaren,
 11. en dat zij U op de handen dragen zullen, opdat U Uw voet niet misschien aan een steen stoot.
 12. Maar Jezus antwoordde en zei tegen hem: Er is gezegd: U zult de Heere, uw God, niet verzoeken.
-13. En toen de duivel elke verzoeking beëindigd had, verliet hij Hem tot een bepaalde tijd.
+13. En toen de duivel elke verzoeking beÃ«indigd had, verliet hij Hem tot een bepaalde tijd.
 14. En Jezus keerde door de kracht van de Geest terug naar Galilea, en het gerucht over Hem verspreidde zich door heel de omgeving.
 15. En Hij gaf onderwijs in hun synagogen en werd door allen geprezen.
 16. En Hij kwam in Nazareth, waar Hij opgevoed was, en ging naar Zijn gewoonte op de dag van de sabbat naar de synagoge, en Hij stond op om te lezen.
@@ -21,15 +21,15 @@
 20. En toen Hij het boek dichtgedaan en aan de dienaar teruggegeven had, ging Hij zitten, en de ogen van allen in de synagoge waren op Hem gevestigd.
 21. Hij begon tegen hen te zeggen: Heden is deze Schrift in uw oren in vervulling gegaan.
 22. En zij betuigden Hem allen hun instemming en verwonderden zich over de woorden van genade die uit Zijn mond kwamen, en zij zeiden: Is Dit niet de Zoon van Jozef?
-23. Maar Hij zei tegen hen: U zult Mij ongetwijfeld dit spreekwoord voorhouden: Dokter, genees uzelf; alles waarvan wij gehoord hebben dat het in Kapernaüm gebeurd is, doe *dat* ook hier in Uw vaderstad.
+23. Maar Hij zei tegen hen: U zult Mij ongetwijfeld dit spreekwoord voorhouden: Dokter, genees uzelf; alles waarvan wij gehoord hebben dat het in KapernaÃ¼m gebeurd is, doe *dat* ook hier in Uw vaderstad.
 24. Hij zei: Voorwaar, Ik zeg u dat geen profeet welgevallig is in zijn vaderstad.
-25. Maar Ik zeg u naar waarheid: Er waren veel weduwen in Israël in de dagen van Elia, toen de hemel drie jaar en zes maanden gesloten was, zodat er grote hongersnood kwam over heel het land,
+25. Maar Ik zeg u naar waarheid: Er waren veel weduwen in IsraÃ«l in de dagen van Elia, toen de hemel drie jaar en zes maanden gesloten was, zodat er grote hongersnood kwam over heel het land,
 26. en naar geen van hen werd Elia gezonden, maar wel naar Zarfath bij Sidon, naar een vrouw, een weduwe.
-27. Ook waren er veel melaatsen in Israël in de tijd van de profeet Elisa, en geen van hen werd gereinigd, maar wel Naäman, de Syriër.
+27. Ook waren er veel melaatsen in IsraÃ«l in de tijd van de profeet Elisa, en geen van hen werd gereinigd, maar wel NaÃ¤man, de SyriÃ«r.
 28. En allen in de synagoge werden met woede vervuld toen zij dit hoorden,
 29. en zij stonden op, dreven Hem de stad uit en brachten Hem op de top van de berg waarop hun stad gebouwd was, om Hem van de steilte af te werpen.
 30. Maar Hij liep midden tussen hen door en ging weg.
-31. En Hij daalde af naar Kapernaüm, een stad in Galilea, en onderwees hen op de sabbatdagen.
+31. En Hij daalde af naar KapernaÃ¼m, een stad in Galilea, en onderwees hen op de sabbatdagen.
 32. En zij stonden versteld van Zijn onderricht, want Zijn woord was met gezag.
 33. En in de synagoge was een man die een geest van een onreine demon had, en die riep met luide stem:
 34. Ga weg! Wat hebben wij met U *te maken*, Jezus de Nazarener? Bent U gekomen om ons te gronde te richten? Ik weet wie U bent, *namelijk* de Heilige van God.

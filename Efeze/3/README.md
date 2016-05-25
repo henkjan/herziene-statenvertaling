@@ -12,7 +12,7 @@
 11. volgens het eeuwige voornemen dat Hij gemaakt heeft in Christus Jezus, onze Heere.
 12. In Hem hebben wij de vrijmoedigheid en de toegang met vertrouwen, door het geloof in Hem.
 13. Daarom vraag ik u dat u de moed niet verliest vanwege mijn verdrukkingen omwille van u, want dat is uw heerlijkheid.
-14. Om deze reden buig ik mijn knieën voor de Vader van onze Heere Jezus Christus,
+14. Om deze reden buig ik mijn knieÃ«n voor de Vader van onze Heere Jezus Christus,
 15. naar Wie elk geslacht in de hemelen en op de aarde genoemd wordt,
 16. opdat Hij u geeft, naar de rijkdom van Zijn heerlijkheid, met kracht gesterkt te worden door Zijn Geest in de innerlijke mens,
 17. opdat Christus door het geloof in uw harten woont en u in de liefde geworteld en gefundeerd bent,

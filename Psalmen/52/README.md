@@ -1,6 +1,6 @@
 #Psalmen 52
 1. Een onderwijzing van David, voor de koorleider;
-2. toen Doëg, de Edomiet, gekomen was en aan Saul bekendgemaakt en tegen hem gezegd had: David is gekomen in het huis van Achimelech. 
+2. toen DoÃ«g, de Edomiet, gekomen was en aan Saul bekendgemaakt en tegen hem gezegd had: David is gekomen in het huis van Achimelech. 
 3. Waarom beroemt u zich op het kwaad, geweldenaar? Gods goedertierenheid *duurt toch* de hele dag! 
 4. Uw tong bedenkt enkel schadelijke *dingen*, als een geslepen scheermes dat bedrieglijk werkt. 
 5. U hebt het kwaad lief boven het goede, de leugen boven het spreken van recht. [ Sela] 

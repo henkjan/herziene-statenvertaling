@@ -5,8 +5,8 @@
 4. dan zal Ik u op zijn tijd regen geven, zodat het land zijn opbrengst zal geven en de bomen van het veld hun vruchten zullen geven.
 5. Dan zal de dorstijd bij u tot de wijnoogst duren, en de wijnoogst zal tot de zaaitijd duren. U zult uw brood tot verzadiging toe eten en onbezorgd in uw land wonen.
 6. Ik zal vrede in het land geven, zodat u kunt slapen zonder dat iemand u schrik aanjaagt. Ik zal de wilde dieren uit het land wegdoen en geen zwaard zal *meer* door uw land gaan.
-7. U zult uw vijanden achtervolgen en zij zullen door het zwaard vóór u neervallen.
-8. Vijf van u zullen er honderd achtervolgen, en honderd van u zullen er tienduizend achtervolgen. Uw vijanden zullen door het zwaard vóór u neervallen.
+7. U zult uw vijanden achtervolgen en zij zullen door het zwaard vÃ³Ã³r u neervallen.
+8. Vijf van u zullen er honderd achtervolgen, en honderd van u zullen er tienduizend achtervolgen. Uw vijanden zullen door het zwaard vÃ³Ã³r u neervallen.
 9. Ik zal Mij naar u toewenden, u vruchtbaar en talrijk maken en Mijn verbond met u bevestigen.
 10. Terwijl u *nog* van de oude *oogst* van het oude *jaar* eet, kunt u de oude *oogst* al wegdoen vanwege de nieuwe.
 11. Ik zal Mijn tabernakel in uw midden plaatsen en Mijn ziel zal niet van u walgen.
@@ -20,11 +20,11 @@
 19. Ik zal de trots op uw *eigen* kracht breken. Ik zal uw hemel als ijzer maken en uw aarde als brons.
 20. Uw kracht zal voor niets verbruikt worden, uw land geeft zijn opbrengst niet en de bomen op het land geven hun vruchten niet.
 21. Als u dan tegen Mij blijft ingaan en niet naar Mij wilt luisteren, dan zal Ik u overeenkomstig uw zonden zeven *keer* harder slaan.
-22. Ik zal de dieren van het veld op u afsturen en die zullen u van kinderen beroven, uw vee uitroeien en u *in aantal zó* verminderen, dat uw wegen er verlaten bij liggen.
+22. Ik zal de dieren van het veld op u afsturen en die zullen u van kinderen beroven, uw vee uitroeien en u *in aantal zÃ³* verminderen, dat uw wegen er verlaten bij liggen.
 23. En als u zich hierdoor *nog* niet laat bestraffen en tegen Mij blijft ingaan,
 24. dan zal Ik Zelf ook tegen u ingaan en zal Ik Zelf u vanwege uw zonden ook zeven *keer* harder slaan.
 25. Dan breng Ik *het* zwaard over u, dat de wraak van het verbond voltrekt. Wanneer u zich dan in uw steden verzamelt, zal ik de pest in uw midden sturen. U zult in de hand van de vijand overgegeven worden.
-26. Wanneer Ik het u aan brood laat ontbreken, dan zullen tien vrouwen uw brood in één oven bakken en zij zullen uw brood in afgewogen *hoeveelheden* moeten teruggeven. U zult eten, maar niet verzadigd worden.
+26. Wanneer Ik het u aan brood laat ontbreken, dan zullen tien vrouwen uw brood in Ã©Ã©n oven bakken en zij zullen uw brood in afgewogen *hoeveelheden* moeten teruggeven. U zult eten, maar niet verzadigd worden.
 27. Als u dan hierom *nog* niet naar Mij luistert en u tegen Mij blijft ingaan,
 28. dan zal Ik met grimmigheid tegen u ingaan en zal Ik Zelf u vanwege uw zonden ook zeven *keer* erger straffen.
 29. U zult dan het vlees van uw *eigen* zonen eten, en het vlees van uw *eigen* dochters zult u eten.
@@ -38,10 +38,10 @@
 37. Zij zullen over elkaar struikelen alsof ze zich voor een zwaard *uit de voeten maken*, terwijl niemand *hen* opjaagt. U zult geen stand kunnen houden tegen uw vijanden,
 38. maar u zult omkomen onder de heidenvolken en het land van uw vijanden zal u verslinden.
 39. En wie van u overgebleven zijn, zullen vanwege hun ongerechtigheid wegkwijnen in de landen van uw vijanden. Ja, ook vanwege de ongerechtigheden van hun vaderen zullen zij met hen wegkwijnen.
-40. Wanneer zij hun ongerechtigheid zullen belijden, mét de ongerechtigheid van hun vaderen, hun trouwbreuk, die zij tegen Mij gepleegd hebben, en ook dat zij tegen Mij zijn ingegaan,
+40. Wanneer zij hun ongerechtigheid zullen belijden, mÃ©t de ongerechtigheid van hun vaderen, hun trouwbreuk, die zij tegen Mij gepleegd hebben, en ook dat zij tegen Mij zijn ingegaan,
 41. - zodat Ik ook Zelf tegen hen inging en hen in het land van hun vijanden bracht - of *wanneer* dan hun onbesneden hart vernederd wordt en zij behagen scheppen in de straf voor hun ongerechtigheid,
 42. dan zal Ik denken aan Mijn verbond met Jakob. En ook aan Mijn verbond met Izak, en ook aan Mijn verbond met Abraham zal Ik denken, en Ik zal denken aan het land.
 43. Terwijl het land door hen verlaten is en behagen schept in zijn sabbats*jaren* - het ligt er immers omwille van hen verlaten bij - hebben zijzelf behagen in de straf voor hun ongerechtigheid, omdat, ja, omdat zij Mijn bepalingen verwierpen en hun ziel van Mijn verordeningen walgde.
 44. Maar bovendien: wanneer zij in het land van hun vijanden zijn, dan zal Ik hen niet verwerpen en niet van hen walgen door hen te vernietigen *en* Mijn verbond met hen te verbreken, want Ik ben de HEERE, hun God.
 45. Ik zal ter wille van hen denken aan het verbond met de voorouders, die Ik voor de ogen van de heidenvolken uit het land Egypte geleid heb om hun tot een God te zijn. Ik ben de HEERE.
-46. Dit zijn de verordeningen, de bepalingen en de wetten die de HEERE gegeven heeft, *over de verhouding* tussen Hem en de Israëlieten, op de berg Sinaï, door de dienst van Mozes.
+46. Dit zijn de verordeningen, de bepalingen en de wetten die de HEERE gegeven heeft, *over de verhouding* tussen Hem en de IsraÃ«lieten, op de berg SinaÃ¯, door de dienst van Mozes.

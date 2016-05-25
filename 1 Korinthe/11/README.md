@@ -19,14 +19,14 @@
 18. Want ten eerste hoor ik dat er als u samenkomt in de gemeente verdeeldheid onder u is, en ten dele geloof ik dat.
 19. Want er moeten ook afwijkingen in de leer onder u zijn, opdat wie beproefd blijken te zijn, in uw midden openbaar komen.
 20. Zoals u nu bij elkaar samenkomt, is *dat* niet het eten van het Avondmaal van de Heere.
-21. Want bij het eten gebruikt iedereen van tevoren *al* zijn eigen avondmaal en *dan* heeft de één honger, terwijl de ander dronken is.
+21. Want bij het eten gebruikt iedereen van tevoren *al* zijn eigen avondmaal en *dan* heeft de Ã©Ã©n honger, terwijl de ander dronken is.
 22. Hebt u dan geen huizen om er te eten en te drinken? Of minacht u de gemeente van God en beschaamt u hen die niets hebben? Wat moet ik *nu* tegen u zeggen? Zal ik u hierin prijzen? Ik prijs u niet.
 23. Want ik heb van de Heere ontvangen, wat ik u ook heb overgeleverd, dat de Heere Jezus in de nacht waarin Hij werd verraden, brood nam,
 24. en nadat Hij gedankt had, brak Hij het en zei: Neem, eet, dit is Mijn lichaam, dat voor u gebroken wordt. Doe dat tot Mijn gedachtenis.
 25. Evenzo *nam Hij* ook de drinkbeker, na het gebruiken van de maaltijd, en zei: Deze drinkbeker is het nieuwe verbond in Mijn bloed. Doe dat, zo dikwijls als u *die* drinkt, tot Mijn gedachtenis.
 26. Want zo dikwijls als u dit brood eet en deze drinkbeker drinkt, verkondig de dood van de Heere, totdat Hij komt.
 27. Daarom, wie op onwaardige wijze dit brood eet of de drinkbeker van de Heere drinkt, is schuldig aan het lichaam en bloed van de Heere.
-28. Maar laat *ieder* mens zichzelf beproeven en laat hij zó eten van het brood en drinken uit de drinkbeker.
+28. Maar laat *ieder* mens zichzelf beproeven en laat hij zÃ³ eten van het brood en drinken uit de drinkbeker.
 29. Want wie op onwaardige wijze eet en drinkt, die eet en drinkt zichzelf een oordeel, omdat hij het lichaam van de Heere niet onderscheidt.
 30. Daarom zijn er onder u veel zwakken en zieken, en velen zijn ontslapen.
 31. Want als wij onszelf zouden beoordelen, zouden wij niet geoordeeld worden.

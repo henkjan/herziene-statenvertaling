@@ -1,5 +1,5 @@
 #Johannes 3
-1. En er was een mens uit de Farizeeën; zijn naam was Nicodemus, een leider van de Joden.
+1. En er was een mens uit de FarizeeÃ«n; zijn naam was Nicodemus, een leider van de Joden.
 2. Deze kwam 's nachts naar Jezus en zei tegen Hem: Rabbi, wij weten dat U van God gekomen bent als leraar, want niemand kan deze tekenen doen die U doet, als God niet met hem is.
 3. Jezus antwoordde en zei tegen hem: Voorwaar, voorwaar, Ik zeg u: Als iemand niet opnieuw geboren wordt, kan hij het Koninkrijk van God niet zien.
 4. Nicodemus zei tegen Hem: Hoe kan een mens geboren worden als hij oud is? Hij kan toch niet voor de tweede keer in de schoot van zijn moeder ingaan en geboren worden?
@@ -8,7 +8,7 @@
 7. Verwonder u niet dat Ik tegen u gezegd heb: U moet opnieuw geboren worden.
 8. De wind waait waarheen hij wil en u hoort zijn geluid, maar u weet niet waar hij vandaan komt en waar hij heen gaat; zo is *het* met iedereen die uit de Geest geboren is.
 9. Nicodemus antwoordde en zei tegen Hem: Hoe kunnen deze dingen gebeuren?
-10. Jezus antwoordde en zei tegen hem: Bent u de leraar van Israël en weet u deze dingen niet?
+10. Jezus antwoordde en zei tegen hem: Bent u de leraar van IsraÃ«l en weet u deze dingen niet?
 11. Voorwaar, voorwaar, Ik zeg u: Wij spreken over wat Wij weten en getuigen van wat Wij gezien hebben, en toch neemt u Ons getuigenis niet aan.
 12. Als Ik aardse dingen tegen u zei en u niet gelooft, hoe zult u geloven als Ik hemelse dingen tegen u zeg?
 13. En niemand is opgevaren naar de hemel dan Hij Die uit de hemel neergedaald is, *namelijk* de Zoon des mensen, Die in de hemel is.

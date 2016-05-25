@@ -5,7 +5,7 @@
 4. Deze Johannes had kleding van kameelhaar en een leren gordel om zijn middel; zijn voedsel was sprinkhanen en wilde honing.
 5. Toen liep Jeruzalem, heel Judea en heel het land rondom de Jordaan naar hem uit,
 6. en zij werden door hem gedoopt in de Jordaan, terwijl zij hun zonden beleden.
-7. Toen hij velen van de Farizeeën en Sadduceeën op zijn doop zag afkomen, zei hij tegen hen: Adderengebroed! Wie heeft u laten weten dat u moet vluchten voor de komende toorn?
+7. Toen hij velen van de FarizeeÃ«n en SadduceeÃ«n op zijn doop zag afkomen, zei hij tegen hen: Adderengebroed! Wie heeft u laten weten dat u moet vluchten voor de komende toorn?
 8. Breng dan vruchten voort in overeenstemming met de bekering,
 9. en denk niet dat u bij uzelf kunt zeggen: Wij hebben Abraham als vader; want ik zeg u dat God zelfs uit deze stenen voor Abraham kinderen kan verwekken.
 10. De bijl ligt zelfs al aan de wortel van de bomen; elke boom dan die geen goede vrucht voortbrengt, wordt omgehakt en in het vuur geworpen.

@@ -4,4 +4,4 @@
 3. Uw vrouw zal zijn als een vruchtbare wijnstok binnen in uw huis, uw kinderen zullen zijn als jonge olijfbomen rondom uw tafel. 
 4. Zie, zo zal zeker de man gezegend worden die de HEERE vreest. 
 5. De HEERE zal u zegenen vanuit Sion; u zult het goede van Jeruzalem zien, al de dagen van uw leven. 
-6. U zult de kinderen van uw kinderen zien. Vrede over Israël!
+6. U zult de kinderen van uw kinderen zien. Vrede over IsraÃ«l!

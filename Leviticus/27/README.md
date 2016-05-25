@@ -1,15 +1,15 @@
 #Leviticus 27
 1. De HEERE sprak tot Mozes:
-2. Spreek tot de Israëlieten, en zeg tegen hen: Wanneer iemand een gelofte aflegt, zullen de personen die aan de HEERE *gewijd zijn*, tegen een door u bepaalde waarde *vrijgekocht worden*.
+2. Spreek tot de IsraÃ«lieten, en zeg tegen hen: Wanneer iemand een gelofte aflegt, zullen de personen die aan de HEERE *gewijd zijn*, tegen een door u bepaalde waarde *vrijgekocht worden*.
 3. Als de door u bepaalde waarde een man van twintig jaar tot zestig jaar betreft, dan is de door u bepaalde waarde vijftig sikkel zilver, *gerekend* volgens de sikkel van het heiligdom.
 4. Maar als het een vrouw betreft, is de door u bepaalde waarde dertig sikkel.
 5. Is het *iemand* tussen vijf jaar en twintig jaar, dan is de door u bepaalde waarde voor een man twintig sikkel en voor een vrouw tien sikkel.
 6. Is het *een kind* van een maand tot vijf jaar, dan is de door u bepaalde waarde bij een man vijf sikkel zilver en de door u bepaalde waarde bij een vrouw drie sikkel zilver.
 7. En is het *iemand* van zestig jaar oud of daarboven, is het een man, dan is de door u bepaalde waarde vijftien sikkel en voor een vrouw tien sikkel.
-8. Maar als hij te arm is om de door u bepaalde waarde *te betalen*, dan moet men hem vóór de priester plaatsen, zodat de priester zijn waarde kan bepalen. Overeenkomstig wat voor hem die de gelofte afgelegd heeft, wél binnen handbereik is, moet de priester zijn waarde bepalen.
+8. Maar als hij te arm is om de door u bepaalde waarde *te betalen*, dan moet men hem vÃ³Ã³r de priester plaatsen, zodat de priester zijn waarde kan bepalen. Overeenkomstig wat voor hem die de gelofte afgelegd heeft, wÃ©l binnen handbereik is, moet de priester zijn waarde bepalen.
 9. En als het een dier is dat men als offergave aan de HEERE aanbiedt, *dan* zal alles wat hij ervan aan de HEERE geeft, heilig zijn.
 10. Hij mag het niet vervangen of omruilen, een goed voor een slecht *dier*, of een slecht voor een goed *dier*. En als hij toch een dier voor een *ander* dier omruilt, dan zal zowel het *ene dier* als wat daarvoor omgeruild is, heilig zijn.
-11. En als het een onrein dier betreft - welk dan ook - dat men niet aan de HEERE als offergave mag aanbieden, dan moet hij het dier vóór de priester plaatsen.
+11. En als het een onrein dier betreft - welk dan ook - dat men niet aan de HEERE als offergave mag aanbieden, dan moet hij het dier vÃ³Ã³r de priester plaatsen.
 12. Vervolgens moet de priester de waarde ervan bepalen al naargelang het goed of slecht is. Volgens de door u bepaalde waarde, priester, zo is het.
 13. Als hij het toch wil vrijkopen, dan moet hij het vijfde deel ervan aan de door u bepaalde waarde toevoegen.
 14. Wanneer nu iemand zijn huis geheiligd heeft, *zodat* het heilig is voor de HEERE, dan moet de priester de waarde ervan bepalen, al naargelang het goed of slecht is. Zoals de priester de waarde ervan bepaald heeft, zo staat het vast.
@@ -32,4 +32,4 @@
 31. Maar als iemand toch *een deel* van zijn tienden vrijkoopt, moet hij het vijfde deel ervan daaraan toevoegen.
 32. En alle tienden van runderen en kleinvee, van alles wat *bij de telling* onder de staf doorgaat, het tiende is heilig voor de HEERE.
 33. Men mag niet onderzoeken of het goed is of slecht, en men mag het niet omruilen. Als men het toch omruilt, dan is zowel dit *dier* als wat daarvoor omgeruild is, heilig. Ze mogen niet vrijgekocht worden.
-34. Dit zijn de geboden die de HEERE Mozes gegeven heeft, voor de Israëlieten, op de berg Sinaï.
+34. Dit zijn de geboden die de HEERE Mozes gegeven heeft, voor de IsraÃ«lieten, op de berg SinaÃ¯.

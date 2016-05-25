@@ -1,5 +1,5 @@
 #Spreuken 30
-1. De woorden van Agur, de zoon van Jake: de last. De man spreekt tot Ithiël, tot Ithiël en Uchal. 
+1. De woorden van Agur, de zoon van Jake: de last. De man spreekt tot IthiÃ«l, tot IthiÃ«l en Uchal. 
 2. Voorzeker, ik ben onverstandiger dan iemand *anders*, ik heb geen menselijk inzicht. 
 3. Ik heb geen wijsheid geleerd en de kennis van heiligen niet bezeten. 
 4. Wie is er naar de hemel opgestegen en *vandaar* neergedaald? Wie heeft de wind in zijn handen verzameld? Wie heeft de wateren in een kleed gebonden? Wie heeft alle einden der aarde vastgesteld? Hoe is Zijn Naam en hoe is de Naam van Zijn Zoon, u weet het immers? 

@@ -2,15 +2,15 @@
 1. Het geloof nu is een vaste grond van de dingen die men hoopt, *en* een bewijs van de zaken die men niet ziet.
 2. Hierdoor immers hebben de ouden een *goed* getuigenis gekregen.
 3. Door het geloof zien wij in dat de wereld tot stand gebracht is door het Woord van God, *en wel zo* dat de dingen die men ziet, niet ontstaan zijn uit wat zichtbaar is.
-4. Door het geloof heeft Abel God een beter offer gebracht dan Kaïn. Daardoor kreeg hij getuigenis dat hij rechtvaardig was; dit heeft God met het oog op zijn gaven getuigd. En door dit *geloof* spreekt hij nog, nadat hij gestorven is.
-5. Door het geloof werd Henoch weggenomen, opdat hij de dood niet zou zien. En hij werd niet gevonden, omdat God hem weggenomen had. Vóór zijn wegneming kreeg hij namelijk het getuigenis dat hij God behaagde.
+4. Door het geloof heeft Abel God een beter offer gebracht dan KaÃ¯n. Daardoor kreeg hij getuigenis dat hij rechtvaardig was; dit heeft God met het oog op zijn gaven getuigd. En door dit *geloof* spreekt hij nog, nadat hij gestorven is.
+5. Door het geloof werd Henoch weggenomen, opdat hij de dood niet zou zien. En hij werd niet gevonden, omdat God hem weggenomen had. VÃ³Ã³r zijn wegneming kreeg hij namelijk het getuigenis dat hij God behaagde.
 6. Zonder geloof is het echter onmogelijk *God* te behagen. Want wie tot God komt, moet geloven dat Hij is, en dat Hij beloont wie Hem zoeken.
 7. Door het geloof heeft Noach, toen hij een aanwijzing van God ontvangen had van de dingen die nog niet te zien waren, uit ontzag *voor God* de ark gebouwd, tot redding van zijn gezin. Daardoor heeft hij de wereld veroordeeld en is hij een erfgenaam geworden van de rechtvaardigheid die overeenkomstig het geloof is.
 8. Door het geloof is Abraham, toen hij geroepen werd, gehoorzaam geweest om weg te gaan naar de plaats die hij tot een erfdeel ontvangen zou. En hij is weggegaan zonder te weten waar hij komen zou.
 9. Door het geloof is hij een inwoner geweest in het land van de belofte als in een vreemd *land* en heeft hij in tenten gewoond, met Izak en Jakob, die mede-erfgenamen waren van dezelfde belofte.
 10. Want hij verwachtte de stad die fundamenten heeft, waarvan God de Bouwer en Ontwerper is.
 11. Door het geloof heeft ook Sara zelf kracht ontvangen om zwanger te worden en een kind te baren, ondanks haar hoge ouderdom, omdat zij Hem getrouw heeft geacht Die het beloofd had.
-12. Daarom zijn er zelfs uit één *man* en dat uit iemand wiens *kracht* al gestorven was, *zovelen* geboren als de sterren van de hemel in menigte en als het zand op het strand van de zee, dat niet te tellen is.
+12. Daarom zijn er zelfs uit Ã©Ã©n *man* en dat uit iemand wiens *kracht* al gestorven was, *zovelen* geboren als de sterren van de hemel in menigte en als het zand op het strand van de zee, dat niet te tellen is.
 13. Deze allen zijn in het geloof gestorven. Zij hebben *de vervulling van* de beloften niet verkregen, maar hebben die vanuit de verte gezien en geloofd en begroet, en zij hebben beleden dat zij vreemdelingen en bijwoners op de aarde waren.
 14. Want wie zulke dingen zeggen, laten duidelijk blijken dat zij een vaderland zoeken.
 15. En als zij aan het *vaderland* gedacht hadden vanwaaruit zij weggegaan waren, zouden zij gelegenheid gehad hebben om terug te keren.
@@ -20,7 +20,7 @@
 19. En hij kreeg hem als het ware daaruit ook terug.
 20. Door het geloof heeft Izak *zijn zonen* Jakob en Ezau gezegend, met betrekking tot toekomstige dingen.
 21. Door het geloof heeft Jakob bij zijn sterven ieder van de zonen van Jozef gezegend en hij boog zich in aanbidding neer, *terwijl hij leunde* op het uiteinde van zijn staf.
-22. Door het geloof heeft Jozef bij zijn sterven melding gemaakt van de uittocht van de Israëlieten en heeft hij een opdracht gegeven in verband met zijn gebeente.
+22. Door het geloof heeft Jozef bij zijn sterven melding gemaakt van de uittocht van de IsraÃ«lieten en heeft hij een opdracht gegeven in verband met zijn gebeente.
 23. Door het geloof werd Mozes, toen hij geboren was, drie maanden lang door zijn ouders verborgen, omdat zij zagen dat het een heel bijzonder kindje was. En zij waren niet bevreesd voor het bevel van de koning.
 24. Door het geloof heeft Mozes, toen hij groot geworden was, geweigerd een zoon van de dochter van de farao genoemd te worden.
 25. Hij koos ervoor liever met het volk van God slecht behandeld te worden dan voor een ogenblik het genot van de zonde te hebben.

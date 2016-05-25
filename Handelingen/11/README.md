@@ -17,15 +17,15 @@
 16. En ik herinnerde mij het woord van de Heere, hoe Hij zei: Johannes doopte wel met water, maar u zult met de Heilige Geest gedoopt worden.
 17. Als God dan aan hen dezelfde gave gegeven heeft als aan ons die in de Heere Jezus Christus geloven, wie was ik dan dat ik bij machte zou zijn God tegen te houden?
 18. En toen zij dit hoorden, waren zij gerustgesteld, en zij verheerlijkten God en zeiden: Zo heeft God dus ook aan de heidenen de bekering gegeven *die* tot het leven *leidt*.
-19. Zij nu die, door de verdrukking die in verband met Stefanus plaatsgevonden had, overal verspreid waren, gingen *het land* door tot Fenicië, Cyprus en Antiochië toe, terwijl zij tot niemand het Woord spraken dan alleen tot de Joden.
-20. Er waren onder hen echter enkele mannen van Cyprus en uit Cyrene die, toen ze in Antiochië gekomen waren, het woord richtten tot de Griekssprekenden en de Heere Jezus verkondigden.
+19. Zij nu die, door de verdrukking die in verband met Stefanus plaatsgevonden had, overal verspreid waren, gingen *het land* door tot FeniciÃ«, Cyprus en AntiochiÃ« toe, terwijl zij tot niemand het Woord spraken dan alleen tot de Joden.
+20. Er waren onder hen echter enkele mannen van Cyprus en uit Cyrene die, toen ze in AntiochiÃ« gekomen waren, het woord richtten tot de Griekssprekenden en de Heere Jezus verkondigden.
 21. En de hand van de Heere was met hen en een groot aantal geloofde en bekeerde zich tot de Heere.
-22. En het gerucht over hen kwam de gemeente die in Jeruzalem was, ter ore; en zij zonden Barnabas uit om *het land* door te gaan tot Antiochië toe.
+22. En het gerucht over hen kwam de gemeente die in Jeruzalem was, ter ore; en zij zonden Barnabas uit om *het land* door te gaan tot AntiochiÃ« toe.
 23. En toen hij daar gekomen was en de genade van God zag, werd hij verblijd en spoorde hij hen allen aan om met een hartelijk voornemen bij de Heere te blijven.
 24. Want hij was een goed man en vol van de Heilige Geest en van geloof; en er werd een grote menigte aan de Heere toegevoegd.
-25. En Barnabas vertrok naar Tarsus om Saulus te zoeken; en toen hij hem gevonden had, bracht hij hem naar Antiochië.
-26. En het gebeurde dat zij een heel jaar met de gemeente samenkwamen en een grote menigte onderwezen en dat de discipelen voor het eerst in Antiochië christenen genoemd werden.
-27. En in die dagen kwamen *enkele* profeten vanuit Jeruzalem naar Antiochië.
+25. En Barnabas vertrok naar Tarsus om Saulus te zoeken; en toen hij hem gevonden had, bracht hij hem naar AntiochiÃ«.
+26. En het gebeurde dat zij een heel jaar met de gemeente samenkwamen en een grote menigte onderwezen en dat de discipelen voor het eerst in AntiochiÃ« christenen genoemd werden.
+27. En in die dagen kwamen *enkele* profeten vanuit Jeruzalem naar AntiochiÃ«.
 28. En een van hen, van wie de naam Agabus was, stond op en gaf door de Geest te kennen dat er een grote hongersnood zou zijn over heel de wereld, die ook gekomen is onder keizer Claudius.
 29. En de discipelen besloten, ieder naar vermogen, *iets* te sturen ten dienste van de broeders die in Judea woonden,
 30. en dat deden zij ook. En zij stuurden het naar de ouderlingen door de hand van Barnabas en Saulus.

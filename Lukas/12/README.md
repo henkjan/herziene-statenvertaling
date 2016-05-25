@@ -1,5 +1,5 @@
 #Lukas 12
-1. Intussen, toen er een menigte van vele duizenden *mensen* bijeengekomen was, zodat zij elkaar bijna onder de voet liepen, begon Hij te spreken, allereerst tot Zijn discipelen: Wees op uw hoede voor het zuurdeeg van de Farizeeën, dat is de huichelarij.
+1. Intussen, toen er een menigte van vele duizenden *mensen* bijeengekomen was, zodat zij elkaar bijna onder de voet liepen, begon Hij te spreken, allereerst tot Zijn discipelen: Wees op uw hoede voor het zuurdeeg van de FarizeeÃ«n, dat is de huichelarij.
 2. Want er is niets bedekt wat niet geopenbaard zal worden, en *er is niets* verborgen wat niet bekend zal worden.
 3. Daarom, al wat u in het duister gezegd hebt, zal in het licht gehoord worden en wat u in de binnenkamers in *iemands* oor gesproken hebt, zal op de daken gepredikt worden.
 4. En Ik zeg u, Mijn vrienden: Wees niet bevreesd voor hen die het lichaam doden en daarna niets meer kunnen doen.
@@ -23,9 +23,9 @@
 22. En Hij zei tegen Zijn discipelen: Daarom zeg Ik u: Wees niet bezorgd over uw leven: over wat u eten zult, of over *uw* lichaam: waarmee u zich kleden zult.
 23. Het leven is meer dan het voedsel en het lichaam *meer* dan de kleding.
 24. Let op de raven: zij zaaien niet en maaien niet, zij hebben geen voorraadkamer en geen schuur, en God voedt hen. Hoe ver gaat u de vogels te boven?
-25. Wie toch van u kan met bezorgd te zijn één el aan zijn lengte toevoegen?
+25. Wie toch van u kan met bezorgd te zijn Ã©Ã©n el aan zijn lengte toevoegen?
 26. Als u dan ook het minste niet kunt, waarom bent u over de andere dingen bezorgd?
-27. Let op de lelies, hoe zij groeien. Ze werken niet en spinnen niet, en Ik zeg u dat zelfs Salomo in al zijn heerlijkheid niet gekleed ging als één van deze.
+27. Let op de lelies, hoe zij groeien. Ze werken niet en spinnen niet, en Ik zeg u dat zelfs Salomo in al zijn heerlijkheid niet gekleed ging als Ã©Ã©n van deze.
 28. Als God nu het gras op het veld, dat er vandaag is en morgen in de oven geworpen wordt, zo bekleedt, hoeveel te meer u, kleingelovigen!
 29. En u, vraag niet wat u eten of wat u drinken zult, en wees niet verontrust.
 30. Want naar al deze dingen zoeken de volken van de wereld. Uw Vader echter weet dat u deze dingen nodig hebt.
@@ -50,7 +50,7 @@
 49. Ik ben gekomen om vuur te werpen op de aarde en wat wil Ik *nog meer*, nu het al ontstoken is!
 50. Maar Ik moet met een doop gedoopt worden, en hoe beklemt het Mij, totdat het volbracht is.
 51. Denkt u dat Ik gekomen ben om vrede te brengen op de aarde? Nee, zeg Ik u, maar eerder verdeeldheid.
-52. Want van nu aan zullen er vijf in één huis verdeeld zijn, drie tegen twee en twee tegen drie.
+52. Want van nu aan zullen er vijf in Ã©Ã©n huis verdeeld zijn, drie tegen twee en twee tegen drie.
 53. Zij zullen *tegen* *elkaar* verdeeld zijn: vader tegen zoon, en zoon tegen vader, moeder tegen dochter, en dochter tegen moeder, schoonmoeder tegen haar schoondochter, en schoondochter tegen haar schoonmoeder.
 54. En Hij zei ook tegen de menigte: Wanneer u een wolk ziet opkomen vanuit het westen, zegt u meteen: Er komt regen. En zo gebeurt het.
 55. En als er een zuidenwind waait, zegt u: Er komt hitte. En het gebeurt.

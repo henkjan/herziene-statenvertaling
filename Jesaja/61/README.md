@@ -4,7 +4,7 @@
 3. om aangaande de treurenden van Sion te beschikken dat hun gegeven zal worden sieraad in plaats van as, vreugdeolie in plaats van rouw, een lofgewaad in plaats van een benauwde geest, opdat zij genoemd worden eiken van de gerechtigheid, een planting door de HEERE, om Hem te verheerlijken. 
 4. Zij zullen verwoeste *plaatsen * van weleer herbouwen, de woeste *plaatsen* van vroeger weer oprichten, de verwoeste steden vernieuwen, die verwoest lagen, van generatie op generatie. 
 5. Vreemden zullen klaarstaan en uw kudden weiden, vreemdelingen zullen uw akkerbouwers en uw wijnbouwers zijn. 
-6. Ú echter zult genoemd worden: priesters van de HEERE, men zal u noemen: dienaren van onze God. U zult het vermogen van heidenvolken eten, u zult u beroemen in hun luister. 
+6. Ãš echter zult genoemd worden: priesters van de HEERE, men zal u noemen: dienaren van onze God. U zult het vermogen van heidenvolken eten, u zult u beroemen in hun luister. 
 7. In plaats van uw dubbele schaamte en schande zullen zij juichen over hun deel. Daarom zullen zij in hun land het dubbele in erfelijk bezit hebben, zij zullen eeuwige blijdschap hebben. 
 8. Want Ik, de HEERE, heb het recht lief, Ik haat roof bij het brandoffer, en Ik zal geven dat hun werk in waarheid zal zijn en Ik zal een eeuwig verbond met hen sluiten. 
 9. Hun nageslacht zal onder de heidenvolken bekend worden, en hun nakomelingen te midden van de volken. Allen die hen zien, zullen erkennen dat zij een nageslacht zijn dat de HEERE heeft gezegend. 

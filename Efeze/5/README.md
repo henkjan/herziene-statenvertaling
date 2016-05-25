@@ -29,6 +29,6 @@
 28. Zo moeten de mannen hun eigen vrouwen liefhebben als hun eigen lichamen. Wie zijn eigen vrouw liefheeft, heeft zichzelf lief.
 29. Want niemand heeft ooit zijn eigen vlees gehaat, maar hij voedt en koestert het, zoals ook de Heere de gemeente.
 30. Want wij zijn leden van Zijn lichaam, van Zijn vlees en van Zijn gebeente.
-31. Daarom zal een man zijn vader en moeder verlaten en zich aan zijn vrouw hechten, en die twee zullen tot één vlees zijn.
+31. Daarom zal een man zijn vader en moeder verlaten en zich aan zijn vrouw hechten, en die twee zullen tot Ã©Ã©n vlees zijn.
 32. Dit geheimenis is groot; maar ik spreek met het oog op Christus en de gemeente.
 33. Kortom, ook u moet, ieder in het bijzonder, uw eigen vrouw net zo liefhebben als uzelf; en de vrouw moet ontzag hebben voor haar man.

@@ -7,9 +7,9 @@
 6. Maar wat betreft hen die geacht werden iets te zijn - wat zij voorheen waren, maakt voor mij geen verschil; God ziet de persoon van de mens niet aan - zij dus die in aanzien waren, hebben mij verder niets opgelegd.
 7. Maar integendeel, zij zagen dat aan mij het Evangelie onder de onbesnedenen toevertrouwd was, zoals aan Petrus *dat* onder de besnedenen.
 8. (Want Hij Die door Petrus werkte met het oog op het apostelschap onder de besnedenen, werkte ook door mij met het oog op de heidenen.)
-9. En toen Jakobus, Kefas en Johannes, die geacht werden steunpilaren te zijn, de mij gegeven genade erkenden, gaven zij mij en Barnabas de rechter*hand* van gemeenschap, opdat wíj naar de heidenen en zíj naar de besnedenen *zouden gaan*.
+9. En toen Jakobus, Kefas en Johannes, die geacht werden steunpilaren te zijn, de mij gegeven genade erkenden, gaven zij mij en Barnabas de rechter*hand* van gemeenschap, opdat wÃ­j naar de heidenen en zÃ­j naar de besnedenen *zouden gaan*.
 10. Alleen moesten wij wel aan de armen denken; en ik heb mij ook beijverd juist dit te doen.
-11. Maar toen Petrus naar Antiochië gekomen was, ging ik openlijk tegen hem in, omdat hij te veroordelen was.
+11. Maar toen Petrus naar AntiochiÃ« gekomen was, ging ik openlijk tegen hem in, omdat hij te veroordelen was.
 12. Want voordat er enkelen *uit de kring* van Jakobus gekomen waren, at hij samen met de heidenen; maar toen zij kwamen, trok hij zich terug en zonderde zich af uit vrees voor hen die van de besnijdenis waren.
 13. En ook de andere Joden huichelden met hem mee, zodat zelfs Barnabas zich door hun huichelarij liet meeslepen.
 14. Maar toen ik zag dat zij niet juist wandelden, overeenkomstig de waarheid van het Evangelie, zei ik tegen Petrus in het bijzijn van allen: Als u die een Jood bent, naar heidens gebruik leeft en niet naar Joods gebruik, waarom dwingt u dan de heidenen op *de* Joodse manier te leven?

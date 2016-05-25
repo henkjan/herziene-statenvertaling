@@ -1,6 +1,6 @@
 #Jesaja 25
 1. HEERE, U bent mijn God, ik zal U roemen, Uw Naam loof ik. Want U hebt wonderen gedaan. *Uw* raadsbesluiten zijn van oudsher vast en zeker. 
-2. Want U hebt van de stad een steenhoop gemaakt, van de versterkte stad een ruïne, van de vesting van vreemden *iets wat* geen stad *mag heten*; in eeuwigheid zal zij niet herbouwd worden. 
+2. Want U hebt van de stad een steenhoop gemaakt, van de versterkte stad een ruÃ¯ne, van de vesting van vreemden *iets wat* geen stad *mag heten*; in eeuwigheid zal zij niet herbouwd worden. 
 3. Daarom zal een sterk volk U eren, de stad van gewelddadige volken zal U vrezen. 
 4. Want U bent voor de geringe een vesting geweest, een vesting voor de arme in zijn nood, een toevlucht tegen de vloed, een schaduw tegen de hitte. Want het razen van geweldplegers is als een vloed *tegen* een muur. 
 5. Als de hitte in een dorre streek zult U het gedruis van de vreemden onderdrukken; *als* de hitte door de schaduw van een *dikke* wolk zal het gezang van de geweldplegers worden gedempt.

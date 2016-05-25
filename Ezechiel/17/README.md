@@ -1,6 +1,6 @@
 #Ezechiel 17
 1. Het woord van de HEERE kwam tot mij:
-2. Mensenkind, geef een raadsel op en leg een gelijkenis voor aan het huis van IsraÎl,
+2. Mensenkind, geef een raadsel op en leg een gelijkenis voor aan het huis van Isra√´l,
 3. en zeg: Zo zegt de Heere HEERE: De grote arend met grote vleugels, lange vlerken, vol veren, *en* die veel kleuren had, kwam naar de Libanon en nam de kruin van een ceder mee. 
 4. Hij plukte de top met zijn uitlopers af, hij bracht hem in een land van kooplieden, *en* zette hem in een stad van handelaars. 
 5. Hij nam van het zaaigoed van het land en legde het in een zaaiveld. Hij nam het mee naar *een plaats waar* veel water *was*, *als* een wilg plantte hij het. 
@@ -19,7 +19,7 @@
 18. Hij heeft de eed veracht door het verbond te verbreken, en zie, hij had zijn hand *erop* gegeven! Nu hij dit alles gedaan heeft, zal hij niet ontkomen.
 19. Daarom, zo zegt de Heere HEERE: *Zo waar* Ik leef, voorwaar, Ik zal Mijn eed die hij veracht heeft en Mijn verbond dat hij verbroken heeft, op zijn hoofd doen neerkomen!
 20. Ik zal Mijn net over hem uitspreiden, zodat hij in Mijn vangnet gevangen raakt. Ik zal hem naar Babel brengen en daar met hem een rechtszaak voeren over zijn trouwbreuk, die hij tegenover Mij gepleegd heeft.
-21. En allen die onder al zijn troepen gevlucht zijn, zullen door het zwaard vallen en de overgeblevenen zullen naar alle wind*streken* verspreid worden. Dan zult u weten dat Õk, de HEERE, gesproken heb.
-22. Zo zegt de Heere HEERE: Õk zal Zelf *een deel* van de kruin van de hoge ceder nemen en *in de grond* zetten. Van de top met zijn jonge loten zal Ik een breekbaar *twijgje* afplukken en Ik zal dat Zelf op een hoge en verheven berg planten.
-23. Op de hoge berg van IsraÎl zal Ik het planten. Het zal takken dragen, vruchten vormen en een machtige ceder worden, zodat daaronder allerlei soorten vogels zullen wonen: in de schaduw van zijn takken zullen ze wonen.
-24. Dan zullen alle bomen van het veld weten dat Õk, de HEERE, de boom die hoog *van stam* is, vernederd heb. De boom die laag *van stam* is, heb Ik verheven, de jonge boom doen verdorren en de verdorde boom heb Ik doen uitlopen. Õk, de HEERE, heb gesproken en zal *het* doen.
+21. En allen die onder al zijn troepen gevlucht zijn, zullen door het zwaard vallen en de overgeblevenen zullen naar alle wind*streken* verspreid worden. Dan zult u weten dat √çk, de HEERE, gesproken heb.
+22. Zo zegt de Heere HEERE: √çk zal Zelf *een deel* van de kruin van de hoge ceder nemen en *in de grond* zetten. Van de top met zijn jonge loten zal Ik een breekbaar *twijgje* afplukken en Ik zal dat Zelf op een hoge en verheven berg planten.
+23. Op de hoge berg van Isra√´l zal Ik het planten. Het zal takken dragen, vruchten vormen en een machtige ceder worden, zodat daaronder allerlei soorten vogels zullen wonen: in de schaduw van zijn takken zullen ze wonen.
+24. Dan zullen alle bomen van het veld weten dat √çk, de HEERE, de boom die hoog *van stam* is, vernederd heb. De boom die laag *van stam* is, heb Ik verheven, de jonge boom doen verdorren en de verdorde boom heb Ik doen uitlopen. √çk, de HEERE, heb gesproken en zal *het* doen.

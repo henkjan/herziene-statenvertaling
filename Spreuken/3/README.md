@@ -4,7 +4,7 @@
 3. Mogen goedertierenheid en trouw jou niet verlaten. Bind ze om je hals, schrijf ze op de tafel van je hart, 
 4. vind gunst en goed verstand in de ogen van God en mens. 
 5. Vertrouw op de HEERE met heel je hart, en steun op je *eigen* inzicht niet. 
-6. Ken Hem in al je wegen, dan zal Híj je paden rechtmaken. 
+6. Ken Hem in al je wegen, dan zal HÃ­j je paden rechtmaken. 
 7. Wees niet wijs in je *eigen* ogen: vrees de HEERE en keer je af van het kwade. 
 8. Het zal een medicijn zijn voor je navel en verfrissing voor je beenderen. 
 9. Vereer de HEERE met je bezit, met de eerstelingen van heel je opbrengst, 
@@ -32,5 +32,5 @@
 31. Wees niet jaloers op een man van geweld en verkies geen van zijn wegen, 
 32. want wie afwijkt *van de rechte weg* is voor de HEERE een gruwel, maar met de oprechten gaat Hij vertrouwelijk om. 
 33. De vloek van de HEERE *rust* op het huis van de goddeloze, maar de woning van de rechtvaardigen zal Hij zegenen. 
-34. De spotters zal Híj wel bespotten, maar zachtmoedigen zal Hij genade geven. 
+34. De spotters zal HÃ­j wel bespotten, maar zachtmoedigen zal Hij genade geven. 
 35. Wijzen zullen eer ontvangen, maar dwazen laden schande op zich.

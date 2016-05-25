@@ -5,7 +5,7 @@
 4. HEERE, U hebt mijn ziel uit het graf opgehaald; U hebt mij in het leven behouden, zodat ik in de kuil niet ben neergedaald. 
 5. Zing psalmen voor de HEERE, gunstelingen van Hem! Loof Hem ter gedachtenis aan Zijn heiligheid. 
 6. Want een ogenblik duurt Zijn toorn, *maar* een leven *lang* Zijn goedgunstigheid; overnacht 's avonds het geween, 's morgens is er gejuich. 
-7. Õk zei wel in mijn zorgeloze rust: Ik zal voor eeuwig niet wankelen. 
+7. √çk zei wel in mijn zorgeloze rust: Ik zal voor eeuwig niet wankelen. 
 8. - *Want*, HEERE, door Uw goedgunstigheid had U mijn berg vast doen staan. - *Maar toen* U Uw aangezicht verborg, werd ik door schrik overmand. 
 9. Tot U, HEERE, riep ik; ik smeekte de Heere: 
 10. Wat voor winst is er in mijn bloed, in mijn neerdalen in het graf? Zal het stof U loven? Zal dat Uw trouw verkondigen? 

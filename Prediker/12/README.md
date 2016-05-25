@@ -9,7 +9,7 @@
 8. Een en al vluchtigheid, zegt de Prediker, alles is *even* vluchtig.
 9. Overigens, Prediker was een wijze: voortdurend onderwees hij het volk in kennis, hij was opmerkzaam en onderzocht, hij stelde vele spreuken op.
 10. Prediker zocht aangename woorden te vinden: het geschrevene is oprecht, woorden van waarheid.
-11. De woorden van wijzen zijn als prikkels en als spijkers, diep ingeslagen door meesters in het verzamelen. Zij zijn gegeven door één Herder.
+11. De woorden van wijzen zijn als prikkels en als spijkers, diep ingeslagen door meesters in het verzamelen. Zij zijn gegeven door Ã©Ã©n Herder.
 12. Wat erboven uitgaat, mijn zoon, wees gewaarschuwd! Er komt geen einde aan vele boeken te maken, en veel studeren vermoeit het lichaam.
 13. De slotsom van al wat *door u* gehoord is, *is dit*: Vrees God, en houd u aan Zijn geboden, want dit *geldt voor* alle mensen. 
 14. God zal namelijk elke daad in het gericht brengen, met alles wat verborgen is, hetzij goed, hetzij kwaad.

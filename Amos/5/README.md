@@ -1,8 +1,8 @@
 #Amos 5
-1. Luister naar dit woord dat Ik aanhef over u, een klaaglied, huis van Israël. 
-2. Zij is gevallen, zij zal niet meer opstaan, de maagd Israël. Zij ligt verlaten op haar land, er is niemand die haar opricht. 
-3. Want zo zegt de Heere HEERE: De stad die optrekt *met* duizend, zal er honderd overhouden, en die optrekt *met* honderd, zal er tien overhouden voor het huis van Israël. 
-4. Want zo zegt de HEERE tegen het huis van Israël: Zoek Mij en leef! 
+1. Luister naar dit woord dat Ik aanhef over u, een klaaglied, huis van IsraÃ«l. 
+2. Zij is gevallen, zij zal niet meer opstaan, de maagd IsraÃ«l. Zij ligt verlaten op haar land, er is niemand die haar opricht. 
+3. Want zo zegt de Heere HEERE: De stad die optrekt *met* duizend, zal er honderd overhouden, en die optrekt *met* honderd, zal er tien overhouden voor het huis van IsraÃ«l. 
+4. Want zo zegt de HEERE tegen het huis van IsraÃ«l: Zoek Mij en leef! 
 5. Maar zoek niet *in* Bethel, in Gilgal moet u niet komen en u moet niet naar Berseba trekken, want Gilgal zal zeker in ballingschap gaan en Bethel zal tot niets worden. 
 6. Zoek de HEERE en leef! Anders zal Hij het huis van Jozef als een vuur binnendringen, *het* verteren, en zal er voor Bethel niemand zijn om te blussen. 
 7. *Wee hun* die recht in alsem veranderen, die gerechtigheid ter aarde doen liggen. 
@@ -23,6 +23,6 @@
 22. want al brengt u Mij brandoffers, en uw graanoffers, Ik schep er geen behagen in, en het dankoffer van uw gemest *vee* wil Ik niet aanzien. 
 23. Doe het lawaai van uw liederen van Mij weg, en het getokkel van uw luiten kan Ik niet aanhoren! 
 24. Laat het recht stromen als water, de gerechtigheid als een altijd stromende beek. 
-25. Hebt u Mij slachtoffers en graanoffers gebracht in de woestijn, veertig jaar *lang*, huis van Israël? 
+25. Hebt u Mij slachtoffers en graanoffers gebracht in de woestijn, veertig jaar *lang*, huis van IsraÃ«l? 
 26. U hebt Sikkut, uw koning, rondgedragen, en Kewan, uw beelden, de sterren, uw goden, die u voor uzelf hebt gemaakt! 
 27. Daarom zal Ik u in ballingschap voeren, verder dan Damascus, zegt de HEERE; God van de legermachten is Zijn Naam.

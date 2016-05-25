@@ -1,7 +1,7 @@
 #Openbaring 14
 1. En ik zag, en zie, het Lam stond op de berg Sion, en bij Hem honderdvierenveertigduizend *mensen* met op hun voorhoofd de Naam van Zijn Vader geschreven.
 2. En ik hoorde een geluid uit de hemel, als een geluid van vele wateren en als het geluid van een zware donderslag. En ik hoorde het geluid van citerspelers die op hun citers spelen.
-3. En zij zongen als een nieuw lied v篌r de troon, v篌r de vier dieren en de ouderlingen. En niemand kon dat lied leren behalve de honderdvierenveertigduizend, die van de aarde gekocht waren.
+3. En zij zongen als een nieuw lied v贸贸r de troon, v贸贸r de vier dieren en de ouderlingen. En niemand kon dat lied leren behalve de honderdvierenveertigduizend, die van de aarde gekocht waren.
 4. Zij zijn het die niet met vrouwen bevlekt zijn, want zij zijn maagden. Dezen zijn het die het Lam volgen waar Het ook naartoe gaat. Dezen zijn gekocht uit de mensen, *als* eerstelingen voor God en het Lam.
 5. En in hun mond is geen leugen gevonden, want zij zijn smetteloos voor de troon van God.
 6. En ik zag een andere engel, die hoog aan de hemel vloog. En hij had het eeuwige Evangelie, om *dat* te verkondigen aan hen die op de aarde wonen, en aan elke natie, stam, taal en volk.
@@ -18,4 +18,4 @@
 17. En een andere engel kwam uit de tempel, die in de hemel is, en ook hij had een scherpe sikkel.
 18. En *weer* een andere engel kwam bij het altaar vandaan, en die had macht over het vuur. En hij riep met luide stem tegen hem die de scherpe sikkel had, en zei: Zend uw scherpe sikkel en oogst de trossen van de wijnstok van de aarde, want de druiven ervan zijn rijp.
 19. En de engel zond zijn sikkel op de aarde en oogstte *de druiven* van de wijnstok van de aarde, en wierp die in de grote wijnpersbak van de toorn van God.
-20. En de wijnpersbak werd getreden buiten de stad, en er kwam bloed uit de wijnpersbak, tot aan de tomen van de paarden, zestienhonderd stadi雗 ver.
+20. En de wijnpersbak werd getreden buiten de stad, en er kwam bloed uit de wijnpersbak, tot aan de tomen van de paarden, zestienhonderd stadi毛n ver.

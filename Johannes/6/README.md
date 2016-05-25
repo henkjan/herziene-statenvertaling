@@ -12,17 +12,17 @@
 11. En Jezus nam de broden, en nadat Hij gedankt had, deelde Hij ze uit aan de discipelen, en de discipelen aan hen die *daar* zaten; op dezelfde manier *werden* ook de visjes uit*gedeeld*, zoveel zij wilden.
 12. En toen zij verzadigd waren, zei Hij tegen Zijn discipelen: Verzamel de overgebleven stukken, zodat er niets verloren gaat.
 13. Zij verzamelden ze nu en vulden twaalf manden met stukken van de vijf gerstebroden die overgebleven waren bij hen die gegeten hadden.
-14. Toen de mensen dan het teken dat Jezus gedaan had, gezien hadden, zeiden zij: Híj is werkelijk de Profeet, Die in de wereld komen zou.
+14. Toen de mensen dan het teken dat Jezus gedaan had, gezien hadden, zeiden zij: HÃ­j is werkelijk de Profeet, Die in de wereld komen zou.
 15. Omdat Jezus nu wist dat zij zouden komen en Hem met geweld mee zouden nemen om Hem koning te maken, trok Hij Zich opnieuw terug op de berg, Hij Zelf alleen.
 16. En toen het avond werd, daalden Zijn discipelen af naar de zee.
-17. En toen zij in het schip gegaan waren, staken zij de zee over naar Kapernaüm. En het was al donker geworden en Jezus was *nog* niet naar hen toe gekomen.
+17. En toen zij in het schip gegaan waren, staken zij de zee over naar KapernaÃ¼m. En het was al donker geworden en Jezus was *nog* niet naar hen toe gekomen.
 18. En de zee werd onstuimig, want er waaide een harde wind.
-19. En toen zij ongeveer vijfentwintig of dertig stadiën geroeid hadden, zagen zij Jezus op de zee lopen en dicht bij het schip komen, en zij werden bevreesd.
+19. En toen zij ongeveer vijfentwintig of dertig stadiÃ«n geroeid hadden, zagen zij Jezus op de zee lopen en dicht bij het schip komen, en zij werden bevreesd.
 20. Maar Hij zei tegen hen: Ik ben het, wees niet bevreesd.
 21. Zij wilden Hem dan in het schip nemen, en meteen bereikte het schip het land waar zij naartoe voeren.
 22. De volgende dag zag de menigte, die aan de overkant van de zee stond, dat daar geen ander scheepje was dan dat ene waar Zijn discipelen in gegaan waren, en dat Jezus met Zijn discipelen niet in het scheepje gegaan was, maar *dat* Zijn discipelen alleen weggevaren waren.
 23. Maar er kwamen andere scheepjes van Tiberias, dicht bij de plaats waar zij het brood gegeten hadden nadat de Heere gedankt had.
-24. Toen de menigte nu zag dat Jezus daar niet was, en ook Zijn discipelen niet, gingen zij zelf ook in de schepen en kwamen in Kapernaüm om Jezus te zoeken.
+24. Toen de menigte nu zag dat Jezus daar niet was, en ook Zijn discipelen niet, gingen zij zelf ook in de schepen en kwamen in KapernaÃ¼m om Jezus te zoeken.
 25. En toen zij Hem gevonden hadden aan de overkant van de zee, zeiden zij tegen Hem: Rabbi, wanneer bent U hier gekomen?
 26. Jezus antwoordde hun en zei: Voorwaar, voorwaar, Ik zeg u: U zoekt Mij, niet omdat u tekenen gezien hebt, maar omdat u van de broden gegeten hebt en verzadigd bent.
 27. Werk niet *om* het voedsel dat vergaat, maar *om* het voedsel dat blijft tot in het eeuwige leven, dat de Zoon des mensen u geven zal; want Hem heeft God de Vader verzegeld.
@@ -44,7 +44,7 @@
 43. Jezus antwoordde dan en zei tegen hen: Mor niet onder elkaar.
 44. Niemand kan tot Mij komen, tenzij de Vader, Die Mij gezonden heeft, hem trekt; en Ik zal hem doen opstaan op de laatste dag.
 45. Er is geschreven in de profeten: En zij zullen allen door God onderwezen zijn. Ieder dan die *het* van de Vader gehoord en geleerd heeft, komt tot Mij.
-46. Niet dat iemand de Vader gezien heeft, behalve Hij Die van God is; Híj heeft de Vader gezien.
+46. Niet dat iemand de Vader gezien heeft, behalve Hij Die van God is; HÃ­j heeft de Vader gezien.
 47. Voorwaar, voorwaar, Ik zeg u: Wie in Mij gelooft, heeft eeuwig leven.
 48. Ik ben het Brood des levens.
 49. Uw vaderen hebben het manna gegeten in de woestijn en zij zijn gestorven.
@@ -57,7 +57,7 @@
 56. Wie Mijn vlees eet en Mijn bloed drinkt, blijft in Mij en Ik in hem.
 57. Zoals de levende Vader Mij gezonden heeft, en Ik leef door de Vader, zo zal ook wie Mij eet, leven door Mij.
 58. Dit is het brood dat uit de hemel neergedaald is; niet zoals uw vaderen het manna gegeten hebben en gestorven zijn. Wie dit brood eet, zal in eeuwigheid leven.
-59. Deze dingen zei Hij, terwijl Hij onderwijs gaf in de synagoge in Kapernaüm.
+59. Deze dingen zei Hij, terwijl Hij onderwijs gaf in de synagoge in KapernaÃ¼m.
 60. Velen dan van Zijn discipelen die *dit* hoorden, zeiden: Dit woord is hard; wie kan het aanhoren?
 61. Maar omdat Jezus bij Zichzelf wist dat Zijn discipelen daarover morden, zei Hij tegen hen: Neemt u hier aanstoot aan?
 62. En als u de Zoon des mensen nu eens zou zien opvaren naar de plaats waar Hij eerder was?

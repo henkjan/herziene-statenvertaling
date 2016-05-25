@@ -12,4 +12,4 @@
 11. Maar u, HEERE, wees mij genadig, en laat mij opstaan, zodat ik het hun vergeld. 
 12. Hierdoor weet ik dat U mij genegen bent: dat mijn vijand over mij niet zal juichen. 
 13. Want wat mij betreft, U ondersteunt mij in mijn oprechtheid, U plaatst mij voor Uw aangezicht, voor eeuwig. 
-14. Geloofd zij de HEERE, de God van Israël, van eeuwigheid tot eeuwigheid! Amen, ja, amen.
+14. Geloofd zij de HEERE, de God van IsraÃ«l, van eeuwigheid tot eeuwigheid! Amen, ja, amen.

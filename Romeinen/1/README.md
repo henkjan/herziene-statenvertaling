@@ -18,7 +18,7 @@
 17. Want de gerechtigheid van God wordt daarin geopenbaard uit geloof tot geloof, zoals geschreven is: Maar de rechtvaardige zal uit het geloof leven.
 18. Want de toorn van God wordt geopenbaard vanuit de hemel over alle goddeloosheid en ongerechtigheid van de mensen, die de waarheid in ongerechtigheid onderdrukken,
 19. omdat wat van God gekend kan worden, hun bekend is. God Zelf heeft het hun immers geopenbaard.
-20. Want de dingen van Hem die onzichtbaar zijn, worden sinds de schepping van de wereld uit Zijn werken gekend en doorzien, *namelijk* én Zijn eeuwige kracht én *Zijn* Goddelijkheid, zodat zij niet te verontschuldigen zijn.
+20. Want de dingen van Hem die onzichtbaar zijn, worden sinds de schepping van de wereld uit Zijn werken gekend en doorzien, *namelijk* Ã©n Zijn eeuwige kracht Ã©n *Zijn* Goddelijkheid, zodat zij niet te verontschuldigen zijn.
 21. Want zij hebben, hoewel zij God kennen, *Hem* niet als God verheerlijkt of gedankt, maar zij zijn verdwaasd in hun overwegingen en hun onverstandig hart is verduisterd.
 22. Terwijl zij zich uitgaven voor wijzen, zijn zij dwaas geworden,
 23. en hebben zij de heerlijkheid van de onvergankelijke God vervangen door een beeld dat lijkt op een vergankelijk mens, op vogels en op viervoetige en kruipende dieren.

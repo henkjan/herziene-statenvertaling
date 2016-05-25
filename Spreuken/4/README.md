@@ -23,6 +23,6 @@
 22. Ze zijn immers leven voor wie ze vinden, en genezing voor heel hun vlees. 
 23. Bescherm je hart boven alles wat te behoeden is, want daaruit zijn de uitingen van het leven. 
 24. Doe weg van jou valsheid van mond en houd bedrog van lippen ver van je verwijderd. 
-25. Laten je ogen recht vooruitkijken en je oogleden zich recht vóór je houden. 
+25. Laten je ogen recht vooruitkijken en je oogleden zich recht vÃ³Ã³r je houden. 
 26. Baan het spoor voor je voet, en laten al je wegen vaststaan. 
 27. Wijk niet af naar rechts of naar links, keer je voet af van het kwade!

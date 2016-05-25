@@ -1,11 +1,11 @@
 #Psalmen 118
 1. Loof de HEERE, want Hij is goed, want Zijn goedertierenheid is voor eeuwig. 
-2. Laat Israël toch zeggen: Zijn goedertierenheid is voor eeuwig. 
-3. Laat het huis van Aäron toch zeggen: Ja, Zijn goedertierenheid is voor eeuwig. 
+2. Laat IsraÃ«l toch zeggen: Zijn goedertierenheid is voor eeuwig. 
+3. Laat het huis van AÃ¤ron toch zeggen: Ja, Zijn goedertierenheid is voor eeuwig. 
 4. Laten wie de HEERE vrezen, toch zeggen: Ja, Zijn goedertierenheid is voor eeuwig. 
 5. Uit de benauwdheid heb ik tot de HEERE geroepen, de HEERE heeft mij verhoord *en* in de ruimte *gezet*. 
 6. De HEERE is bij mij, ik ben niet bevreesd. Wat kan een mens mij doen? 
-7. De HEERE is bij mij, te midden van wie mij helpen, daarom zie ík neer op wie mij haten. 
+7. De HEERE is bij mij, te midden van wie mij helpen, daarom zie Ã­k neer op wie mij haten. 
 8. Het is beter tot de HEERE de toevlucht te nemen dan op de mensen te vertrouwen. 
 9. Het is beter tot de HEERE de toevlucht te nemen dan op edelen te vertrouwen. 
 10. Alle heidenvolken hadden mij omringd; in de Naam van de HEERE heb ik ze neergehouwen! 

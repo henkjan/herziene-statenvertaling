@@ -1,8 +1,8 @@
 #Micha 6
 1. Luister toch naar wat de HEERE zegt: Sta op, roep de bergen ter verantwoording, laat de heuvels uw stem horen. 
-2. Luister, bergen, naar de rechtszaak van de HEERE, ook u, vaste fundamenten van de aarde. De HEERE heeft immers een rechtszaak met Zijn volk, Hij voert een rechtszaak tegen Israël. 
+2. Luister, bergen, naar de rechtszaak van de HEERE, ook u, vaste fundamenten van de aarde. De HEERE heeft immers een rechtszaak met Zijn volk, Hij voert een rechtszaak tegen IsraÃ«l. 
 3. Mijn volk, wat heb Ik u aangedaan? Waarmee heb Ik u vermoeid? Getuig tegen Mij! 
-4. Ik heb u immers uit het land Egypte geleid, u verlost uit het slavenhuis. Ik heb Mozes, Aäron en Mirjam vóór u uit gezonden. 
+4. Ik heb u immers uit het land Egypte geleid, u verlost uit het slavenhuis. Ik heb Mozes, AÃ¤ron en Mirjam vÃ³Ã³r u uit gezonden. 
 5. Mijn volk, denk toch aan wat Balak, de koning van Moab, beraamde, en wat Bileam, de zoon van Beor, hem antwoordde, *aan wat er gebeurd is* van Sittim tot Gilgal, opdat u de gerechtigheid van de HEERE kent. 
 6. Waarmee zal ik de HEERE tegemoetgaan *en* mij buigen voor de hoge God? Zal ik Hem tegemoetgaan met brandoffers, met eenjarige kalveren? 
 7. Zou de HEERE behagen scheppen in duizenden rammen, in tienduizenden oliebeken? Zal ik mijn eerstgeborene geven *voor* mijn overtreding, de vrucht van mijn *moeder*schoot *voor* de zonde van mijn ziel? 

@@ -31,7 +31,7 @@
 30. opdat er geen huichelaar regeert, *en* er geen valstrikken voor het volk zijn. 
 31. Zeker, *Job* heeft tegen God gezegd: Ik heb *Uw straf* gedragen, ik zal niet *meer* verderfelijk handelen. 
 32. Leert U mij wat ik niet zie; als ik onrecht begaan heb, zal ik het niet meer doen. 
-33. Moet het van jou komen hoe Hij iets vergelden zal, terwijl je *Hem* veracht? Zul jíj dan kiezen, en niet ik? Wat weet je? Spreek. 
+33. Moet het van jou komen hoe Hij iets vergelden zal, terwijl je *Hem* veracht? Zul jÃ­j dan kiezen, en niet ik? Wat weet je? Spreek. 
 34. Verstandige mensen zullen tegen mij zeggen, en een wijs man zal naar mij luisteren: 
 35. Job heeft niet met kennis gesproken, en zijn woorden waren niet met verstand. 
 36. Ach, laat Job tot het einde toe beproefd worden, om *zijn* antwoorden onder mensen van onrecht. 

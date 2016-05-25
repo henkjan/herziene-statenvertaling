@@ -3,7 +3,7 @@
 2. En het beest dat ik zag, leek op een panter, en zijn poten waren als *die* van een beer, en zijn muil was als de muil van een leeuw. En de draak gaf hem zijn kracht, zijn troon en grote macht.
 3. En ik zag een van zijn koppen als dodelijk gewond, maar zijn dodelijke wond werd genezen. En de hele aarde ging het beest met verwondering achterna.
 4. En zij aanbaden de draak, omdat hij aan het beest macht gegeven had. En zij aanbaden het beest en zeiden: Wie is aan dit beest gelijk? En wie kan er oorlog tegen voeren?
-5. En het werd een mond gegeven om grote woorden en *gods*lasteringen te spreken, en het werd macht gegeven om *dit* tweeënveertig maanden *lang* te doen.
+5. En het werd een mond gegeven om grote woorden en *gods*lasteringen te spreken, en het werd macht gegeven om *dit* tweeÃ«nveertig maanden *lang* te doen.
 6. En het opende zijn mond om God te lasteren, om Zijn Naam te lasteren en Zijn tent en hen die in de hemel wonen.
 7. En het *beest* werd *macht* gegeven om oorlog te voeren tegen de heiligen en om hen te overwinnen, en hem werd macht gegeven over elke stam, taal en volk.
 8. En allen die op de aarde wonen, zullen het aanbidden, *althans* van wie de namen niet zijn geschreven in het boek des levens van het Lam Dat geslacht is, van de grondlegging van de wereld af.

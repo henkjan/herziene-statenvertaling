@@ -1,5 +1,5 @@
 #Genesis 39
-1. Jozef was dus naar Egypte gebracht. Potifar, hoveling van de farao, het hoofd van de lijfwacht, een Egyptische man, kocht hem uit de hand van de Ismaëlieten, die hem daarheen gebracht hadden.
+1. Jozef was dus naar Egypte gebracht. Potifar, hoveling van de farao, het hoofd van de lijfwacht, een Egyptische man, kocht hem uit de hand van de IsmaÃ«lieten, die hem daarheen gebracht hadden.
 2. De HEERE was met Jozef, zodat hij een voorspoedig man was; en hij bleef in het huis van zijn heer, de Egyptenaar.
 3. En toen zijn heer zag dat de HEERE met hem was en dat de HEERE alles wat hij deed door zijn hand voorspoedig deed verlopen,
 4. vond Jozef genade in zijn ogen, en mocht hij hem bedienen. *Potifar* stelde hem aan over zijn huis, en alles wat hij had, gaf hij in zijn hand.

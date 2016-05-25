@@ -1,7 +1,7 @@
 #Job 21
 1. Maar Job antwoordde en zei: 
 2. Luister aandachtig naar mijn woorden, en laat dat jullie vertroostingen zijn. 
-3. Verdraag mij, *nu* zal ík spreken; en nadat ik gesproken heb, kunnen jullie spotten. 
+3. Verdraag mij, *nu* zal Ã­k spreken; en nadat ik gesproken heb, kunnen jullie spotten. 
 4. Wat mij betreft, is mijn klacht tot een mens *gericht*? Maar al zou het zo zijn, waarom zou mijn geest niet verdrietig zijn? 
 5. Wend je tot mij, en wees ontzet, en leg de hand op de mond. 
 6. Ja, als ik *hier*aan denk, word ik door schrik overmand, en huiver grijpt mijn vlees aan: 
@@ -31,5 +31,5 @@
 30. Want de kwaaddoener wordt gespaard voor de dag van de ondergang; voor de dag van de verbolgenheden worden zij *in veiligheid* gebracht. 
 31. Wie vertelt hem in zijn gezicht *welke* weg hij *gaat*? Als hij *wat* doet, wie vergeldt het hem? 
 32. *Eindelijk* wordt hij naar de graven gebracht, en men waakt over *zijn* grafheuvel. 
-33. De kluiten van het dal zijn hem aangenaam, en alle mensen trekken achter hem aan; en zij die vóór hem geweest zijn, zijn niet te tellen. 
+33. De kluiten van het dal zijn hem aangenaam, en alle mensen trekken achter hem aan; en zij die vÃ³Ã³r hem geweest zijn, zijn niet te tellen. 
 34. Wat troosten jullie mij dan met lege *woorden*! Van jullie antwoorden blijft *alleen* ontrouw over.

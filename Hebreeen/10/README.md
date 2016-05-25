@@ -10,9 +10,9 @@
 9. Daarna sprak Hij: Zie, Ik kom om Uw wil te doen, o God. Hij neemt het eerste weg om het tweede *daarvoor in de plaats* te zetten.
 10. Op grond van die wil zijn wij geheiligd door het offer van het lichaam van Jezus Christus, voor eens en altijd *gebracht*.
 11. En iedere priester stond wel dagelijks te dienen en bracht vaak dezelfde slachtoffers, die de zonden *toch* nooit zouden kunnen wegnemen,
-12. maar deze *Priester* is, nadat Hij één slachtoffer voor de zonden geofferd had, tot in eeuwigheid gezeten aan de rechter*hand* van God.
+12. maar deze *Priester* is, nadat Hij Ã©Ã©n slachtoffer voor de zonden geofferd had, tot in eeuwigheid gezeten aan de rechter*hand* van God.
 13. Verder wacht Hij op *het tijdstip* dat Zijn vijanden tot een voetbank voor Zijn voeten gemaakt worden.
-14. Want met één offer heeft Hij hen die geheiligd worden, tot in eeuwigheid volmaakt.
+14. Want met Ã©Ã©n offer heeft Hij hen die geheiligd worden, tot in eeuwigheid volmaakt.
 15. En de Heilige Geest getuigt het ons ook.
 16. Want na eerst gezegd te hebben: Dit is het verbond, dat Ik met hen na die dagen zal sluiten, zegt de Heere: Ik zal Mijn wetten in hun hart geven en Ik zal die in hun verstand schrijven,
 17. en aan hun zonden en hun wetteloze daden zal Ik beslist niet meer denken.

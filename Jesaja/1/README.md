@@ -1,8 +1,8 @@
 #Jesaja 1
 1. Het visioen van Jesaja, de zoon van Amoz, dat hij gezien heeft over Juda en Jeruzalem, in de dagen van Uzzia, Jotham, Achaz *en* Hizkia, koningen van Juda.
-2. Luister, hemel, neem ter ore, aarde! Want de HEERE spreekt: Ik heb kinderen grootgebracht en doen opgroeien, maar zíj zijn tegen Mij in opstand gekomen. 
-3. Een rund kent zijn bezitter en een ezel de kribbe van zijn eigenaar, *maar* Israël heeft geen kennis, Mijn volk heeft geen inzicht. 
-4. Wee het zondige volk, volk van zware ongerechtigheid, nageslacht van kwaaddoeners, kinderen die verderf aanrichten! Zij hebben de HEERE verlaten, de Heilige van Israël verworpen, zij zijn vervreemd, *van* achter *Hem* vandaan. 
+2. Luister, hemel, neem ter ore, aarde! Want de HEERE spreekt: Ik heb kinderen grootgebracht en doen opgroeien, maar zÃ­j zijn tegen Mij in opstand gekomen. 
+3. Een rund kent zijn bezitter en een ezel de kribbe van zijn eigenaar, *maar* IsraÃ«l heeft geen kennis, Mijn volk heeft geen inzicht. 
+4. Wee het zondige volk, volk van zware ongerechtigheid, nageslacht van kwaaddoeners, kinderen die verderf aanrichten! Zij hebben de HEERE verlaten, de Heilige van IsraÃ«l verworpen, zij zijn vervreemd, *van* achter *Hem* vandaan. 
 5. Waarom wilt u nog meer geslagen worden? U gaat gewoon door met *uw* afvalligheid. Heel het hoofd is ziek, en heel het hart is afgemat. 
 6. Vanaf de voetzool tot het hoofd toe is er geen gezonde plek aan: wonden en striemen en gapende wonden, niet uitgedrukt, niet verbonden, en niet met olie verzacht. 
 7. Uw land is een woestenij, uw steden zijn met vuur verbrand, uw bouwland - voor uw *ogen* eten vreemden het op; het is een woestenij, als door vreemden ondersteboven gekeerd. 
@@ -22,7 +22,7 @@
 21. Hoe is de trouwe stad tot een hoer geworden! Vol recht was zij, gerechtigheid overnachtte in haar, maar nu - moordenaars! 
 22. Uw zilver is tot schuim geworden, uw wijn is vermengd met water. 
 23. Uw vorsten zijn opstandig en metgezellen van dieven. Ieder van hen houdt van geschenken, zij jagen wederdiensten na. De wees doen zij geen recht, en de rechtszaak van de weduwe raakt hen niet. 
-24. Daarom spreekt de Heere, de HEERE van de legermachten, de Machtige van Israël: Wee u! Ik zal troost halen bij Mijn tegenstanders, Ik zal Mij wreken op Mijn vijanden. 
+24. Daarom spreekt de Heere, de HEERE van de legermachten, de Machtige van IsraÃ«l: Wee u! Ik zal troost halen bij Mijn tegenstanders, Ik zal Mij wreken op Mijn vijanden. 
 25. Ik zal Mij tegen u keren, Ik zal uw schuim als met loog uitzuiveren en Ik zal al uw tin wegnemen. 
 26. Ik zal uw rechters teruggeven als vroeger, en uw raadslieden als in het begin. Daarna zult u genoemd worden: stad van de gerechtigheid, trouwe stad. 
 27. Sion zal door recht verlost worden, en wie van haar zich bekeren, door gerechtigheid. 

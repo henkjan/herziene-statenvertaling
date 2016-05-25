@@ -16,7 +16,7 @@
 15. Maar de arme verlost Hij van het zwaard *dat* uit hun mond *gaat*, en van de hand van de sterke. 
 16. Zo is er hoop voor de arme, en onrecht sluit zijn mond. 
 17. Zie, welzalig is de sterveling die door God gestraft wordt; verwerp daarom de bestraffing van de Almachtige niet. 
-18. Want Hij doet smart aan én Hij verbindt; Hij verwondt én Zijn handen genezen. 
+18. Want Hij doet smart aan Ã©n Hij verbindt; Hij verwondt Ã©n Zijn handen genezen. 
 19. In zes benauwdheden zal Hij je redden, en in zeven zal het kwaad je niet treffen. 
 20. In de honger verlost Hij je van de dood, en in de oorlog van het geweld van het zwaard. 
 21. Voor de gesel van de tong zul je verborgen zijn, en je zult niet bevreesd zijn voor de verwoesting, als die komt. 

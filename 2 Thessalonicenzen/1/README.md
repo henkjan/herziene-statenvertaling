@@ -1,5 +1,5 @@
 #2 Thessalonicenzen 1
-1. Paulus, Silvanus en Timotheüs aan de gemeente van de Thessalonicenzen, die in God, onze Vader, en de Heere Jezus Christus is:
+1. Paulus, Silvanus en TimotheÃ¼s aan de gemeente van de Thessalonicenzen, die in God, onze Vader, en de Heere Jezus Christus is:
 2. genade *zij* u en vrede van God, onze Vader, en van de Heere Jezus Christus.
 3. Wij moeten God altijd voor u danken, broeders, zoals het behoort, omdat uw geloof buitengewoon sterk groeit en de liefde van ieder van u allen tot elkaar steeds toeneemt,
 4. zodat wij zelf over u roemen in de gemeenten van God vanwege uw volharding en geloof in al uw vervolgingen en in de verdrukkingen die u verdraagt:

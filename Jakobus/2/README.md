@@ -8,16 +8,16 @@
 7. Lasteren zij niet de goede Naam, Die over u is aangeroepen?
 8. Als u echter de koninklijke wet volbrengt, volgens de Schrift: U zult uw naaste liefhebben als uzelf, dan handelt u goed.
 9. Maar als u met aanzien des persoons handelt, begaat u een zonde en wordt u door de wet ontmaskerd als overtreders.
-10. Want wie de hele wet in acht neemt, maar op één *punt* struikelt, die is schuldig geworden aan alle *geboden*.
+10. Want wie de hele wet in acht neemt, maar op Ã©Ã©n *punt* struikelt, die is schuldig geworden aan alle *geboden*.
 11. Immers, Hij Die gezegd heeft: U zult geen overspel plegen, heeft ook gezegd: U zult niet doodslaan. Als u dan geen overspel bedrijft, maar wel doodslaat, bent u *toch* een wetsovertreder geworden.
-12. Spreek zó en handel zó als *mensen* die geoordeeld zullen worden door de wet van de vrijheid.
+12. Spreek zÃ³ en handel zÃ³ als *mensen* die geoordeeld zullen worden door de wet van de vrijheid.
 13. Want onbarmhartig zal het oordeel *zijn* over hem die geen barmhartigheid heeft bewezen. En *de* barmhartigheid triomfeert over *het* oordeel.
 14. Wat voor nut heeft het, mijn broeders, als iemand zegt dat hij geloof heeft, en hij heeft geen werken? Kan dat geloof hem zalig maken?
 15. Als er nu een broeder of zuster zonder kleding zou zijn en gebrek zou hebben aan dagelijks voedsel,
 16. en iemand van u zou tegen hen zeggen: Ga heen in vrede, word warm en word verzadigd, en u zou hun niet geven wat het lichaam nodig heeft, wat voor nut heeft dat *dan*?
 17. Zo is ook het geloof als het geen werken heeft, in zichzelf dood.
 18. Maar *nu* zal iemand zeggen: U hebt geloof en ik heb werken. Laat mij *dan* uw geloof zien uit uw werken en ik zal u uit mijn werken mijn geloof laten zien.
-19. U gelooft dat God één is *en daar* doet u goed *aan*. *Maar* ook de demonen geloven *dit*, en zij sidderen.
+19. U gelooft dat God Ã©Ã©n is *en daar* doet u goed *aan*. *Maar* ook de demonen geloven *dit*, en zij sidderen.
 20. Maar wilt u weten, o nietig mens, dat het geloof zonder de werken dood is?
 21. Is Abraham, onze vader, niet uit de werken gerechtvaardigd, toen hij Izak, zijn zoon, op het altaar offerde?
 22. Ziet u wel dat het geloof samenwerkte met zijn werken en dat door de werken het geloof volmaakt is geworden?

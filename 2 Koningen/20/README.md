@@ -4,7 +4,7 @@
 3. Och HEERE, bedenk toch dat ik in trouw en met een volkomen hart voor Uw aangezicht gewandeld heb en gedaan heb wat goed is in Uw ogen. En Hizkia huilde erg.
 4. Het gebeurde nu, toen Jesaja *nog* niet uit de middelste voorhof gegaan was, dat het woord van de HEERE tot hem kwam:
 5. Keer terug en zeg tegen Hizkia, de vorst van Mijn volk: Dit zegt de HEERE, de God van uw vader David: Ik heb uw gebed gehoord, Ik heb uw tranen gezien. Zie, Ik ga u gezond maken; op de derde dag zult u naar het huis van de HEERE gaan.
-6. En Ik zal vijftien jaar aan uw *levens*dagen toevoegen, en zal u uit de hand van de koning van Assyrië redden, evenals deze stad; Ik zal deze stad beschermen omwille van Mij en omwille van Mijn dienaar David.
+6. En Ik zal vijftien jaar aan uw *levens*dagen toevoegen, en zal u uit de hand van de koning van AssyriÃ« redden, evenals deze stad; Ik zal deze stad beschermen omwille van Mij en omwille van Mijn dienaar David.
 7. Daarna zei Jesaja: Neem een klomp vijgen. Zij namen die en legden die op de zweer; en hij werd genezen.
 8. Hizkia nu had tegen Jesaja gezegd: Wat is het teken dat de HEERE mij gezond zal maken en dat ik op de derde dag naar het huis van de HEERE zal gaan?
 9. Jesaja zei: Dit zal voor u een teken van de HEERE zijn dat de HEERE het woord dat Hij gesproken heeft, doen zal: Moet de schaduw tien treden verdergaan of tien treden teruggaan?

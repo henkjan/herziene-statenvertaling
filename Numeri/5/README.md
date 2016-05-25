@@ -1,18 +1,18 @@
 #Numeri 5
 1. De HEERE sprak tot Mozes:
-2. Gebied de Israëlieten dat zij elke melaatse, en ieder die een vloeiing heeft, en ieder die onrein is vanwege een dode, uit het kamp wegsturen.
+2. Gebied de IsraÃ«lieten dat zij elke melaatse, en ieder die een vloeiing heeft, en ieder die onrein is vanwege een dode, uit het kamp wegsturen.
 3. Van man tot vrouw moet u wegsturen; u moet hen wegsturen tot buiten het kamp, zodat zij hun *eigen* kampen, waar Ik in hun midden woon, niet verontreinigen.
-4. En de Israëlieten deden zo: zij stuurden hen weg, tot buiten het kamp. Zoals de HEERE tot Mozes gesproken had, zo deden de Israëlieten.
+4. En de IsraÃ«lieten deden zo: zij stuurden hen weg, tot buiten het kamp. Zoals de HEERE tot Mozes gesproken had, zo deden de IsraÃ«lieten.
 5. De HEERE sprak tot Mozes:
-6. Spreek tot de Israëlieten *en zeg*: Wanneer een man of een vrouw *één* van al de zonden van de mens doet, door trouwbreuk te plegen tegen de HEERE, dan is die persoon schuldig.
+6. Spreek tot de IsraÃ«lieten *en zeg*: Wanneer een man of een vrouw *Ã©Ã©n* van al de zonden van de mens doet, door trouwbreuk te plegen tegen de HEERE, dan is die persoon schuldig.
 7. Zij moeten hun zonde, die zij gedaan hebben, belijden; daarna moet hij van zijn schuld de volle waarde vergoeden en er *bovendien nog* een vijfde *deel* aan toevoegen. Hij moet het geven aan hem tegenover wie hij zich schuldig heeft gemaakt.
 8. Maar als die man geen losser heeft om aan hem de schuld te vergoeden, is de schuld die vergoed moet worden aan de HEERE, voor de priester, naast de ram van verzoening waarmee hij voor zichzelf verzoening moet doen.
-9. En elk hefoffer van alle heilige *gaven* van de Israëlieten die zij de priester brengen, is voor hem,
+9. En elk hefoffer van alle heilige *gaven* van de IsraÃ«lieten die zij de priester brengen, is voor hem,
 10. maar ieders heilige *gaven* blijven van hemzelf. Wat iemand *echter* aan de priester geeft, is voor hem.
 11. De HEERE sprak tot Mozes:
-12. Spreek tot de Israëlieten en zeg tegen hen: *Stel* dat iemands vrouw afgeweken is en zij trouwbreuk tegen *haar man* gepleegd heeft,
+12. Spreek tot de IsraÃ«lieten en zeg tegen hen: *Stel* dat iemands vrouw afgeweken is en zij trouwbreuk tegen *haar man* gepleegd heeft,
 13. dat een *andere* man met haar geslapen heeft en er een zaadlozing plaatsgehad heeft, maar dat het voor de ogen van haar man verborgen bleef. Zij wist *het feit* dat zij zich verontreinigde, geheim te houden en er was geen getuige tegen haar; ook was zij niet betrapt.
-14. *Als* er echter een geest van achterdocht over *haar man* gekomen is, zodat hij achterdochtig geworden is tegenover zijn vrouw terwijl zij zich verontreinigd heeft, óf *als* er een geest van achterdocht over hem gekomen is, zodat hij achterdochtig geworden is tegenover zijn vrouw terwijl zij zich niet verontreinigd heeft,
+14. *Als* er echter een geest van achterdocht over *haar man* gekomen is, zodat hij achterdochtig geworden is tegenover zijn vrouw terwijl zij zich verontreinigd heeft, Ã³f *als* er een geest van achterdocht over hem gekomen is, zodat hij achterdochtig geworden is tegenover zijn vrouw terwijl zij zich niet verontreinigd heeft,
 15. dan moet de man zijn vrouw bij de priester brengen en haar offergave voor haar meebrengen: een tiende efa gerstemeel. Hij mag er geen olie op gieten en er geen wierook op leggen, want het is een graanoffer voor achterdocht, een graanoffer van gedachtenis, dat herinnert aan de ongerechtigheid.
 16. En de priester zal haar naar voren doen komen en haar voor het aangezicht van de HEERE plaatsen.
 17. De priester moet heilig water in een aarden pot nemen en van het stof dat op de vloer van de tabernakel ligt, moet de priester *wat* nemen en in het water doen.

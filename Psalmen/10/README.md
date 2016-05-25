@@ -12,7 +12,7 @@
 11. Hij zegt in zijn hart: God heeft het vergeten, Hij heeft Zijn aangezicht verborgen, Hij ziet het in eeuwigheid niet. 
 12. Sta op, HEERE God, hef Uw hand op, vergeet de ellendigen niet. 
 13. Waarom lastert de goddeloze God? *Waarom* zegt hij in zijn hart: U zult geen *rekenschap* eisen? 
-14. Ú ziet het *wél*, want U aanschouwt de moeite en het verdriet, opdat men het in Uw hand geeft; op Ú verlaat de arme zich, U bent geweest een Helper van de wees. 
+14. Ãš ziet het *wÃ©l*, want U aanschouwt de moeite en het verdriet, opdat men het in Uw hand geeft; op Ãš verlaat de arme zich, U bent geweest een Helper van de wees. 
 15. Breek de arm van de goddeloze en de kwaaddoener, eis *rekenschap van hem* over zijn goddeloosheid, *tot* U er niets *meer* van vindt. 
 16. De HEERE is Koning, eeuwig en altijd; de heidenvolken zijn uit Zijn land verdwenen. 
 17. U hebt de wens van de zachtmoedigen gehoord, HEERE, U zult hun hart versterken, Uw oor zal er acht op slaan 

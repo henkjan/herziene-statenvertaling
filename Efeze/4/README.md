@@ -2,9 +2,9 @@
 1. Zo roep ik, de gevangene in de Heere, u op tot een wandel die de roeping waarmee u geroepen bent, waardig is,
 2. in alle nederigheid en zachtmoedigheid, met geduld, door elkaar in liefde te verdragen,
 3. en u te beijveren om de eenheid van de Geest te bewaren door de band van de vrede:
-4. één lichaam en één Geest, zoals u ook geroepen bent tot één hoop van uw roeping,
-5. één Heere, één geloof, één doop,
-6. één God en Vader van allen, Die boven allen en door allen en in u allen is.
+4. Ã©Ã©n lichaam en Ã©Ã©n Geest, zoals u ook geroepen bent tot Ã©Ã©n hoop van uw roeping,
+5. Ã©Ã©n Heere, Ã©Ã©n geloof, Ã©Ã©n doop,
+6. Ã©Ã©n God en Vader van allen, Die boven allen en door allen en in u allen is.
 7. Maar aan ieder van ons is de genade gegeven naar de maat van de gave van Christus.
 8. Daarom zegt Hij: Toen Hij opvoer in de hoogte, nam Hij de gevangenis gevangen en gaf Hij gaven aan de mensen.
 9. Wat betekent dit ?toen Hij opvoer? anders dan dat Hij ook eerst neergedaald is in de diepten, namelijk de aarde?

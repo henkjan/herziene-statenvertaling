@@ -18,6 +18,6 @@
 17. In de vlakte van de Jordaan liet de koning ze gieten, tussen Sukkoth en Zeredata, in *vormen van* zware klei.
 18. Salomo maakte al deze voorwerpen in zeer grote hoeveelheid. Ja, het gewicht van het koper werd niet *meer* nagegaan.
 19. Ook maakte Salomo alle voorwerpen die voor het huis van God bestemd waren: het gouden altaar, de tafels waarop de toonbroden lagen,
-20. de kandelaars en hun lampen van bladgoud, om volgens de bepaling te branden vóór het binnenste heiligdom,
+20. de kandelaars en hun lampen van bladgoud, om volgens de bepaling te branden vÃ³Ã³r het binnenste heiligdom,
 21. de bloesems, de lampen en de snuiters, van goud - dat *alles* van het zuiverste goud -
 22. de messen, de sprengbekkens, de kommen, de vuurschalen, van bladgoud. Wat de ingang van het huis betreft: de deuren van het binnenste *deel* ervan, voor het heilige der heiligen, en de deuren van het tempelhuis, waren van goud.

@@ -7,7 +7,7 @@
 6. Door het Woord van de HEERE is de hemel gemaakt, door de Geest van Zijn mond heel hun legermacht. 
 7. Hij verzamelt het water van de zee als een dam, Hij sluit de diepe wateren op in schatkamers. 
 8. Laat heel de aarde voor de HEERE vrezen, laat alle bewoners van de wereld bevreesd zijn voor Hem. 
-9. Want Híj spreekt en het is er, Híj gebiedt en het staat er. 
+9. Want HÃ­j spreekt en het is er, HÃ­j gebiedt en het staat er. 
 10. De HEERE vernietigt de raad van de heidenvolken, Hij verbreekt de gedachten van de volken. 
 11. *Maar* de raad van de HEERE bestaat voor eeuwig, de gedachten van Zijn hart *bestaan* van generatie op generatie. 
 12. Welzalig het volk dat de HEERE tot zijn God heeft, het volk dat Hij Zich als eigendom verkozen heeft. 

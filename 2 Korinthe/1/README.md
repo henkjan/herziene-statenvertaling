@@ -1,5 +1,5 @@
 #2 Korinthe 1
-1. Paulus, apostel van Jezus Christus door de wil van God, en Timotheüs, de broeder, aan de gemeente van God die in Korinthe is, met al de heiligen die in heel Achaje zijn:
+1. Paulus, apostel van Jezus Christus door de wil van God, en TimotheÃ¼s, de broeder, aan de gemeente van God die in Korinthe is, met al de heiligen die in heel Achaje zijn:
 2. genade *zij* u en vrede van God, onze Vader, en van de Heere Jezus Christus.
 3. Geprezen zij de God en Vader van onze Heere Jezus Christus, de Vader van de barmhartigheden en de God van alle vertroosting,
 4. Die ons troost in al onze verdrukking, zodat wij hen kunnen troosten die in allerlei verdrukking zijn, met de vertroosting waarmee wij zelf door God getroost worden.
@@ -14,10 +14,10 @@
 13. Wij schrijven u immers niets anders dan wat u leest of ook begrijpt. En ik hoop dat u het ook tot het einde toe zult begrijpen,
 14. zoals u ook van ons begrepen hebt - *zij het* ten dele - dat wij uw roem zijn, zoals ook u onze *roem* bent op de dag van de Heere Jezus.
 15. En in dit vertrouwen had ik mij eerder voorgenomen naar u toe te komen, opdat u een tweede genade zou hebben.
-16. Ik *wilde* namelijk door uw *stad* naar Macedonië doorreizen, en weer van Macedonië naar u toe komen, om door u op weg geholpen te worden naar Judea.
+16. Ik *wilde* namelijk door uw *stad* naar MacedoniÃ« doorreizen, en weer van MacedoniÃ« naar u toe komen, om door u op weg geholpen te worden naar Judea.
 17. Ik heb toch niet lichtvaardig gehandeld door mij dit voor te nemen? Of zijn de dingen die ik me voorneem, voornemens naar het vlees, zodat het bij mij zou zijn: ja, ja en *tegelijk* nee, nee?
 18. Maar God is getrouw: ons woord tot u is niet ja en nee geweest.
-19. Want de Zoon van God, Jezus Christus, Die onder u gepredikt is door ons, *namelijk* door mij, Silvanus en Timotheüs, was niet ja en nee, maar *ons woord* is in Hem ja geweest.
+19. Want de Zoon van God, Jezus Christus, Die onder u gepredikt is door ons, *namelijk* door mij, Silvanus en TimotheÃ¼s, was niet ja en nee, maar *ons woord* is in Hem ja geweest.
 20. Immers, zovele beloften van God als er zijn, die zijn in Hem ja en in Hem amen, tot verheerlijking van God door ons.
 21. En Hij Die ons met u bevestigt in Christus en ons gezalfd heeft, is God,
 22. Die ons ook verzegeld heeft en het onderpand van de Geest in onze harten gegeven heeft.

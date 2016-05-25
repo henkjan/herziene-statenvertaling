@@ -10,5 +10,5 @@
 9. Vertrouw op Hem te allen tijde, volk; stort uw hart uit voor Zijn aangezicht. God is voor ons een toevlucht. [ Sela] 
 10. Zeker, eenvoudigen zijn een zucht, aanzienlijken een leugen; in de weegschaal gewogen, zijn zij tezamen *lichter* dan een zucht. 
 11. Vertrouw niet op onderdrukking, stel geen ijdele hoop op roof. Als het vermogen toeneemt, zet er het hart niet op. 
-12. God heeft één ding gesproken, ik heb dit tweemaal gehoord: dat de kracht van God is. 
+12. God heeft Ã©Ã©n ding gesproken, ik heb dit tweemaal gehoord: dat de kracht van God is. 
 13. Ook de goedertierenheid is van U, Heere, want U zult eenieder vergelden naar zijn werk.

@@ -3,7 +3,7 @@
 2. En hij riep hem en zei tegen hem: Wat is dit wat ik over u hoor? Geef rekenschap van uw rentmeesterschap, want u kunt niet langer rentmeester zijn.
 3. En de rentmeester zei bij zichzelf: Wat moet ik doen, omdat mijn heer dit rentmeesterschap van mij afneemt? Spitten kan ik niet *en* voor bedelen schaam ik mij.
 4. Ik weet wat ik doen zal, opdat ze mij, wanneer ik afgezet ben als rentmeester, in hun huizen ontvangen.
-5. En hij riep de schuldenaars van zijn heer één voor één bij zich en zei tegen de eerste: Hoeveel bent u mijn heer schuldig?
+5. En hij riep de schuldenaars van zijn heer Ã©Ã©n voor Ã©Ã©n bij zich en zei tegen de eerste: Hoeveel bent u mijn heer schuldig?
 6. En hij zei: Honderd vaten olie. En hij zei tegen hem: Neem uw schuldbekentenis, ga zitten en schrijf snel vijftig.
 7. Daarna zei hij tegen een ander: En u, hoeveel bent u schuldig? En hij zei: Honderd zakken tarwe. En hij zei tegen hem: Neem uw schuldbekentenis en schrijf tachtig.
 8. En de heer prees de onrechtvaardige rentmeester, omdat hij verstandig gehandeld had. Want de kinderen van deze wereld zijn onder elkaar verstandiger dan de kinderen van het licht.
@@ -12,10 +12,10 @@
 11. Als u dan wat betreft de onrechtvaardige mammon niet trouw bent geweest, wie zal u het ware toevertrouwen?
 12. En als u wat betreft het *goed* van een ander niet trouw bent geweest, wie zal u het uwe geven?
 13. Geen huisslaaf kan twee heren dienen, want hij zal of de ene haten en de ander liefhebben, of hij zal zich aan de ene hechten en de ander minachten. U kunt niet God dienen en de mammon.
-14. En al deze dingen hoorden ook de Farizeeën, die geldzuchtig waren, en zij beschimpten Hem.
+14. En al deze dingen hoorden ook de FarizeeÃ«n, die geldzuchtig waren, en zij beschimpten Hem.
 15. En Hij zei tegen hen: U bent *het* die uzelf rechtvaardigt voor de mensen, maar God kent uw hart. Want wat hoog is onder *de* mensen, is een gruwel voor God.
 16. De Wet en de Profeten *zijn er* tot Johannes. Vanaf die tijd wordt het Koninkrijk van God verkondigd, en ieder doet het geweld aan.
-17. En het is gemakkelijker dat de hemel en de aarde voorbijgaan, dan dat één tittel van de wet wegvalt.
+17. En het is gemakkelijker dat de hemel en de aarde voorbijgaan, dan dat Ã©Ã©n tittel van de wet wegvalt.
 18. Ieder die zijn vrouw verstoot en met een andere trouwt, pleegt overspel en ieder die met een *vrouw* trouwt die door haar man verstoten is, pleegt *ook* overspel.
 19. Nu was er een zeker rijk mens, die gekleed ging in purper en zeer fijn linnen en die elke dag vrolijk en overdadig leefde.
 20. En er was een zekere bedelaar, van wie de naam Lazarus was, die voor zijn poort neergelegd was, en die onder de zweren zat.

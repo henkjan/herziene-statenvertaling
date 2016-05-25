@@ -7,5 +7,5 @@
 6. Toch hebt U hem weinig minder gemaakt dan de engelen en hem met eer en glorie gekroond. 
 7. U doet hem heersen over de werken van Uw handen, U hebt alles onder zijn voeten gelegd: 
 8. schapen en runderen, die allemaal, en ook de dieren van het veld, 
-9. de vogels in de lucht en de vissen in de zee, al wat over de paden van de zeeën gaat. 
+9. de vogels in de lucht en de vissen in de zee, al wat over de paden van de zeeÃ«n gaat. 
 10. HEERE, onze Heere, hoe machtig is Uw Naam op de hele aarde!

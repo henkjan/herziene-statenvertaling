@@ -1,14 +1,14 @@
 #Leviticus 11
-1. De HEERE sprak tot Mozes en tot Aäron en zei tegen hen:
-2. Spreek tot de Israëlieten: Dit zijn de dieren die u eten mag van alle dieren die op de aarde zijn.
-3. Alle *dieren *met gespleten hoeven, waarvan de hoef in tweeën gespleten is *en* die *bovendien* bij de dieren *horen die* herkauwen, die mag u eten.
+1. De HEERE sprak tot Mozes en tot AÃ¤ron en zei tegen hen:
+2. Spreek tot de IsraÃ«lieten: Dit zijn de dieren die u eten mag van alle dieren die op de aarde zijn.
+3. Alle *dieren *met gespleten hoeven, waarvan de hoef in tweeÃ«n gespleten is *en* die *bovendien* bij de dieren *horen die* herkauwen, die mag u eten.
 4. Maar deze *dieren* mag u niet eten, van die die *alleen* herkauwen of *alleen* gespleten hoeven hebben: de kameel, want die herkauwt *wel*, maar heeft geen gespleten hoeven; die is voor u onrein;
 5. de klipdas, want die herkauwt *wel*, maar heeft geen gespleten hoeven; die is voor u onrein;
 6. de haas, want die herkauwt *wel*, maar heeft geen gespleten hoeven; die is voor u onrein;
-7. het varken, want dat heeft *wel* gespleten hoeven; de hoef is in tweeën gespleten, maar het herkauwt het gekauwde niet; dat is voor u onrein.
+7. het varken, want dat heeft *wel* gespleten hoeven; de hoef is in tweeÃ«n gespleten, maar het herkauwt het gekauwde niet; dat is voor u onrein.
 8. Van hun vlees mag u niet eten en hun kadavers niet aanraken; ze zijn voor u onrein.
-9. Dit mag u eten van al wat in het water *leeft*: alles wat in het water, in de zeeën en in de beken vinnen en schubben heeft, dat mag u eten,
-10. maar alles wat geen vinnen of schubben heeft in de zeeën en in de beken, van alles wat in het water wemelt en van alle levende wezens die in het water *leven*, die zijn voor u iets afschuwelijks.
+9. Dit mag u eten van al wat in het water *leeft*: alles wat in het water, in de zeeÃ«n en in de beken vinnen en schubben heeft, dat mag u eten,
+10. maar alles wat geen vinnen of schubben heeft in de zeeÃ«n en in de beken, van alles wat in het water wemelt en van alle levende wezens die in het water *leven*, die zijn voor u iets afschuwelijks.
 11. Ja, iets afschuwelijks zijn ze voor u. Van hun vlees mag u niet eten, en hun kadavers moet u verafschuwen.
 12. Alles wat in het water geen vinnen en schubben heeft, is voor u iets afschuwelijks.
 13. En van deze vogel*soorten* moet u een afschuw hebben; ze mogen niet gegeten worden, ze zijn iets afschuwelijks: de arend, de lammergier, de monniksgier,

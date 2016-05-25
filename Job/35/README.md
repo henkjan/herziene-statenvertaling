@@ -2,7 +2,7 @@
 1. Verder antwoordde Elihu en zei: 
 2. Beschouw je dat als recht, *dat* je gezegd hebt: Mijn gerechtigheid is meer dan die van God? 
 3. Want je zegt: Wat baat het je? In welk opzicht geeft *dit* mij meer voordeel dan wanneer ik zondig? 
-4. Õk zal *met* woorden antwoord geven, en je vrienden met je. 
+4. √çk zal *met* woorden antwoord geven, en je vrienden met je. 
 5. Kijk naar de hemel en zie, en aanschouw de wolken, die hoger zijn dan jij. 
 6. Als je zondigt, wat doe je *dan* tegen Hem? Als je overtredingen talrijk zijn, wat doe je Hem *daarmee* aan? 
 7. Als je rechtvaardig bent, wat geef je Hem *daarmee,* of wat ontvangt Hij uit jouw hand? 

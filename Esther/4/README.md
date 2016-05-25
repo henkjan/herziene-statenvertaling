@@ -1,6 +1,6 @@
 #Esther 4
 1. Toen Mordechai alles te weten was gekomen wat er gebeurd was, scheurde Mordechai zijn kleren en hulde zich in zak en as. Hij ging door het midden van de stad en weeklaagde luid en bitter.
-2. En hij kwam tot vóór de poort van de koning, want niemand mocht de poort van de koning binnengaan, gehuld in een rouwgewaad.
+2. En hij kwam tot vÃ³Ã³r de poort van de koning, want niemand mocht de poort van de koning binnengaan, gehuld in een rouwgewaad.
 3. En overal, in elk gewest *en in elke* plaats waar het bevel van de koning en zijn wet was aangekomen, was er grote rouw bij de Joden, met vasten, geween en rouwklacht; velen lagen in zak en as.
 4. Toen kwamen de dienaressen van Esther en haar hovelingen en zij vertelden het haar; en de koningin was zeer ontdaan en zij stuurde kleren om *die* Mordechai aan te trekken en zijn rouwgewaad af te leggen; maar hij nam *ze* niet aan.
 5. Toen riep Esther Hatach, *een* van de hovelingen van de koning, die hij voor haar had aangesteld, en zij gaf hem opdracht aangaande Mordechai om te weten te komen wat dit *toch* was en waarom hij dit deed.

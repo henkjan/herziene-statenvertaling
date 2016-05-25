@@ -1,9 +1,9 @@
 #1 Timotheus 2
-1. Ik roep er dan vóór alles toe op dat smekingen, gebeden, voorbeden *en* dankzeggingen gedaan worden voor alle mensen,
+1. Ik roep er dan vÃ³Ã³r alles toe op dat smekingen, gebeden, voorbeden *en* dankzeggingen gedaan worden voor alle mensen,
 2. voor koningen en allen die hooggeplaatst zijn, opdat wij een rustig en stil leven zullen leiden, in alle godsvrucht en waardigheid.
 3. Want dat is goed en welgevallig in de ogen van God, onze Zaligmaker,
 4. Die wil dat alle mensen zalig worden en tot kennis van de waarheid komen.
-5. Want er is één God. Er is ook één Middelaar *tussen* God en mensen, de mens Christus Jezus.
+5. Want er is Ã©Ã©n God. Er is ook Ã©Ã©n Middelaar *tussen* God en mensen, de mens Christus Jezus.
 6. Hij heeft Zich gegeven *als* een losprijs voor allen. *Dit is* het getuigenis op de *door God* bestemde tijd.
 7. Daartoe ben ik aangesteld als prediker en apostel (ik zeg de waarheid in Christus, ik lieg niet), als een leraar van de heidenen in geloof en waarheid.
 8. Ik wil dan dat de mannen op alle plaatsen bidden met opheffing van heilige handen, zonder toorn en meningsverschil.

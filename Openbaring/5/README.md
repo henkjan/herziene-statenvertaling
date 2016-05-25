@@ -6,7 +6,7 @@
 5. En een van de ouderlingen zei tegen mij: Huil niet. Zie, de Leeuw Die uit de stam van Juda is, de Wortel van David, heeft overwonnen om de boekrol te openen en zijn zeven zegels te verbreken.
 6. En ik zag, en zie: te midden van de troon en van de vier dieren en te midden van de ouderlingen stond een Lam als geslacht, met zeven horens en zeven ogen. Dat zijn de zeven Geesten van God, die uitgezonden zijn over heel de aarde.
 7. En Het kwam, en heeft de boekrol genomen uit de rechter*hand* van Hem Die op de troon zat.
-8. En toen Het de boekrol genomen had, wierpen de vier dieren en de vierentwintig ouderlingen zich vóór het Lam neer. Zij hadden elk een citer en gouden schalen vol reukwerk. Dit zijn de gebeden van de heiligen.
+8. En toen Het de boekrol genomen had, wierpen de vier dieren en de vierentwintig ouderlingen zich vÃ³Ã³r het Lam neer. Zij hadden elk een citer en gouden schalen vol reukwerk. Dit zijn de gebeden van de heiligen.
 9. En zij zongen een nieuw lied en zeiden: U bent het waard om de boekrol te nemen en zijn zegels te openen, want U bent geslacht en hebt ons voor God gekocht met Uw bloed, uit elke stam, taal, volk en natie.
 10. En U hebt ons voor onze God gemaakt tot koningen en priesters, en wij zullen als koningen regeren over de aarde.
 11. En ik zag, en hoorde een geluid van vele engelen rondom de troon, van de dieren en van de ouderlingen. En hun aantal bedroeg tienduizenden tienduizendtallen en duizenden duizendtallen.

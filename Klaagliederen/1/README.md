@@ -1,10 +1,10 @@
 #Klaagliederen 1
 1. Hoe eenzaam zit zij neer, [ aleph] die stad, *eens* zo dichtbevolkt! Als een weduwe is zij geworden, zij die groot was onder de heidenvolken. Een vorstin onder de gewesten is verplicht tot herendienst. 
 2. Zij weent onophoudelijk in de nacht, [ beth] en haar tranen *stromen* over haar wangen. Zij heeft geen trooster onder al haar minnaars. Al haar vrienden hebben trouweloos met haar gehandeld; ze zijn haar tot vijanden geworden. 
-3. Juda is in ballingschap gegaan vanwege de ellende[ gimel] en vanwege de vele slavenarbeid. Z韏 woont onder de heidenvolken, zij vindt geen rust; al haar vervolgers halen haar in tussen de nauwe doorgangen. 
+3. Juda is in ballingschap gegaan vanwege de ellende[ gimel] en vanwege de vele slavenarbeid. Z铆j woont onder de heidenvolken, zij vindt geen rust; al haar vervolgers halen haar in tussen de nauwe doorgangen. 
 4. De wegen van Sion treuren, [ daleth] ze zijn zonder feestgangers. Al haar poorten zijn verwoest; haar priesters zuchten. Haar jonge vrouwen zijn bedroefd, en zijzelf - bitter is het haar. 
-5. Haar tegenstanders zijn aan het hoofd *komen te staan*, [ he] haar vijanden zijn gerust. Want de HEERE heeft haar bedroefd om haar talrijke overtredingen. Haar kleine kinderen zijn *in* gevangenschap gegaan, v篌r de tegenstander uit. 
-6. Uit de dochter van Sion trok[ waw] al haar pracht weg. Haar vorsten zijn als herten geworden *die* geen weide vinden: krachteloos gingen zij v篌r de vervolger uit. 
+5. Haar tegenstanders zijn aan het hoofd *komen te staan*, [ he] haar vijanden zijn gerust. Want de HEERE heeft haar bedroefd om haar talrijke overtredingen. Haar kleine kinderen zijn *in* gevangenschap gegaan, v贸贸r de tegenstander uit. 
+6. Uit de dochter van Sion trok[ waw] al haar pracht weg. Haar vorsten zijn als herten geworden *die* geen weide vinden: krachteloos gingen zij v贸贸r de vervolger uit. 
 7. Jeruzalem denkt[ zain] in de dagen van haar ellende en haar ontheemding, aan al haar kostbaarheden die zij in de dagen van weleer bezat, toen haar volk in de hand van de tegenstander viel, en zij geen helper had, de tegenstanders haar zagen *en* lachten om haar ondergang. 
 8. Zwaar heeft Jeruzalem gezondigd; [ cheth] daarom is zij tot een afgezonderde *vrouw* geworden. Allen die haar eerden, verachten haar, want zij hebben haar naaktheid gezien. Ja, zij, zij zucht en zij heeft zich naar achteren toe omgekeerd. 
 9. Haar onreinheid kleeft aan haar zomen; [ teth] zij heeft niet gedacht aan haar einde. Wonderbaarlijk diep is zij gezonken, zij heeft geen trooster. Zie, HEERE, mijn ellende, want de vijand maakt zich groot. 
@@ -17,7 +17,7 @@
 16. Vanwege deze dingen ween ik, [ ain] mijn oog, mijn oog laat water neerstromen, omdat de Trooster Die mijn ziel verkwikt ver van mij is. Mijn zonen zijn ontzet, want de vijand had de overhand. 
 17. Sion spreidt haar handen uit, [ pe] *maar* zij heeft geen trooster. Wat Jakob betreft heeft de HEERE geboden: Zijn omstanders zullen zijn tegenstanders zijn. Jeruzalem is geworden als een afgezonderde *vrouw* onder hen. 
 18. Rechtvaardig is Hij, de HEERE, [ tsade] want ik ben Zijn bevel ongehoorzaam geweest. Luister toch, alle volken, en zie mijn leed: mijn jonge vrouwen en mijn jongemannen zijn in gevangenschap gegaan. 
-19. Ik riep tot mijn minnaars, [ koph] *maar* z韏 hebben mij bedrogen. Mijn priesters en mijn oudsten hebben de geest gegeven in de stad, toen zij voedsel zochten voor zichzelf om hun ziel te verkwikken. 
+19. Ik riep tot mijn minnaars, [ koph] *maar* z铆j hebben mij bedrogen. Mijn priesters en mijn oudsten hebben de geest gegeven in de stad, toen zij voedsel zochten voor zichzelf om hun ziel te verkwikken. 
 20. Zie, HEERE, hoe het mij bang te moede is; [ resj] mijn ingewanden zijn vol onrust, mijn hart keert zich om in mijn binnenste, want ik ben zeer ongehoorzaam geweest; buiten heeft het zwaard *mij* van kinderen beroofd, binnenshuis is *het* als de dood. 
 21. Zij horen hoe ik zucht, [ sjin] *maar* ik heb geen trooster. Al mijn vijanden horen mijn onheil, zij zijn vrolijk, omdat U *dat* hebt gedaan. U hebt de dag gebracht die U aangekondigd hebt, maar zij zullen zijn net als ik. 
 22. Laat al hun kwaad voor Uw aangezicht komen, [ taw] en doe met hen zoals U met mij gedaan hebt vanwege al mijn overtredingen. Want talrijk zijn mijn zuchten, en mijn hart is afgemat.

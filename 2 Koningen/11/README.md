@@ -16,7 +16,7 @@
 15. Maar de priester Jojada gebood de bevelhebbers over honderd, die over het leger aangesteld waren, en zei tegen hen: Breng haar buiten de gelederen en dood wie haar volgt met het zwaard. Want de priester had gezegd: Laat haar niet in het huis van de HEERE gedood worden.
 16. Daarop sloegen zij de handen aan haar; zij was via de ingang van de paarden *bij* het huis van de koning gekomen en zij werd daar gedood.
 17. En Jojada sloot een verbond tussen de HEERE, de koning en het volk, om een volk voor de HEERE te zijn; en *ook* tussen de koning en het volk.
-18. Daarna ging de hele bevolking van het land naar het huis van de Ba‰l en brak dat af; zijn altaren en zijn beelden braken zij volledig in stukken. Mattan, de priester van de Ba‰l, doodden zij voor de altaren. De priester stelde de ambten *weer* in voor het huis van de HEERE.
+18. Daarna ging de hele bevolking van het land naar het huis van de Ba√§l en brak dat af; zijn altaren en zijn beelden braken zij volledig in stukken. Mattan, de priester van de Ba√§l, doodden zij voor de altaren. De priester stelde de ambten *weer* in voor het huis van de HEERE.
 19. Hij nam de bevelhebbers over honderd, de garde, de lijfwacht en de hele bevolking van het land *met zich* mee. Zij haalden de koning uit het huis van de HEERE, en kwamen via de weg van de poort van de lijfwacht in het huis van de koning; en hij nam plaats op de koningstroon.
 20. De hele bevolking van het land was blij en de stad bleef rustig, nadat zij Athalia *bij* het huis van de koning met het zwaard gedood hadden.
 21. Joas was zeven jaar oud toen hij koning werd.

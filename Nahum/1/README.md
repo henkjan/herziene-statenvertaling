@@ -1,5 +1,5 @@
 #Nahum 1
-1. De last van Ninevé. Het boek van het visioen van Nahum uit Elkos.
+1. De last van NinevÃ©. Het boek van het visioen van Nahum uit Elkos.
 2. Een na-ijverig God en een Wreker is de HEERE, [ aleph] een Wreker is de HEERE, en zeer grimmig. Een Wreker is de HEERE voor Zijn tegenstanders, en Hij handhaaft *Zijn toorn* jegens Zijn vijanden. 
 3. De HEERE is geduldig, maar groot van kracht en Hij houdt *de schuldige* zeker niet onschuldig. De weg van de HEERE is in wervelwind en in storm, [ beth] wolken zijn het stof van Zijn voeten. 
 4. Hij bestraft de zee en maakt die droog, [ gimel] al de rivieren laat Hij verdrogen. Basan en Karmel zijn verwelkt, [ daleth] de bloesem van Libanon is verwelkt. 

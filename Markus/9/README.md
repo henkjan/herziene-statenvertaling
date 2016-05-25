@@ -3,7 +3,7 @@
 2. En na zes dagen nam Jezus Petrus en Jakobus en Johannes met Zich mee en bracht hen apart op een hoge berg, alleen *hen*; en Hij werd voor hun ogen van gedaante veranderd.
 3. En Zijn kleren werden blinkend, zeer wit, als sneeuw, zo wit als geen wolbewerker op aarde *ze* kan maken.
 4. En aan hen verscheen Elia met Mozes en zij spraken met Jezus.
-5. En Petrus antwoordde en zei tegen Jezus: Rabbi, het is goed dat wij hier zijn; en laten wij drie tenten maken, voor U één en voor Mozes één en voor Elia één.
+5. En Petrus antwoordde en zei tegen Jezus: Rabbi, het is goed dat wij hier zijn; en laten wij drie tenten maken, voor U Ã©Ã©n en voor Mozes Ã©Ã©n en voor Elia Ã©Ã©n.
 6. Hij wist namelijk niet wat hij zei, want zij waren zeer bevreesd.
 7. En er kwam een wolk, die hen overschaduwde, en uit de wolk kwam een stem, die zei: Dit is Mijn geliefde Zoon, luister naar Hem!
 8. En plotseling, terwijl zij om zich heen keken, zagen zij niemand meer bij zich dan Jezus alleen.
@@ -31,7 +31,7 @@
 30. En zij vertrokken vandaar en reisden door Galilea; en Hij wilde niet dat iemand het zou weten.
 31. Want Hij gaf onderwijs aan Zijn discipelen en zei tegen hen: De Zoon des mensen zal overgeleverd worden in de handen van mensen en zij zullen Hem doden, en nadat Hij gedood is, zal Hij op de derde dag opstaan.
 32. Maar zij begrepen dat woord niet en zij waren bevreesd Hem *ernaar* te vragen.
-33. En Hij kwam in Kapernaüm en toen Hij thuisgekomen was, vroeg Hij hun: Waarover had u het met elkaar onderweg?
+33. En Hij kwam in KapernaÃ¼m en toen Hij thuisgekomen was, vroeg Hij hun: Waarover had u het met elkaar onderweg?
 34. Maar zij zwegen, want zij hadden onderweg een woordenwisseling met elkaar gehad over wie de belangrijkste *was*.
 35. En Hij ging zitten, riep de twaalf en zei tegen hen: Als iemand de eerste wil zijn, moet hij de laatste van allen zijn en een dienaar van allen.
 36. En Hij nam een kind, zette dat in hun midden en omarmde het, en Hij zei tegen hen:
@@ -45,7 +45,7 @@
 44. waar hun worm niet sterft en het vuur niet uitgeblust wordt.
 45. En als uw voet u doet struikelen, hak hem *dan* af; het is beter voor u kreupel het leven in te gaan dan met twee voeten geworpen te worden in de hel, in het onuitblusbare vuur,
 46. waar hun worm niet sterft en het vuur niet uitgeblust wordt.
-47. En als uw oog u doet struikelen, werp het *dan* uit; het is beter voor u met één oog het Koninkrijk van God in te gaan dan met twee ogen in het helse vuur geworpen te worden,
+47. En als uw oog u doet struikelen, werp het *dan* uit; het is beter voor u met Ã©Ã©n oog het Koninkrijk van God in te gaan dan met twee ogen in het helse vuur geworpen te worden,
 48. waar hun worm niet sterft en het vuur niet uitgeblust wordt.
 49. Want iedereen zal met vuur gezouten worden en ieder offer zal met zout gezouten worden.
 50. Het zout is goed, maar als het zout zoutloos wordt, waarmee zult u het smakelijk maken? Heb zout in uzelf en leef met elkaar in vrede.

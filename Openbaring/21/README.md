@@ -5,21 +5,21 @@
 4. En God zal alle tranen van hun ogen afwissen, en de dood zal er niet meer zijn; ook geen rouw, jammerklacht of moeite zal er meer zijn. Want de eerste dingen zijn voorbijgegaan.
 5. En Hij Die op de troon zit, zei: Zie, Ik maak alle dingen nieuw. En Hij zei tegen mij: Schrijf, want deze woorden zijn waarachtig en betrouwbaar.
 6. En Hij zei tegen mij: Het is geschied. Ik ben de Alfa en de Omega, het Begin en het Einde. Wie dorst heeft, zal Ik voor niets *te drinken* geven uit de bron van het water des levens.
-7. Wie overwint, zal alles beërven, en Ik zal voor hem een God zijn en hij zal voor Mij een zoon zijn.
+7. Wie overwint, zal alles beÃ«rven, en Ik zal voor hem een God zijn en hij zal voor Mij een zoon zijn.
 8. Maar *wat betreft* de lafhartigen, ongelovigen, verfoeilijken, moordenaars, ontuchtplegers, tovenaars, afgodendienaars en alle leugenaars: hun deel is in de poel die van vuur en zwavel brandt. Dit is de tweede dood.
 9. En een van de zeven engelen die de zeven schalen hadden, vol van de zeven laatste plagen, kwam naar mij toe en hij sprak met mij en zei: Kom, ik zal u de bruid, de vrouw van het Lam, laten zien.
 10. En hij voerde mij weg in *de* geest op een grote en hoge berg en liet mij de grote stad zien, het heilige Jeruzalem, dat neerdaalde uit de hemel, bij God vandaan.
 11. Zij had de heerlijkheid van God, en haar uitstraling *was* als een zeer kostbare edelsteen, als een kristalheldere steen jaspis.
-12. Zij had een grote en hoge muur met twaalf poorten, en bij die poorten twaalf engelen. Ook waren er namen op geschreven, namelijk van de twaalf stammen van de Israëlieten.
+12. Zij had een grote en hoge muur met twaalf poorten, en bij die poorten twaalf engelen. Ook waren er namen op geschreven, namelijk van de twaalf stammen van de IsraÃ«lieten.
 13. Drie poorten op het oosten, drie poorten op het noorden, drie poorten op het zuiden, en drie poorten op het westen.
 14. En de muur van de stad had twaalf fundamenten met daarop de twaalf namen van de twaalf apostelen van het Lam.
 15. En hij die met mij sprak, had een gouden meetlat om de stad op te meten, en haar poorten, en haar muur.
-16. En de stad lag *daar als een* vierkant, haar lengte was even groot als *haar* breedte. En hij mat de stad met de meetlat op: twaalfduizend stadiën. Haar lengte, breedte en hoogte waren gelijk.
+16. En de stad lag *daar als een* vierkant, haar lengte was even groot als *haar* breedte. En hij mat de stad met de meetlat op: twaalfduizend stadiÃ«n. Haar lengte, breedte en hoogte waren gelijk.
 17. En hij mat haar muur op: honderdvierenveertig el, een mensenmaat, die *ook de maat* van een engel is.
 18. En het bouwmateriaal van de muur was jaspis en de stad was zuiver goud, gelijk aan zuiver glas.
 19. En de fundamenten van de muur van de stad waren met allerlei edelgesteente versierd. Het eerste fundament was jaspis, het tweede saffier, het derde chalcedon, het vierde smaragd,
 20. het vijfde onyx, het zesde sardius, het zevende chrysoliet, het achtste beril, het negende topaas, het tiende chrysopraas, het elfde hyacint, het twaalfde amethist.
-21. En de twaalf poorten waren twaalf parels. Elke poort apart bestond uit één parel, en de straat van de stad was zuiver goud, als doorzichtig glas.
+21. En de twaalf poorten waren twaalf parels. Elke poort apart bestond uit Ã©Ã©n parel, en de straat van de stad was zuiver goud, als doorzichtig glas.
 22. Ik zag geen tempel in haar, want de Heere, de almachtige God, is haar tempel, en het Lam.
 23. En de stad heeft de zon en de maan niet nodig om haar te beschijnen, want de heerlijkheid van God verlicht haar, en het Lam is haar lamp.
 24. En de naties die zalig worden, zullen in haar licht wandelen, en de koningen van de aarde brengen hun heerlijkheid en eer erin.

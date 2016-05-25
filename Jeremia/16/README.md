@@ -7,13 +7,13 @@
 6. Groten en kleinen zullen sterven in dit land. Zij zullen niet begraven worden. Er zal over hen geen rouw bedreven worden, men zal *het lichaam* niet kerven of zich voor hen kaal maken.
 7. Ook zal men geen *brood* voor hen breken vanwege de rouw, om iemand te troosten over een gestorvene, en men zal hun niet te drinken geven uit de troostbeker vanwege iemands vader of vanwege iemands moeder.
 8. Een huis *waar* een feestmaal *gehouden wordt*, mag u niet binnengaan om bij hen aan te zitten, om te eten en te drinken.
-9. Want zo zegt de HEERE van de legermachten, de God van Israël: Zie, uit deze plaats doe Ik voor uw ogen en in uw dagen ophouden de stem van de vreugde en de stem van de blijdschap, de stem van de bruidegom en de stem van de bruid.
+9. Want zo zegt de HEERE van de legermachten, de God van IsraÃ«l: Zie, uit deze plaats doe Ik voor uw ogen en in uw dagen ophouden de stem van de vreugde en de stem van de blijdschap, de stem van de bruidegom en de stem van de bruid.
 10. Maar het zal gebeuren wanneer u dit volk al deze woorden aanzegt, dat zij tegen u zullen zeggen: Waarom heeft de HEERE heel dit grote onheil over ons uitgesproken, wat is onze ongerechtigheid en wat is onze zonde waarmee wij tegen de HEERE, onze God, gezondigd hebben?
 11. Dan zult u tegen hen zeggen: Omdat uw vaderen Mij hebben verlaten, spreekt de HEERE, en andere goden achterna zijn gegaan en die hebben gediend en zich voor hen hebben gebogen. Mij echter hebben zij verlaten en zij hebben Mijn wet niet in acht genomen.
 12. Wat u betreft, u hebt meer kwaad gedaan dan uw vaderen, want zie, ieder *van u* gaat zijn *eigen* verharde, boosaardige hart achterna door niet naar Mij te luisteren.
 13. Daarom zal Ik u uit dit land wegwerpen naar een land dat u niet gekend hebt, u evenmin *als* uw vaderen. Daar zult u dan dag en nacht andere goden dienen, omdat Ik u geen genade zal bewijzen.
-14. Daarom, zie, er komen dagen, spreekt de HEERE, dat er niet meer gezegd zal worden: *Zo waar* de HEERE leeft, Die de Israëlieten uit het land Egypte geleid heeft,
-15. maar: *Zo waar* de HEERE leeft, Die de Israëlieten uit het land in het noorden en uit al de landen waarheen Hij hen verdreven had, geleid heeft. Ik zal hen terugbrengen in hun land, dat Ik hun vaderen gegeven heb.
+14. Daarom, zie, er komen dagen, spreekt de HEERE, dat er niet meer gezegd zal worden: *Zo waar* de HEERE leeft, Die de IsraÃ«lieten uit het land Egypte geleid heeft,
+15. maar: *Zo waar* de HEERE leeft, Die de IsraÃ«lieten uit het land in het noorden en uit al de landen waarheen Hij hen verdreven had, geleid heeft. Ik zal hen terugbrengen in hun land, dat Ik hun vaderen gegeven heb.
 16. Zie, Ik ga *boden* tot vele vissers zenden, spreekt de HEERE, dat zij hen moeten opvissen. En daarna zend Ik *boden* tot vele jagers, dat die hen moeten opjagen van elke berg en van elke heuvel, en uit de kloven van de rotsen.
 17. Want Mijn ogen zijn *gevestigd* op al hun wegen. Ze zijn voor Mijn aangezicht niet verborgen en hun ongerechtigheid kan zich niet voor Mijn ogen verhullen.
 18. Ik zal eerst hun ongerechtigheid en hun zonde dubbel vergelden, omdat zij Mijn land ontheiligd hebben: zij hebben Mijn eigendom met de dode lichamen van hun afschuwelijke *afgoden* en hun gruweldaden vervuld. 

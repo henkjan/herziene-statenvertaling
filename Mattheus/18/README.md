@@ -7,7 +7,7 @@
 6. Maar wie een van deze kleinen, die in Mij geloven, doet struikelen, het zou beter voor hem geweest zijn dat een molensteen aan zijn hals gehangen was en hij in de diepte van de zee gezonken was.
 7. Wee de wereld vanwege *al haar* struikelblokken, want het is noodzakelijk dat *er* struikelblokken komen; maar wee die mens door wie *zo'n* struikelblok er komt!
 8. Als dan uw hand of uw voet u doet struikelen, hak hem af en werp hem van u. Het is beter voor u kreupel of verminkt tot het leven in te gaan, dan met twee handen of twee voeten in het eeuwige vuur geworpen te worden.
-9. Als uw oog u doet struikelen, ruk het uit en werp het van u. Het is beter voor u met één oog tot het leven in te gaan, dan met twee ogen in het helse vuur geworpen te worden.
+9. Als uw oog u doet struikelen, ruk het uit en werp het van u. Het is beter voor u met Ã©Ã©n oog tot het leven in te gaan, dan met twee ogen in het helse vuur geworpen te worden.
 10. Pas op dat u niet een van deze kleinen veracht. Want Ik zeg u dat hun engelen in de hemelen altijd het aangezicht zien van Mijn Vader, Die in de hemelen is.
 11. Want de Zoon des mensen is gekomen om zalig te maken wat verloren is.
 12. Wat denkt u: als iemand honderd schapen heeft, en een daarvan afgedwaald is, zal hij niet de negenennegentig *andere* achterlaten en in de bergen het afgedwaalde gaan zoeken?
@@ -23,7 +23,7 @@
 22. Jezus zei tegen hem: Ik zeg u: niet tot zevenmaal, maar tot zeventig maal zeven*maal*.
 23. Daarom kan het Koninkrijk der hemelen vergeleken worden met een zeker koning die afrekening wilde houden met zijn slaven.
 24. Toen hij begon af te rekenen, werd er iemand bij hem gebracht die hem tienduizend talenten schuldig was.
-25. En toen hij niet kon betalen, gaf zijn heer opdracht dat men hem zou verkopen, én zijn vrouw en kinderen en alles wat hij had, en dat *de schuld* betaald moest worden.
+25. En toen hij niet kon betalen, gaf zijn heer opdracht dat men hem zou verkopen, Ã©n zijn vrouw en kinderen en alles wat hij had, en dat *de schuld* betaald moest worden.
 26. De slaaf dan knielde voor hem neer en zei: Heer, heb geduld met mij en ik zal u alles betalen.
 27. En de heer van deze slaaf was innerlijk met ontferming bewogen, liet hem gaan en schold hem de schuld kwijt.
 28. Maar deze slaaf ging naar buiten en trof een van zijn medeslaven aan, die hem honderd penningen schuldig was. Hij pakte hem beet, greep *hem* bij de keel en zei: Betaal mij wat u schuldig bent.

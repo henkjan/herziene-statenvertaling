@@ -22,7 +22,7 @@
 21. Laten zij de HEERE loven om Zijn goedertierenheid en om Zijn wonderen voor de mensenkinderen. 
 22. Laten zij lofoffers brengen en met gejuich van Zijn werken vertellen. 
 23. *Er zijn er* die met schepen op zee varen *en* handeldrijven op de grote wateren. 
-24. Zíj zien de werken van de HEERE en Zijn wonderen in de diepte. 
+24. ZÃ­j zien de werken van de HEERE en Zijn wonderen in de diepte. 
 25. Wanneer Hij spreekt, doet Hij een stormwind opsteken, die haar golven hoog opheft. 
 26. Ze rijzen op naar de hemel, ze dalen neer in de diepe wateren; hun ziel smelt weg van ellende. 
 27. Zij wankelen en waggelen als een dronken man, al hun wijsheid wordt verslonden. 

@@ -10,7 +10,7 @@
 9. Ieder die uit God geboren is, doet de zonde niet, want Zijn zaad blijft in hem; en hij kan niet zondigen, omdat hij uit God geboren is.
 10. Hieraan zijn de kinderen van God en de kinderen van de duivel te herkennen. Ieder die de rechtvaardigheid niet doet, is niet uit God, evenmin als hij die zijn broeder niet liefheeft.
 11. Want dit is de boodschap die u vanaf het begin gehoord hebt, dat wij elkaar *moeten* liefhebben;
-12. niet zoals Kaïn: hij was uit de boze en sloeg zijn broer dood. En waarom sloeg hij hem dood? Omdat zijn werken slecht waren en die van zijn broer rechtvaardig.
+12. niet zoals KaÃ¯n: hij was uit de boze en sloeg zijn broer dood. En waarom sloeg hij hem dood? Omdat zijn werken slecht waren en die van zijn broer rechtvaardig.
 13. Verwonder u niet, mijn broeders, als de wereld u haat.
 14. Wij weten dat wij zijn overgegaan uit de dood in het leven, omdat wij de broeders liefhebben; wie *zijn* broeder niet liefheeft, blijft in de dood.
 15. Ieder die zijn broeder haat, is een moordenaar; en u weet dat geen moordenaar het eeuwige leven blijvend in zich heeft.

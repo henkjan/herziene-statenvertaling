@@ -13,7 +13,7 @@
 12. En ik weet *wat het is* vernederd te worden, ik weet ook *wat het is* overvloed te hebben; in elk opzicht en in alles ben ik ingewijd, zowel in verzadigd te zijn als in honger te lijden, zowel in overvloed te hebben als in gebrek te lijden.
 13. Alle dingen zijn mij mogelijk door Christus, Die mij kracht geeft.
 14. Toch hebt u er goed aan gedaan dat u gedeeld hebt in mijn verdrukking.
-15. En ook u, Filippenzen, weet dat in het begin van het Evangelie, toen ik uit Macedonië vertrok, geen enkele gemeente mijn deelgenoot werd in de rekening van uitgave en ontvangst, dan u alleen.
+15. En ook u, Filippenzen, weet dat in het begin van het Evangelie, toen ik uit MacedoniÃ« vertrok, geen enkele gemeente mijn deelgenoot werd in de rekening van uitgave en ontvangst, dan u alleen.
 16. Want ook in Thessalonica hebt u mij een- en andermaal *iets* gestuurd voor wat ik nodig had.
 17. Niet dat ik de gave zoek, maar ik zoek de vrucht die op uw rekening toeneemt.
 18. Maar ik heb alles ontvangen en ik heb overvloed; ik ben geheel voorzien, nu ik door middel van Epafroditus ontvangen heb wat door u *gezonden was*, *als* een aangename geur, een welgevallig offer, welbehaaglijk voor God.

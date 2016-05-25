@@ -22,4 +22,4 @@
 21. Uz, zijn eerstgeborene, Buz, zijn broer, en Kemuel, de vader van Aram,
 22. Chesed, Hazo, Pildas, Jidlaf en Bethuel.
 23. Bethuel verwekte Rebekka. Deze acht baarde Milka aan Nahor, de broer van Abraham.
-24. Ook zijn bijvrouw, van wie de naam Reüma was, baarde *zonen*: Tebah, Gaham, Tahas en Maächa.
+24. Ook zijn bijvrouw, van wie de naam ReÃ¼ma was, baarde *zonen*: Tebah, Gaham, Tahas en MaÃ¤cha.

@@ -1,7 +1,7 @@
 #Lukas 14
-1. En het gebeurde, toen Hij in het huis van een van de leiders van de Farizeeën gekomen was op een sabbat om brood te eten, dat zij scherp op Hem letten.
+1. En het gebeurde, toen Hij in het huis van een van de leiders van de FarizeeÃ«n gekomen was op een sabbat om brood te eten, dat zij scherp op Hem letten.
 2. En zie, voor Hem stond iemand die leed aan waterzucht.
-3. En Jezus antwoordde en zei tegen de wetgeleerden en Farizeeën: Is het geoorloofd op de sabbat gezond te maken?
+3. En Jezus antwoordde en zei tegen de wetgeleerden en FarizeeÃ«n: Is het geoorloofd op de sabbat gezond te maken?
 4. Maar zij zwegen. En Hij greep *hem* vast, genas hem en liet *hem* gaan.
 5. En Hij zei, terwijl Hij Zich tot hen richtte: Wie van u zal, wanneer zijn ezel of os in een put valt, deze er niet meteen uittrekken op de dag van de sabbat?
 6. En zij konden Hem daarop geen antwoord geven.
@@ -16,7 +16,7 @@
 15. Toen een van hen die mee aanlagen, deze dingen hoorde, zei hij tegen Hem: Zalig is hij die brood zal eten in het Koninkrijk van God.
 16. Maar Hij zei tegen hem: Een zekere man bereidde een grote maaltijd en nodigde er velen.
 17. En hij stuurde zijn slaaf eropuit tegen de tijd van de maaltijd om de genodigden te zeggen: Kom, want alle dingen zijn nu gereed.
-18. En zij begonnen zich allen één voor één te verontschuldigen. De eerste zei tegen hem: Ik heb een akker gekocht en ik moet er nodig op uit om die te bekijken. Ik vraag u: Houd mij voor verontschuldigd.
+18. En zij begonnen zich allen Ã©Ã©n voor Ã©Ã©n te verontschuldigen. De eerste zei tegen hem: Ik heb een akker gekocht en ik moet er nodig op uit om die te bekijken. Ik vraag u: Houd mij voor verontschuldigd.
 19. En een ander zei: Ik heb vijf span ossen gekocht en ik ga erheen om ze te keuren. Ik vraag u: Houd mij voor verontschuldigd.
 20. En *weer* een ander zei: Ik heb een vrouw getrouwd en daarom kan ik niet komen.
 21. En die slaaf kwam terug en berichtte deze dingen aan zijn heer. Toen werd de heer des huizes boos en zei tegen zijn slaaf: Ga er snel op uit naar de straten en stegen van de stad en breng de armen en verminkten en kreupelen en blinden hier binnen.

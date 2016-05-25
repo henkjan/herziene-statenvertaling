@@ -15,7 +15,7 @@
 14. Doden zullen niet *her*leven; gestorvenen zullen niet opstaan. Daarom hebt U hen gestraft, hen weggevaagd, elke gedachtenis aan hen doen vergaan. 
 15. HEERE, U hebt dit volk vermeerderd, U hebt dit volk vermeerderd, U hebt Uzelf verheerlijkt, U hebt hen ver weggedaan, *in* alle einden der aarde. 
 16. HEERE, in de benauwdheid hebben zij U gezocht, een fluisterend gebed uitgestort, *toen* Uw vermaning over hen kwam. 
-17. Zoals een zwangere vrouw die op het punt staat te baren, ineenkrimpt *en* het uitschreeuwt in haar weeën, zo waren wij voor Uw aangezicht, HEERE. 
+17. Zoals een zwangere vrouw die op het punt staat te baren, ineenkrimpt *en* het uitschreeuwt in haar weeÃ«n, zo waren wij voor Uw aangezicht, HEERE. 
 18. Wij waren zwanger, wij krompen ineen, *maar* het was als baarden wij wind: wij hebben het land geen heil gebracht, wereldbewoners zijn niet geboren. 
 19. Uw doden zullen leven - *ook* mijn dood lichaam - zij zullen opstaan. Ontwaak en juich, u die woont in het stof, want Uw dauw zal zijn *als* dauw op jong, fris groen en de aarde zal de gestorvenen baren. 
 20. Ga, Mijn volk, treed uw kamers binnen, sluit uw deuren achter u. Verberg u voor een klein ogenblik, totdat de gramschap over is. 

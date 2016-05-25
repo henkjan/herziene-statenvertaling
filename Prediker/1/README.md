@@ -10,10 +10,10 @@
 9. Wat er geweest is, dat zal er *weer* zijn. Wat er plaatsvindt, dat zal *weer* plaatsvinden. Er is niets nieuws onder de zon. 
 10. Is er iets waarvan men kan zeggen: Kijk eens, dat is nieuw? In de eeuwen die voor ons geweest zijn, is het er al geweest. 
 11. Er is geen herinnering aan de vroegere dingen. Ook aan latere dingen, die *nog* komen, zal geen herinnering zijn bij hen die daarna komen.
-12. Ik, Prediker, was koning over Israël in Jeruzalem.
+12. Ik, Prediker, was koning over IsraÃ«l in Jeruzalem.
 13. Ik legde mij met *heel* mijn hart erop toe met wijsheid te onderzoeken, en na te speuren alles wat er onder de hemel plaatsvindt. Dat is een treurige bezigheid, die God aan de mensenkinderen gegeven heeft om zich ermee te vermoeien.
 14. Ik heb alle werkzaamheden gezien die er onder de zon plaatsvinden, en zie, het was alles vluchtig en najagen van wind. 
 15. Het kromme kan niet recht gemaakt worden en wat ontbreekt kan niet meegeteld worden.
-16. Ik overwoog in mijn hart: Zie, ik heb *mijn* wijsheid vergroot en vermeerderd, meer dan allen die vóór mij in Jeruzalem geweest zijn *de hunne*. Mijn hart heeft veel wijsheid en kennis ontdekt.
+16. Ik overwoog in mijn hart: Zie, ik heb *mijn* wijsheid vergroot en vermeerderd, meer dan allen die vÃ³Ã³r mij in Jeruzalem geweest zijn *de hunne*. Mijn hart heeft veel wijsheid en kennis ontdekt.
 17. Ik legde mij met *heel* mijn hart erop toe wijsheid te kennen, en onverstand en dwaasheid te leren kennen. Ik merkte dat ook dit *slechts* najagen van wind is. 
 18. Want in veel wijsheid zit veel verdriet. Wie kennis vermeerdert, vermeerdert leed.

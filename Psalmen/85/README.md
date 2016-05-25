@@ -5,7 +5,7 @@
 4. U hebt al Uw verbolgenheid weggenomen, U hebt Zich van Uw brandende toorn afgewend. 
 5. Breng ons terug, o God van ons heil, doe Uw toorn over ons teniet. 
 6. Zult U voor eeuwig toornig op ons zijn, Uw toorn laten duren van generatie op generatie? 
-7. Zou Ú ons niet weer levend maken, zodat Uw volk zich in U verblijdt? 
+7. Zou Ãš ons niet weer levend maken, zodat Uw volk zich in U verblijdt? 
 8. Toon ons Uw goedertierenheid, HEERE, geef ons Uw heil. 
 9. Ik zal horen, wat God, de HEERE, spreken zal, want Hij zal tot Zijn volk en tot Zijn gunstelingen van vrede spreken; maar laten zij niet tot dwaasheid terugkeren. 
 10. Ja, Zijn heil is nabij hen die Hem vrezen, zodat er eer in ons land woont. 

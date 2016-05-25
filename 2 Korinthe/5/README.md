@@ -12,7 +12,7 @@
 11. Nu wij dus *deze* vrees voor de Heere kennen, bewegen wij *de* mensen *tot het geloof*; en voor God zijn wij openbaar geworden, maar ik hoop ook voor uw gewetens openbaar te zijn.
 12. Want wij bevelen onszelf niet opnieuw bij u aan, maar wij geven u een aanleiding tot roem over ons, opdat u *iets te zeggen* zou hebben tegen hen die in het uiterlijke roemen en niet *in wat er in* het hart *leeft*.
 13. Want wanneer wij buiten onszelf zijn, *dan is dat* voor God; en wanneer wij bij ons verstand zijn, *dan is dat* voor u.
-14. Want de liefde van Christus dringt ons, die tot dit oordeel gekomen zijn: als Eén voor allen gestorven is, dan zijn zij allen gestorven.
+14. Want de liefde van Christus dringt ons, die tot dit oordeel gekomen zijn: als EÃ©n voor allen gestorven is, dan zijn zij allen gestorven.
 15. En Hij is voor allen gestorven, opdat zij die leven, niet meer voor zichzelf zouden leven, maar voor Hem Die voor hen gestorven en opgewekt is.
 16. Zo kennen wij vanaf nu niemand naar het vlees; en al hebben wij Christus naar het vlees gekend, dan kennen wij *Hem* nu *zo* niet meer.
 17. Daarom, als iemand in Christus is, is hij een nieuwe schepping: het oude is voorbijgegaan, zie, alles is nieuw geworden.

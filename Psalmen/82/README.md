@@ -4,6 +4,6 @@
 3. Doe recht aan de geringe en de wees, bewijs de ellendige en de arme gerechtigheid. 
 4. Bevrijd de geringe en de arme, ontruk *hem* aan de hand van de goddelozen. 
 5. Zij weten niets en begrijpen niets, zij wandelen steeds in de duisternis rond; *daarom* wankelen alle fundamenten van de aarde. 
-6. Õk heb *wel* gezegd: U bent goden, u bent allen zonen van de Allerhoogste; 
+6. √çk heb *wel* gezegd: U bent goden, u bent allen zonen van de Allerhoogste; 
 7. toch zult u sterven als een mens, zoals iedere andere vorst zult u vallen. 
-8. Sta op, o God, oordeel de aarde, want ⁄ bezit alle volken.
+8. Sta op, o God, oordeel de aarde, want √ö bezit alle volken.

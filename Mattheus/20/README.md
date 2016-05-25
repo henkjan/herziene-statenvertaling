@@ -10,7 +10,7 @@
 9. En toen zij kwamen die omstreeks het elfde uur *ingehuurd waren*, ontvingen zij ieder een penning.
 10. En toen de eersten kwamen, dachten zij dat zij meer ontvangen zouden; maar ook zij ontvingen ieder een penning.
 11. Toen zij die ontvangen hadden, morden zij tegen de heer des huizes
-12. en zeiden: Deze laatsten hebben maar één uur gewerkt, en u hebt ze gelijkgesteld met ons, die de last van de dag en de hitte verdragen hebben.
+12. en zeiden: Deze laatsten hebben maar Ã©Ã©n uur gewerkt, en u hebt ze gelijkgesteld met ons, die de last van de dag en de hitte verdragen hebben.
 13. Maar hij antwoordde en zei tegen een van hen: Vriend, ik doe u geen onrecht; bent u het niet met mij eens geworden over een penning?
 14. Neem wat van u is, en vertrek. Ik wil aan hem die het laatst *kwam*, hetzelfde geven als aan u.
 15. Of is het mij niet geoorloofd met het mijne te doen wat ik wil? Of bent u afgunstig omdat ik goed ben?
@@ -18,8 +18,8 @@
 17. En toen Jezus naar Jeruzalem ging, nam Hij de twaalf discipelen onderweg apart bij Zich en zei tegen hen:
 18. Zie, wij gaan naar Jeruzalem en de Zoon des mensen zal aan de overpriesters en schriftgeleerden overgeleverd worden, en zij zullen Hem ter dood veroordelen;
 19. en zij zullen Hem aan de heidenen overleveren om Hem te bespotten en te geselen en te kruisigen; maar op de derde dag zal Hij opgewekt worden.
-20. Toen kwam de moeder van de zonen van Zebedeüs met haar zonen naar Hem toe. Zij knielde *voor Hem* neer om Hem iets te vragen.
-21. Hij zei tegen haar: Wat wilt u? Zij zei tegen Hem: Zeg dat deze twee zonen van mij mogen zitten, de één aan Uw rechter- en de ander aan Uw linker*hand* in Uw Koninkrijk.
+20. Toen kwam de moeder van de zonen van ZebedeÃ¼s met haar zonen naar Hem toe. Zij knielde *voor Hem* neer om Hem iets te vragen.
+21. Hij zei tegen haar: Wat wilt u? Zij zei tegen Hem: Zeg dat deze twee zonen van mij mogen zitten, de Ã©Ã©n aan Uw rechter- en de ander aan Uw linker*hand* in Uw Koninkrijk.
 22. Maar Jezus antwoordde en zei: U weet niet wat u vraagt; kunt u de drinkbeker drinken die Ik drinken zal, en met de doop gedoopt worden waarmee Ik gedoopt word? Zij zeiden tegen Hem: Dat kunnen wij.
 23. En Hij zei tegen hen: Mijn drinkbeker zult u wel drinken, en met de doop waarmee Ik gedoopt word, zult u gedoopt worden; maar het zitten aan Mijn rechter- en aan Mijn linker*hand* is niet aan Mij om te geven, maar *het zal gegeven worden* aan hen voor wie het bestemd is door Mijn Vader.
 24. En toen de *andere* tien dit hoorden, namen zij het de twee broers zeer kwalijk.

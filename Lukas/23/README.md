@@ -4,7 +4,7 @@
 3. Toen vroeg Pilatus Hem: U bent de Koning van de Joden? Hij nu antwoordde hem en zei: U zegt het.
 4. Pilatus zei tegen de overpriesters en de menigten: Ik vind geen schuld in deze Mens.
 5. Maar zij drongen des te sterker aan en zeiden: Hij hitst het volk op door in heel Judea onderwijs te geven, van toen Hij begon in Galilea tot hiertoe.
-6. Toen Pilatus nu van Galilea hoorde, vroeg hij of die Mens een Galileeër was.
+6. Toen Pilatus nu van Galilea hoorde, vroeg hij of die Mens een GalileeÃ«r was.
 7. En toen hij te weten kwam dat Hij uit het machtsgebied van Herodes afkomstig was, stuurde hij Hem naar Herodes toe, die zelf ook in die dagen in Jeruzalem was.
 8. En toen Herodes Jezus zag, werd hij erg blij, want hij had al lange tijd gewenst Hem te zien, omdat hij veel over Hem gehoord had; en hij hoopte een of ander teken te zien dat door Hem gedaan zou worden.
 9. En hij ondervroeg Hem met veel woorden, maar Hij antwoordde hem niets.
@@ -16,7 +16,7 @@
 15. Ja, ook Herodes niet, want ik heb u naar hem toe gestuurd en zie, er is door Hem niets gedaan wat de dood verdient.
 16. Ik zal Hem dan straffen en loslaten.
 17. Hij was immers verplicht op het feest voor hen iemand los te laten.
-18. Maar de hele menigte schreeuwde als één man: Weg met Deze, en laat voor ons Barabbas los.
+18. Maar de hele menigte schreeuwde als Ã©Ã©n man: Weg met Deze, en laat voor ons Barabbas los.
 19. Dat was iemand die om een of ander oproer dat in de stad plaatsgevonden had, en *om* een moord in de gevangenis geworpen was.
 20. Pilatus dan sprak hen opnieuw toe*,* omdat hij Jezus wilde loslaten.
 21. Maar zij riepen terug: Kruisig *Hem*, kruisig Hem.
@@ -31,7 +31,7 @@
 30. Dan zullen zij beginnen te zeggen tegen de bergen: Val op ons, en tegen de heuvels: Bedek ons.
 31. Want als zij dit doen met het groene hout, wat zal er dan met het dorre gebeuren?
 32. En er werden ook twee anderen weggeleid, misdadigers, om met Hem ter dood gebracht te worden.
-33. Toen zij op de plaats kwamen die Schedel genoemd werd, kruisigden ze Hem daar, met de misdadigers, de één aan de rechter- en de ander aan de linker*zijde*.
+33. Toen zij op de plaats kwamen die Schedel genoemd werd, kruisigden ze Hem daar, met de misdadigers, de Ã©Ã©n aan de rechter- en de ander aan de linker*zijde*.
 34. En Jezus zei: Vader, vergeef *het* hun, want zij weten niet wat zij doen. En ze verdeelden Zijn kleren en wierpen het lot.
 35. En het volk stond toe te kijken. En met hen beschimpten ook *hun* leiders *Hem.* Zij zeiden: Anderen heeft Hij verlost, laat Hij nu Zichzelf verlossen als Hij de Christus is, de Uitverkorene van God.
 36. En ook de soldaten kwamen Hem bespotten en brachten Hem zure wijn.

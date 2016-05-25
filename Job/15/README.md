@@ -2,10 +2,10 @@
 1. Toen antwoordde Elifaz, de Temaniet, en zei: 
 2. Zal een wijze antwoorden met wetenschap *die als* wind *is*? Zal hij zijn buik vullen met oostenwind? 
 3. Bestraft hij met woorden *die* nutteloos zijn, en met uitspraken waarvan hij geen voordeel heeft? 
-4. Ja, jíj doet de vreze *Gods* teniet, en neemt het gebed voor het aangezicht van God weg. 
+4. Ja, jÃ­j doet de vreze *Gods* teniet, en neemt het gebed voor het aangezicht van God weg. 
 5. Want je *eigen* mond geeft je ongerechtigheid te kennen, je hebt de tong van de sluwen gekozen. 
 6. Je *eigen* mond verklaart je schuldig, en niet ik; je lippen getuigen tegen je. 
-7. Ben jij de eerste mens die geboren werd? Ben jij vóór de heuvels voortgebracht? 
+7. Ben jij de eerste mens die geboren werd? Ben jij vÃ³Ã³r de heuvels voortgebracht? 
 8. Heb jij geluisterd in de verborgen raad van God? En heb jij de wijsheid naar je toe getrokken? 
 9. Wat weet jij dat wij niet weten? *Wat* begrijp jij dat bij ons ontbreekt? 
 10. Onder ons is ook een grijsaard en een stokoude, ouder van dagen dan jouw vader. 

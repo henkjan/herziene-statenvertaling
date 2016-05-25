@@ -8,9 +8,9 @@
 7. zodat het u aan geen genadegave ontbreekt, terwijl u de openbaring van onze Heere Jezus Christus verwacht.
 8. *God* zal u ook bevestigen tot het einde toe, zodat u onberispelijk zult zijn op de dag van onze Heere Jezus Christus.
 9. God is getrouw, door Wie u geroepen bent tot de gemeenschap van Zijn Zoon Jezus Christus, onze Heere.
-10. Maar ik roep u ertoe op, broeders, door de Naam van onze Heere Jezus Christus, dat u allen eensgezind bent in uw spreken, en dat er onder u geen scheuringen zijn, maar dat u hecht aaneengesmeed bent, één van denken en één van gevoelen.
-11. Want mij is over u bekendgemaakt, mijn broeders, door de *huisgenoten* van Chloë, dat er ruzies onder u zijn.
-12. Ik bedoel dit, dat ieder van u zegt: Ik ben van Paulus, ík van Apollos, ík van Kefas, en ík van Christus.
+10. Maar ik roep u ertoe op, broeders, door de Naam van onze Heere Jezus Christus, dat u allen eensgezind bent in uw spreken, en dat er onder u geen scheuringen zijn, maar dat u hecht aaneengesmeed bent, Ã©Ã©n van denken en Ã©Ã©n van gevoelen.
+11. Want mij is over u bekendgemaakt, mijn broeders, door de *huisgenoten* van ChloÃ«, dat er ruzies onder u zijn.
+12. Ik bedoel dit, dat ieder van u zegt: Ik ben van Paulus, Ã­k van Apollos, Ã­k van Kefas, en Ã­k van Christus.
 13. Is Christus verdeeld? Is Paulus *soms* voor u gekruisigd? Of bent u in de naam van Paulus gedoopt?
 14. Ik dank God dat ik niemand van u gedoopt heb dan Crispus en Gajus,
 15. zodat niemand kan zeggen dat ik in mijn naam gedoopt heb.

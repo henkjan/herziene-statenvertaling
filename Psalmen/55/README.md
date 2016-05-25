@@ -21,5 +21,5 @@
 20. God zal horen en hen vernederen - Hij, Die van oudsher troont - [ Sela] omdat bij hen geen enkele verandering is en zij God niet vrezen. 
 21. Hij slaat zijn handen aan wie vrede met hem had, hij ontheiligt zijn verbond. 
 22. Zijn mond is gladder dan boter, maar zijn hart wil strijd; zijn woorden zijn zachter dan olie, maar het zijn getrokken zwaarden. 
-23. Werp uw zorg op de HEERE, en Híj zal u onderhouden; Hij zal voor eeuwig niet toelaten dat de rechtvaardige wankelt. 
+23. Werp uw zorg op de HEERE, en HÃ­j zal u onderhouden; Hij zal voor eeuwig niet toelaten dat de rechtvaardige wankelt. 
 24. Maar U, o God, U zult de mannen van bloed en bedrog doen neerdalen in de put van het verderf; zij zullen *nog* niet de helft van hun dagen bereiken. Ik echter vertrouw op U.

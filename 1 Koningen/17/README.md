@@ -1,5 +1,5 @@
 #1 Koningen 17
-1. En Elia, de Tisbiet, uit de inwoners van Gilead, zei tegen Achab: *Zo waar* de HEERE, de God van Israël, leeft, voor Wiens aangezicht ik sta, er zal deze jaren geen dauw of regen komen, behalve op mijn woord!
+1. En Elia, de Tisbiet, uit de inwoners van Gilead, zei tegen Achab: *Zo waar* de HEERE, de God van IsraÃ«l, leeft, voor Wiens aangezicht ik sta, er zal deze jaren geen dauw of regen komen, behalve op mijn woord!
 2. Daarna kwam het woord van de HEERE tot hem:
 3. Ga weg vanhier, keer u naar het oosten en verberg u bij de beek Krith, die aan de overzijde van de Jordaan *stroomt*.
 4. En het zal gebeuren dat u uit de beek zult drinken. Verder heb Ik de raven geboden om u daar te onderhouden.
@@ -12,7 +12,7 @@
 11. Toen zij *op weg* ging om het te halen, riep hij haar na en zei: Breng toch *ook* een stuk brood voor mij mee.
 12. Maar zij zei: *Zo waar* de HEERE, uw God, leeft! Ik heb geen broodkoek *meer*, behalve een handvol meel in de pot en een beetje olie in de kruik! En zie, ik ben een paar stukken hout aan het sprokkelen. Zodra ik *thuis* kom, ga ik het voor mij en voor mijn zoon klaarmaken. Daarna zullen we het opeten en sterven.
 13. Maar Elia zei tegen haar: Wees niet bevreesd! Ga, doe overeenkomstig uw woord, maar maak er eerst voor mij een kleine koek van en breng die bij mij. Maak daarna voor u en voor uw zoon *iets* klaar.
-14. Want zo zegt de HEERE, de God van Israël: Het meel in de pot zal niet opraken en in de kruik zal het aan olie niet ontbreken tot op de dag dat de HEERE regen op de aardbodem geven zal.
+14. Want zo zegt de HEERE, de God van IsraÃ«l: Het meel in de pot zal niet opraken en in de kruik zal het aan olie niet ontbreken tot op de dag dat de HEERE regen op de aardbodem geven zal.
 15. Zij ging en deed overeenkomstig het woord van Elia. Zo at zij, en hij, en haar gezin, *vele* dagen.
 16. Het meel in de pot raakte niet op en in de kruik ontbrak het niet aan olie, overeenkomstig het woord van de HEERE, dat Hij door de dienst van Elia gesproken had.
 17. Het gebeurde na deze dingen dat de zoon van deze vrouw, de vrouw des huizes, ziek werd. Zijn ziekte werd zeer ernstig, totdat er in hem geen adem overbleef.

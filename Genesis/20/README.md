@@ -14,6 +14,6 @@
 13. En het gebeurde, toen God mij vanuit het huis van mijn vader liet rondzwerven, dat ik tegen haar zei: Dit is de goedertierenheid die je mij moet bewijzen: in elke plaats waar wij komen, zeg *daar* van mij: Hij is mijn broer.
 14. Toen nam Abimelech kleinvee, runderen, slaven en slavinnen, en gaf die aan Abraham. Ook gaf hij hem zijn vrouw Sara terug.
 15. Abimelech zei: Zie, mijn land ligt voor u open; ga *maar* wonen waar het in uw ogen goed is.
-16. En tegen Sara zei hij: Zie, ik heb uw broer duizend zilverstukken gegeven. Zie, laat dat mogen dienen als sluier voor de ogen, voor u én voor allen die bij u zijn. U bent vrijgepleit.
+16. En tegen Sara zei hij: Zie, ik heb uw broer duizend zilverstukken gegeven. Zie, laat dat mogen dienen als sluier voor de ogen, voor u Ã©n voor allen die bij u zijn. U bent vrijgepleit.
 17. Abraham bad tot God, en God genas Abimelech, zijn vrouw en zijn slavinnen, zodat zij *weer* kinderen konden krijgen.
 18. Want de HEERE had alle baarmoeders in het huis van Abimelech helemaal gesloten vanwege Sara, de vrouw van Abraham.

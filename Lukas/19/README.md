@@ -1,12 +1,12 @@
 #Lukas 19
 1. En *Jezus* kwam Jericho binnen en ging erdoorheen.
-2. En zie, *er* was een man van wie de naam Zacheüs was, en hij was oppertollenaar en hij was rijk.
+2. En zie, *er* was een man van wie de naam ZacheÃ¼s was, en hij was oppertollenaar en hij was rijk.
 3. En hij probeerde te zien wie Jezus was, maar het lukte *hem* niet vanwege de menigte, omdat hij klein van persoon was.
 4. En na vooruitgelopen te zijn, klom hij in een wilde vijgenboom om Hem te zien, want Hij zou daar voorbij komen.
-5. En toen Jezus bij die plaats kwam, keek Hij op, zag hem en zei tegen hem: Zacheüs, haast u en kom naar beneden, want heden moet Ik in uw huis verblijven.
+5. En toen Jezus bij die plaats kwam, keek Hij op, zag hem en zei tegen hem: ZacheÃ¼s, haast u en kom naar beneden, want heden moet Ik in uw huis verblijven.
 6. En hij haastte zich en kwam naar beneden en ontving Hem met blijdschap.
 7. En allen die het zagen, morden onder elkaar en zeiden: Hij is bij een zondige man binnengegaan om *daar* Zijn intrek te nemen.
-8. Zacheüs nu ging staan en zei tegen de Heere: Zie, de helft van mijn goederen, Heere, geef ik aan de armen, en als ik van iemand iets heb afgeperst, geef ik dat vierdubbel terug.
+8. ZacheÃ¼s nu ging staan en zei tegen de Heere: Zie, de helft van mijn goederen, Heere, geef ik aan de armen, en als ik van iemand iets heb afgeperst, geef ik dat vierdubbel terug.
 9. Toen zei Jezus tegen hem: Heden is dit huis zaligheid ten deel gevallen, omdat ook deze een zoon van Abraham is.
 10. Want de Zoon des mensen is gekomen om te zoeken en zalig te maken wat verloren is.
 11. Terwijl zij nu dit alles hoorden, sprak Hij een gelijkenis uit, die Hij eraan toevoegde omdat Hij dicht bij Jeruzalem was en zij dachten dat het Koninkrijk van God onmiddellijk zou aanbreken.
@@ -27,7 +27,7 @@
 26. Want ik zeg u dat aan eenieder die heeft, gegeven zal worden. Maar van hem die niet heeft, zal ook afgenomen worden wat hij heeft.
 27. Maar deze vijanden van mij, die niet wilden dat ik koning over hen zou zijn, breng *ze* hier en sla ze *hier* voor mijn ogen dood.
 28. Nadat *Jezus* dit gezegd had, reisde Hij voor *hen* uit en ging naar Jeruzalem.
-29. En het gebeurde, toen Hij dicht bij Bethfagé en Bethanië gekomen was, bij de berg die de Olijfberg heette, dat Hij twee van Zijn discipelen uitzond.
+29. En het gebeurde, toen Hij dicht bij BethfagÃ© en BethaniÃ« gekomen was, bij de berg die de Olijfberg heette, dat Hij twee van Zijn discipelen uitzond.
 30. Hij zei: Ga het dorp in dat voor u ligt, en als u daar binnenkomt, zult u een veulen vinden dat vastgebonden is, waarop geen mens ooit heeft gezeten. Maak het los en breng het *hier.*
 31. En als iemand u vraagt: Waarom maakt u *dat* los, dan zult u zo tot hem spreken: Omdat de Heere het nodig heeft.
 32. En zij die uitgezonden waren, gingen erheen en vonden het zoals Hij hun gezegd had.
@@ -37,7 +37,7 @@
 36. Toen Hij nu *verder*ging, spreidden zij hun kleren onder *Hem* uit op de weg.
 37. Toen Hij reeds dicht bij de helling van de Olijfberg was gekomen, begon de hele menigte van de discipelen zich te verblijden en God met luide stem te loven om alle machtige daden die zij gezien hadden.
 38. En zij zeiden: Gezegend *is* de Koning, Die daar komt in de Naam van de Heere. Vrede in de hemel en heerlijkheid in de hoogste *hemelen*.
-39. En sommigen van de Farizeeën uit de menigte zeiden tegen Hem: Meester, bestraf Uw discipelen.
+39. En sommigen van de FarizeeÃ«n uit de menigte zeiden tegen Hem: Meester, bestraf Uw discipelen.
 40. En Hij antwoordde hun en zei: Ik zeg u dat de stenen zouden roepen, als dezen zouden zwijgen.
 41. En toen Hij dichtbij kwam en de stad zag, weende Hij over haar.
 42. Hij zei: Och, dat u ook nog op deze uw dag zou onderkennen wat tot uw vrede *dient*! Nu echter is het verborgen voor uw ogen.

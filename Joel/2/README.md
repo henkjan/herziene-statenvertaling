@@ -1,7 +1,7 @@
 #Joel 2
 1. Blaas de bazuin in Sion, sla alarm op Mijn heilige berg, laat alle inwoners van het land sidderen, want de dag van de HEERE komt, ja, is nabij! 
 2. *Het is* een dag van duisternis en donkerheid, een dag van wolken en donkere *wolken*. Zoals de dageraad zich over de bergen verspreidt, *verspreidt zich* een groot en machtig volk, zoals er niet geweest is van oude tijden af, en er hierna niet meer zal zijn, jarenlang, van generatie op generatie. 
-3. Erv篌r verteert een vuur, en erachter verzengt een vlam; erv篌r is het land als de hof van Eden, en erachter is het een woeste wildernis. Ook is er geen ontkomen aan. 
+3. Erv贸贸r verteert een vuur, en erachter verzengt een vlam; erv贸贸r is het land als de hof van Eden, en erachter is het een woeste wildernis. Ook is er geen ontkomen aan. 
 4. Als het uiterlijk van paarden is zijn uiterlijk, en als *ren*paarden, zo rennen zij voort. 
 5. Als het geluid van wagens springen zij over de toppen van de bergen, als het geluid van een vuurvlam die stoppels verteert, als een machtig volk opgesteld voor de strijd. 
 6. Bij die aanblik krimpen de volken ineen, alle gezichten verschieten van kleur. 
@@ -25,7 +25,7 @@
 24. De dorsvloeren zullen vol koren zijn, de perskuipen stromen over van nieuwe wijn en olie. 
 25. Ik zal u de jaren vergoeden die de veldsprinkhaan, de jonge sprinkhaan, de zwermsprinkhaan en de treksprinkhaan hebben opgegeten, Mijn grote leger, dat Ik op u had afgestuurd. 
 26. Dan zult u overvloedig en tot verzadiging eten, en de Naam van de HEERE, uw God, prijzen, Die wonderlijk met u heeft gehandeld. Mijn volk zal voor eeuwig niet beschaamd worden. 
-27. Dan zult u weten dat Ik te midden van Isra雔 ben, *dat* Ik, de HEERE, uw God ben, en niemand anders: Mijn volk zal voor eeuwig niet beschaamd worden!
+27. Dan zult u weten dat Ik te midden van Isra毛l ben, *dat* Ik, de HEERE, uw God ben, en niemand anders: Mijn volk zal voor eeuwig niet beschaamd worden!
 28. Daarna zal het geschieden dat Ik Mijn Geest zal uitstorten op alle vlees: uw zonen en uw dochters zullen profeteren, uw ouderen zullen dromen dromen, uw jongemannen zullen visioenen zien. 
 29. Ja, zelfs op de dienaren en op de dienaressen zal Ik in die dagen Mijn Geest uitstorten. 
 30. Ik zal wondertekenen geven aan de hemel en op de aarde: bloed en vuur en rookzuilen. 

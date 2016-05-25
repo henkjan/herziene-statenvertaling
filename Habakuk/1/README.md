@@ -4,7 +4,7 @@
 3. Waarom doet U mij onrecht zien en aanschouwt U de moeite? Ja, verwoesting en geweld zijn tegenover mij, er ontstaat onenigheid, ruzie verheft zich. 
 4. Daarom verliest de wet *zijn* kracht en komt het recht nooit meer tevoorschijn; want de goddeloze omsingelt de rechtvaardige, daarom komt het recht verdraaid tevoorschijn. 
 5. Zie *rond* onder de heidenvolken en aanschouw, verbijster *u*, sta verbijsterd, want Ik breng in uw dagen een werk tot stand dat u niet zult geloven wanneer het verteld wordt. 
-6. Want zie, Ik doe de Chaldeeën opstaan, dat grimmige en onstuimige volk, dat de breedten van de aarde doorkruist om woningen in bezit te nemen die niet van hem zijn. 
+6. Want zie, Ik doe de ChaldeeÃ«n opstaan, dat grimmige en onstuimige volk, dat de breedten van de aarde doorkruist om woningen in bezit te nemen die niet van hem zijn. 
 7. Schrikwekkend en ontzagwekkend is het. Zijn recht en zijn hoogheid gaan van hem uit. 
 8. Zijn paarden zijn sneller dan luipaarden, feller dan avondwolven. Zijn ruiters komen eraan in galop, zijn ruiters komen van ver aangevlogen als een arend die toeschiet om te verslinden. 
 9. Ieder van hen komt om geweld *te bedrijven*, hun gezichten oostwaarts gericht, en men verzamelt gevangenen als zand. 

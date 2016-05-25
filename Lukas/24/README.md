@@ -11,15 +11,15 @@
 10. En het waren Maria Magdalena, Johanna en Maria, *de moeder* van Jakobus, en de anderen die bij hen waren, die dit tegen de apostelen zeiden.
 11. En hun woorden leken hun kletspraat en zij geloofden hen niet.
 12. Maar Petrus stond op en snelde naar het graf en toen hij zich vooroverboog, zag hij alleen de linnen doeken liggen. En hij ging weg en verwonderde zich over wat er gebeurd was.
-13. En zie, twee van hen gingen op diezelfde dag naar een dorp dat zestig stadiën van Jeruzalem verwijderd was en waarvan de naam Emmaüs was.
+13. En zie, twee van hen gingen op diezelfde dag naar een dorp dat zestig stadiÃ«n van Jeruzalem verwijderd was en waarvan de naam EmmaÃ¼s was.
 14. En zij spraken met elkaar over al deze dingen die gebeurd waren.
 15. En het gebeurde, terwijl zij met elkaar spraken en van gedachten wisselden, dat Jezus Zelf bij *hen* kwam en met hen meeliep.
 16. Maar hun ogen werden *gesloten* gehouden, zodat zij Hem niet herkenden.
 17. En Hij zei tegen hen: Wat zijn dit voor gesprekken die u al lopend met elkaar voert en *waarom* ziet u er *zo* bedroefd uit?
-18. En de één, van wie de naam Kleopas was, antwoordde en zei tegen Hem: Bent U als enige een vreemdeling in Jeruzalem dat U niet weet welke dingen daar in deze dagen gebeurd zijn?
+18. En de Ã©Ã©n, van wie de naam Kleopas was, antwoordde en zei tegen Hem: Bent U als enige een vreemdeling in Jeruzalem dat U niet weet welke dingen daar in deze dagen gebeurd zijn?
 19. En Hij zei tegen hen: Welke *dan*? En zij zeiden tegen Hem: De dingen met betrekking tot Jezus de Nazarener, Die een Profeet was, machtig in werken en woorden voor God en heel het volk;
 20. en hoe onze overpriesters en leiders Hem overgeleverd hebben om Hem ter dood te veroordelen, en Hem gekruisigd hebben.
-21. En wij hoopten dat Hij het was Die Israël zou verlossen. Maar al met al is het vandaag de derde dag sinds deze dingen gebeurd zijn.
+21. En wij hoopten dat Hij het was Die IsraÃ«l zou verlossen. Maar al met al is het vandaag de derde dag sinds deze dingen gebeurd zijn.
 22. Maar ook hebben sommige vrouwen uit ons midden, die vroeg in de morgen bij het graf geweest zijn, ons versteld doen staan.
 23. En toen zij Zijn lichaam niet vonden, kwamen ze zeggen dat ze zelfs een verschijning van engelen gezien hadden, die zeiden dat Hij leeft.
 24. En sommigen van hen die bij ons waren, gingen naar het graf en troffen het ook zo aan als de vrouwen gezegd hadden, maar Hem zagen zij niet.
@@ -48,7 +48,7 @@
 47. En in Zijn Naam *moet* onder alle volken bekering en vergeving van zonden gepredikt worden, te beginnen bij Jeruzalem.
 48. En u bent van deze dingen getuigen.
 49. En zie, Ik zend de belofte van Mijn Vader op u; maar blijft u in de stad Jeruzalem, totdat u met kracht uit de hoogte bekleed zult worden.
-50. Hij leidde hen naar buiten tot bij Bethanië. En Hij hief Zijn handen op en zegende hen.
+50. Hij leidde hen naar buiten tot bij BethaniÃ«. En Hij hief Zijn handen op en zegende hen.
 51. En het geschiedde, terwijl Hij hen zegende, dat Hij Zich van hen verwijderde. En Hij werd opgenomen in de hemel.
 52. En zij aanbaden Hem en keerden terug naar Jeruzalem met grote blijdschap.
 53. En zij waren voortdurend in de tempel, terwijl ze God loofden en dankten. Amen.

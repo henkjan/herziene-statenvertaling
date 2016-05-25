@@ -11,7 +11,7 @@
 10. En hij zei: Gezegend bent u door de HEERE, mijn dochter! U hebt *met* deze laatste *blijk van* goedertierenheid van u de eerste nog overtroffen, doordat u geen jongemannen nagelopen bent, geen arme en geen rijke.
 11. En nu, mijn dochter, wees niet bevreesd. Alles wat u gezegd hebt, zal ik voor u doen, want ieder in de poort van mijn volk weet dat u een deugdelijke vrouw bent.
 12. Nu dan, het is waar dat ik een losser ben, maar er is nog een losser, nauwer verwant dan ik.
-13. Overnacht vannacht hier. Als het *morgen*ochtend gebeurt dat hij u lost, goed, laat hem lossen. Als hij echter niet geneigd is u te lossen, dan zal ík u lossen, *zo waar* de HEERE leeft. Ga nu *maar* liggen tot de morgen.
+13. Overnacht vannacht hier. Als het *morgen*ochtend gebeurt dat hij u lost, goed, laat hem lossen. Als hij echter niet geneigd is u te lossen, dan zal Ã­k u lossen, *zo waar* de HEERE leeft. Ga nu *maar* liggen tot de morgen.
 14. Zo lag zij tot de morgen aan zijn voeteneinde. En zij stond op, voordat men elkaar kon herkennen, want hij zei: Het mag niet bekend worden dat er een vrouw op de dorsvloer gekomen is.
 15. Verder zei hij: Geef de omslagdoek die u draagt, en houd hem *op*. En zij hield hem *op*. En hij mat zes *maten* gerst af en legde die op haar. Vervolgens ging hij de stad in.
 16. Toen kwam zij bij haar schoonmoeder, en die zei: Wie ben je, mijn dochter? En zij vertelde haar alles wat de man voor haar gedaan had.

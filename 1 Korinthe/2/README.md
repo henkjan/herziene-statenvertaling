@@ -5,7 +5,7 @@
 4. En mijn spreken en mijn prediking bestonden niet in overtuigende woorden van menselijke wijsheid, maar in het betonen van geest en kracht,
 5. opdat uw geloof niet zou bestaan in wijsheid van mensen, maar in kracht van God.
 6. En wij spreken wijsheid onder de *geestelijk* volwassenen, maar een wijsheid niet van deze wereld, en ook niet van de leiders van deze wereld, die tenietgedaan worden.
-7. Wij spreken echter de wijsheid van God, als een geheimenis; *een wijsheid* die verborgen was *en* die God vóór *alle* eeuwen voorbestemd heeft tot onze heerlijkheid;
+7. Wij spreken echter de wijsheid van God, als een geheimenis; *een wijsheid* die verborgen was *en* die God vÃ³Ã³r *alle* eeuwen voorbestemd heeft tot onze heerlijkheid;
 8. *een wijsheid* die niemand van de leiders van deze wereld gekend heeft. Immers, als zij die gekend hadden, zouden zij de Heere der heerlijkheid niet gekruisigd hebben.
 9. Maar *het is* zoals geschreven staat: Wat geen oog heeft gezien en geen oor heeft gehoord en in geen mensenhart is opgekomen, *dat is* wat God bereid heeft voor hen die Hem liefhebben.
 10. Aan ons echter heeft God *het* geopenbaard door Zijn Geest. De Geest immers onderzoekt alle dingen, zelfs de diepten van God.

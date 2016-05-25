@@ -7,7 +7,7 @@
 6. Want zo zegt de HEERE van de legermachten: Hak bomen om, werp tegen Jeruzalem een belegeringsdam op. Dit is de stad die gestraft zal worden, enkel onderdrukking is in haar midden! 
 7. Zoals een bron zijn water opwelt, zo welt zij haar slechtheid op. Geweld en verwoesting wordt in haar gehoord, voor Mijn aangezicht is voortdurend ziekte en plaag. 
 8. Laat u straffen, Jeruzalem, anders zal Mijn ziel zich van u losrukken, anders zal Ik een woestenij van u maken, een onbewoond land! 
-9. Zo zegt de HEERE van de legermachten: Zij zullen het overblijfsel van Israël als een wijnstok nauwkeurig nalopen. Laat uw hand terugkeren als een druivenplukker langs de ranken. 
+9. Zo zegt de HEERE van de legermachten: Zij zullen het overblijfsel van IsraÃ«l als een wijnstok nauwkeurig nalopen. Laat uw hand terugkeren als een druivenplukker langs de ranken. 
 10. Tegen wie zal ik spreken, en *wie* zal ik waarschuwen dat zij zullen luisteren? Zie, onbesneden is hun oor, zodat ze niet in staat zijn om er acht op te slaan, zie, het woord van de HEERE is hun tot smaad, ze vinden er geen vreugde in. 
 11. Daarom ben ik vol van de grimmigheid van de HEERE, ik ben het moe *haar* in te houden. Giet haar dan uit over de kleine kinderen op straat, over de kring van de jongemannen bij elkaar. Ja, ook de man zal met de vrouw gevangen worden genomen, de oudere met de hoogbejaarde. 
 12. Hun huizen zullen overgaan in *de handen* van anderen, samen met de akkers en de vrouwen, want Ik zal Mijn hand uitstrekken tegen de inwoners van dit land, spreekt de HEERE. 

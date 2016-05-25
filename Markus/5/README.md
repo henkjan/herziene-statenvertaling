@@ -20,7 +20,7 @@
 19. Jezus stond hem *dat* echter niet toe, maar zei tegen hem: Ga naar uw huis, naar de uwen, en bericht hun alles wat de Heere bij u gedaan heeft, en *hoe* Hij Zich over u ontfermd heeft.
 20. Toen ging hij weg en begon in het *gebied* van Dekapolis alles te verkondigen wat Jezus voor hem gedaan had, en ze verwonderden zich allen.
 21. En toen Jezus opnieuw in het schip naar de overkant gevaren was, verzamelde zich een grote menigte bij Hem; en Hij was bij de zee.
-22. En zie, er kwam een van de hoofden van de synagoge, wiens naam Jaïrus was; en toen hij Hem zag, wierp hij zich neer aan Zijn voeten
+22. En zie, er kwam een van de hoofden van de synagoge, wiens naam JaÃ¯rus was; en toen hij Hem zag, wierp hij zich neer aan Zijn voeten
 23. en smeekte Hem dringend: Mijn dochtertje ligt op sterven; *ik smeek U* dat U komt en de handen op haar legt, zodat zij behouden wordt en zal leven.
 24. En Hij ging met hem mee; en een grote menigte volgde Hem en zij drongen tegen Hem aan.
 25. En een zekere vrouw, die *al* twaalf jaar bloedvloeiingen had,

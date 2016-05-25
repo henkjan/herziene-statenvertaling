@@ -1,5 +1,5 @@
 #Jesaja 34
-1. Kom naar voren, heidenvolken, om te luisteren! Sla er acht op, natiën! Laat de aarde luisteren en al wat zij bevat, de wereld, en alles wat daarop uitspruit! 
+1. Kom naar voren, heidenvolken, om te luisteren! Sla er acht op, natiÃ«n! Laat de aarde luisteren en al wat zij bevat, de wereld, en alles wat daarop uitspruit! 
 2. Want de grote toorn van de HEERE *richt zich* tegen alle heidenvolken, *Zijn* grimmigheid tegen heel hun legermacht. Hij heeft hen met de ban geslagen, hen overgegeven ter slachting. 
 3. Hun gesneuvelden zullen weggeworpen worden, en van hun dode lichamen zal hun stank opstijgen. De bergen zullen wegsmelten door hun bloed. 
 4. Heel het *sterren*leger aan de hemel zal vergaan. De hemel zal opgerold worden als een boek*rol*, en heel zijn leger zal vallen, zoals bladeren vallen van een wijnstok, en zoals *vijgen* vallen van een vijgenboom. 
@@ -14,5 +14,5 @@
 13. In zijn paleizen zullen dorens opschieten, netels en distels in zijn vestingen. Het zal een woonplaats voor jakhalzen zijn, een rustplaats voor struisvogels. 
 14. Wilde woestijndieren zullen *daar* hyena's tegenkomen, de bok zal naar zijn metgezel roepen; ja, daar zal het nachtelijk ongedierte tot rust komen en voor zichzelf een rustplaats vinden. 
 15. Daar zal de pijlslang nestelen, eieren leggen, uitbroeden en haar jongen koesteren in haar schaduw; ja, daar verzamelen zich de wouwen, de ene bij de andere. 
-16. Zoek het na in het boek van de HEERE en lees: niet één van hen zal er ontbreken, zij zullen elkaar niet missen, want Mijn mond heeft het zelf geboden en Zijn Geest Zelf zal hen bijeenbrengen. 
+16. Zoek het na in het boek van de HEERE en lees: niet Ã©Ã©n van hen zal er ontbreken, zij zullen elkaar niet missen, want Mijn mond heeft het zelf geboden en Zijn Geest Zelf zal hen bijeenbrengen. 
 17. Want Hij, Hij heeft voor hen het lot geworpen, Zijn hand heeft hun het *land* toebedeeld met het meetlint. Tot in eeuwigheid zullen zij het bezitten, van generatie op generatie zullen zij er wonen.

@@ -10,6 +10,6 @@
 9. Nu, waarom slaat u zo'n luid alarm? Is er geen Koning onder u? Is uw Raadsman omgekomen, dat smart u aangegrepen heeft als van een barende *vrouw*? 
 10. Krimp ineen en schreeuw het uit, dochter van Sion, als een barende *vrouw*, want nu moet u de stad uit en in het *open* veld wonen. U zult tot in Babel komen. Daar zult u gered worden, daar zal de HEERE u verlossen uit de hand van uw vijanden. 
 11. Nu verzamelen zich vele heidenvolken tegen u. Zij zeggen: Laat haar ontheiligd worden, en laten onze ogen Sion aanschouwen. 
-12. Zíj echter kennen de gedachten van de HEERE niet. Zij begrijpen Zijn raadsbesluit niet: dat Hij hen bijeengebracht heeft als graanschoven op de dorsvloer. 
+12. ZÃ­j echter kennen de gedachten van de HEERE niet. Zij begrijpen Zijn raadsbesluit niet: dat Hij hen bijeengebracht heeft als graanschoven op de dorsvloer. 
 13. Sta op en dors, dochter van Sion, want Ik zal uw hoorn van ijzer maken en uw hoeven van brons. U zult vele volken verpletteren en Ik zal hun winstbejag met de ban slaan: *het is* voor de HEERE, hun vermogen is voor de Heere van heel de aarde. 
-14. Nu, groepeer u, dochter van de strijdbende! Zij gaan een belegering tegen ons opzetten. Zij zullen met een stok de rechter van Israël op de kaak slaan.
+14. Nu, groepeer u, dochter van de strijdbende! Zij gaan een belegering tegen ons opzetten. Zij zullen met een stok de rechter van IsraÃ«l op de kaak slaan.

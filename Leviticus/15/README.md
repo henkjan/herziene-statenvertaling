@@ -1,7 +1,7 @@
 #Leviticus 15
-1. De HEERE sprak tot Mozes en tot Aäron:
-2. Spreek tot de Israëlieten, en zeg tegen hen: Iedere man die uit zijn geslachtsdeel vloeit, is onrein vanwege zijn vloeien.
-3. Zijn onreinheid vanwege zijn vloeien is namelijk dit: zijn geslachtsdeel laat die vloeiing lopen, óf zijn geslachtsdeel is verstopt geraakt door het vloeien ervan. Dat is zijn onreinheid.
+1. De HEERE sprak tot Mozes en tot AÃ¤ron:
+2. Spreek tot de IsraÃ«lieten, en zeg tegen hen: Iedere man die uit zijn geslachtsdeel vloeit, is onrein vanwege zijn vloeien.
+3. Zijn onreinheid vanwege zijn vloeien is namelijk dit: zijn geslachtsdeel laat die vloeiing lopen, Ã³f zijn geslachtsdeel is verstopt geraakt door het vloeien ervan. Dat is zijn onreinheid.
 4. Elk bed waarop hij ligt die de vloeiing heeft, is onrein, en elk voorwerp waarop hij zit, is onrein.
 5. Verder moet ieder die zijn bed aanraakt, zijn kleren wassen en zich met water wassen; en hij is onrein tot de avond.
 6. Wie op het voorwerp zit waarop hij zat die de vloeiing heeft, moet zijn kleren wassen en zich met water wassen; en hij is onrein tot de avond.
@@ -29,6 +29,6 @@
 28. Maar als zij rein geworden is van haar vloeiing, moet zij voor zichzelf zeven dagen aftellen. Daarna is zij rein.
 29. Dan moet zij op de achtste dag voor zichzelf twee tortelduiven of twee jonge duiven nemen en ze bij de priester brengen, bij de ingang van de tent van ontmoeting.
 30. Vervolgens moet de priester de ene als zondoffer en de andere als brandoffer bereiden. De priester moet vanwege de vloeiing, die haar onrein maakte, verzoening voor haar doen voor het aangezicht van de HEERE.
-31. Zo moet u de Israëlieten ver van hun onreinheid houden, zodat zij niet sterven in hun onreinheid, als zij Mijn tabernakel, die in hun midden is, verontreinigen.
+31. Zo moet u de IsraÃ«lieten ver van hun onreinheid houden, zodat zij niet sterven in hun onreinheid, als zij Mijn tabernakel, die in hun midden is, verontreinigen.
 32. Dit is de wet voor hem die een vloeiing heeft; voor hem die een zaadlozing heeft, zodat hij daardoor onrein wordt;
 33. voor de ongestelde vrouw in haar afzondering; voor ieder die een vloeiing heeft, zowel een man als een vrouw; en voor de man die geslapen heeft met een vrouw die onrein is.

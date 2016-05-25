@@ -13,4 +13,4 @@
 12. Laat de berg Sion zich verblijden; laat de dochters van Juda zich verheugen omwille van Uw oordelen. 
 13. Ga rondom Sion en loop eromheen, tel haar torens, 
 14. richt uw hart op haar vestingwal, kijk nauwkeurig naar haar paleizen om het aan de volgende generatie te vertellen. 
-15. Want deze God is onze God, eeuwig en altijd; Híj zal ons leiden tot de dood toe.
+15. Want deze God is onze God, eeuwig en altijd; HÃ­j zal ons leiden tot de dood toe.

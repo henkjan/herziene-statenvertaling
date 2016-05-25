@@ -1,5 +1,5 @@
 #Mattheus 11
-1. En het gebeurde, toen Jezus geëindigd had Zijn twaalf discipelen opdrachten te geven, dat Hij vandaar vertrok om onderwijs te geven en te prediken in hun steden.
+1. En het gebeurde, toen Jezus geÃ«indigd had Zijn twaalf discipelen opdrachten te geven, dat Hij vandaar vertrok om onderwijs te geven en te prediken in hun steden.
 2. Toen Johannes in de gevangenis over de werken van Christus gehoord had, stuurde hij twee van zijn discipelen,
 3. en zei tegen Hem: Bent U het Die komen zou, of verwachten wij een ander?
 4. En Jezus antwoordde en zei tegen hen: Ga heen en bericht Johannes wat u hoort en ziet:
@@ -19,9 +19,9 @@
 18. Want Johannes is gekomen, hij at niet en hij dronk niet, en ze zeggen: Hij heeft een demon.
 19. De Zoon des mensen is gekomen, Die wel at en dronk, en ze zeggen: Ziedaar, een vraatzuchtig mens en een drinker, een vriend van tollenaars en zondaars. Maar de Wijsheid is gerechtvaardigd door Haar kinderen.
 20. Toen begon Hij de steden waarin de meeste krachten door Hem verricht waren, te verwijten dat zij zich niet bekeerd hadden:
-21. Wee u, Chorazin, wee u, Bethsaïda! Want als in Tyrus en Sidon de krachten gebeurd waren die in u plaatsgevonden hebben, dan zouden zij zich allang in zak en as bekeerd hebben.
+21. Wee u, Chorazin, wee u, BethsaÃ¯da! Want als in Tyrus en Sidon de krachten gebeurd waren die in u plaatsgevonden hebben, dan zouden zij zich allang in zak en as bekeerd hebben.
 22. Maar Ik zeg u: Het zal voor Tyrus en Sidon verdraaglijker zijn op de dag van het oordeel dan voor u.
-23. En u, Kapernaüm, die tot de hemel toe verhoogd bent, u zult tot de hel toe neergestoten worden. Want als in Sodom de krachten waren gebeurd die in u hebben plaatsgevonden, dan zou het tot op de huidige dag gebleven zijn.
+23. En u, KapernaÃ¼m, die tot de hemel toe verhoogd bent, u zult tot de hel toe neergestoten worden. Want als in Sodom de krachten waren gebeurd die in u hebben plaatsgevonden, dan zou het tot op de huidige dag gebleven zijn.
 24. Maar Ik zeg u dat het voor het land van Sodom verdraaglijker zal zijn op de dag van het oordeel dan voor u.
 25. In die tijd antwoordde Jezus en zei: Ik dank U, Vader, Heere van de hemel en van de aarde, dat U deze dingen voor wijzen en verstandigen verborgen hebt, en ze aan jonge kinderen hebt geopenbaard.
 26. Ja, Vader, want zo was *het* Uw welbehagen.

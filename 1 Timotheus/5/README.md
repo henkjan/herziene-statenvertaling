@@ -2,12 +2,12 @@
 1. Vaar niet uit tegen een oude man, maar spoor *hem* aan als een vader, jonge mannen als broers,
 2. oude *vrouwen* als moeders, jonge *vrouwen* als zusters, in alle reinheid.
 3. Houd weduwen die werkelijk weduwen zijn, in ere.
-4. Maar indien een weduwe kinderen of kleinkinderen heeft, laten dezen leren vóór alles thuis godsvrucht te beoefenen en aan hun voorgeslacht te vergelden *wat ze aan hen te danken hebben*. Want dat is goed en welgevallig in de ogen van God.
+4. Maar indien een weduwe kinderen of kleinkinderen heeft, laten dezen leren vÃ³Ã³r alles thuis godsvrucht te beoefenen en aan hun voorgeslacht te vergelden *wat ze aan hen te danken hebben*. Want dat is goed en welgevallig in de ogen van God.
 5. Zij nu die werkelijk weduwe is, en alleen is overgebleven, hoopt op God, en volhardt in smekingen en gebeden, nacht en dag.
 6. Maar zij die haar lusten volgt, is levend dood.
 7. Beveel ook dit, opdat zij onberispelijk zijn.
 8. Maar als iemand de zijnen en vooral *zijn* huisgenoten niet verzorgt, heeft hij het geloof verloochend en is hij erger dan een ongelovige.
-9. Een weduwe mag gekozen worden *als zij* niet jonger is dan zestig jaar en *de* vrouw van één man is geweest,
+9. Een weduwe mag gekozen worden *als zij* niet jonger is dan zestig jaar en *de* vrouw van Ã©Ã©n man is geweest,
 10. een goed getuigenis heeft wat betreft goede werken: of zij kinderen heeft opgevoed, of zij *vreemdelingen* heeft geherbergd, of zij de voeten van heiligen heeft gewassen, of zij verdrukten heeft bijgestaan, of zij zich toegelegd heeft op elk goed werk.
 11. Maar neem jonge weduwen niet aan. Want als zij door het volgen van hun lusten zich afkeren *van de dienst* van Christus, willen zij trouwen,
 12. en ontvangen zij het oordeel omdat zij *hun* eerste trouw tenietgedaan hebben.

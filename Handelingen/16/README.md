@@ -1,16 +1,16 @@
 #Handelingen 16
-1. En hij kwam in Derbe en in Lystre aan. En zie, er was daar een zekere discipel van wie de naam Timotheüs was, de zoon van een gelovige Joodse vrouw, maar van een Griekse vader;
+1. En hij kwam in Derbe en in Lystre aan. En zie, er was daar een zekere discipel van wie de naam TimotheÃ¼s was, de zoon van een gelovige Joodse vrouw, maar van een Griekse vader;
 2. van wie een *goed* getuigenis gegeven werd door de broeders in Lystre en Ikonium.
 3. Paulus wilde dat die met hem mee zou gaan; en hij nam *hem bij zich* en besneed hem omwille van de Joden die in die plaatsen woonden, want zij wisten allen dat zijn vader een Griek was.
 4. En toen zij de steden langs reisden, brachten zij hun de bepalingen over waarvan de apostelen en de ouderlingen in Jeruzalem besloten hadden dat men *die* in acht moest nemen.
 5. De gemeenten dan werden bevestigd in het geloof en namen dagelijks in aantal toe.
-6. En nadat zij door Frygië en het land van Galatië gereisd waren, werden zij door de Heilige Geest verhinderd het Woord in Asia te spreken.
-7. *En* bij Mysië gekomen, probeerden zij naar Bithynië te reizen, maar de Geest liet het hun niet toe.
-8. En nadat zij Mysië voorbijgereisd waren, kwamen zij in Troas.
-9. En Paulus kreeg 's nachts een visioen te zien: er stond een Macedonische man, die hem dringend vroeg: Kom over naar Macedonië en help ons!
-10. Toen hij nu dit visioen gezien had, probeerden wij meteen naar Macedonië te reizen, omdat wij *eruit* opmaakten dat de Heere ons geroepen had aan hen het Evangelie te verkondigen.
+6. En nadat zij door FrygiÃ« en het land van GalatiÃ« gereisd waren, werden zij door de Heilige Geest verhinderd het Woord in Asia te spreken.
+7. *En* bij MysiÃ« gekomen, probeerden zij naar BithyniÃ« te reizen, maar de Geest liet het hun niet toe.
+8. En nadat zij MysiÃ« voorbijgereisd waren, kwamen zij in Troas.
+9. En Paulus kreeg 's nachts een visioen te zien: er stond een Macedonische man, die hem dringend vroeg: Kom over naar MacedoniÃ« en help ons!
+10. Toen hij nu dit visioen gezien had, probeerden wij meteen naar MacedoniÃ« te reizen, omdat wij *eruit* opmaakten dat de Heere ons geroepen had aan hen het Evangelie te verkondigen.
 11. Wij voeren dan van Troas weg en koersten recht op Samothrace aan en de volgende *dag* op Neapolis.
-12. En vandaar *gingen wij* naar Filippi, de eerste stad van dit deel van Macedonië, een kolonie. En wij verbleven een aantal dagen in die stad.
+12. En vandaar *gingen wij* naar Filippi, de eerste stad van dit deel van MacedoniÃ«, een kolonie. En wij verbleven een aantal dagen in die stad.
 13. En op de dag van de sabbat gingen wij de stad uit, de rivier langs, waar het gebed gewoonlijk plaatsvond; en nadat wij *daar* waren gaan zitten, spraken wij tot de vrouwen die er samengekomen waren.
 14. En een zekere vrouw, van wie de naam Lydia was, een purperverkoopster uit de stad Thyatira, die God diende, luisterde naar *ons*. En de Heere opende haar hart, zodat zij acht gaf op wat door Paulus gesproken werd.
 15. En toen zij gedoopt was, en haar huis*genoten*, drong zij er bij *ons* op aan: Als u van oordeel bent dat ik trouw ben aan de Heere, kom *dan* in mijn huis en blijf er. En zij drong *er* sterk bij ons *op* aan.
@@ -20,7 +20,7 @@
 19. Toen haar meesters zagen dat hun hoop op inkomsten verdwenen was, grepen zij Paulus en Silas en sleurden hen mee naar de markt, voor de *stads*bestuurders.
 20. En nadat zij hen naar de magistraten gebracht hadden, zeiden zij: Deze mensen verstoren de orde in onze stad. Het zijn namelijk Joden,
 21. en zij verkondigen gewoonten die wij niet mogen aannemen en ook niet mogen naleven, omdat wij Romeinen zijn.
-22. En de menigte kwam als één man tegen hen in verzet. En de magistraten rukten hun de kleren af *en* gaven bevel hen met stokken te slaan.
+22. En de menigte kwam als Ã©Ã©n man tegen hen in verzet. En de magistraten rukten hun de kleren af *en* gaven bevel hen met stokken te slaan.
 23. En nadat zij hun veel slagen toegediend hadden, wierpen zij hen in de gevangenis en geboden de cipier hen zorgvuldig te bewaken.
 24. En toen hij dat bevel gekregen had, wierp hij hen in de binnenste kerker en zette hij hun voeten vast in het blok.
 25. En omstreeks middernacht baden Paulus en Silas en zongen lofzangen voor God. En de gevangenen luisterden naar hen.

@@ -1,6 +1,6 @@
 #Jeremia 49
-1. Over de Ammonieten. Zo zegt de HEERE: Heeft IsraÎl geen kinderen of heeft het geen erfgenaam? Waarom is Malcam *dan* erfgenaam van Gad en woont zijn volk in diens steden?
-2. Daarom, zie, er komen dagen, spreekt de HEERE, dat Ik tegen Rabba van de Ammonieten krijgsgeschreeuw zal doen horen. Het zal tot een woeste ruÔne worden, de bijbehorende *plaatsen* zullen met vuur aangestoken worden. Dan zal IsraÎl in bezit nemen hen die het in bezit genomen hadden, zegt de HEERE. 
+1. Over de Ammonieten. Zo zegt de HEERE: Heeft Isra√´l geen kinderen of heeft het geen erfgenaam? Waarom is Malcam *dan* erfgenaam van Gad en woont zijn volk in diens steden?
+2. Daarom, zie, er komen dagen, spreekt de HEERE, dat Ik tegen Rabba van de Ammonieten krijgsgeschreeuw zal doen horen. Het zal tot een woeste ru√Øne worden, de bijbehorende *plaatsen* zullen met vuur aangestoken worden. Dan zal Isra√´l in bezit nemen hen die het in bezit genomen hadden, zegt de HEERE. 
 3. Weeklaag, Hesbon, want Ai is verwoest, schreeuw het uit, dochters van Rabba! Omgord u met rouwgewaden, bedrijf rouw, loop rond bij de omheiningen, want Malcam zal in ballingschap gaan, zijn priesters en zijn vorsten samen. 
 4. Wat beroemt u zich op de dalen? Weggevloeid is uw dal, afvallige dochter, die vertrouwt op haar schatten *en zegt*: Wie zou er tegen mij opkomen? 
 5. Zie, Ik ga angst over u laten komen, spreekt de Heere, de HEERE van de legermachten, overal om u heen. U zult verdreven worden, ieder voor zich, en niemand is er die bijeenbrengt wie weggevlucht zijn. 
@@ -9,7 +9,7 @@
 8. Vlucht, keer u om, verblijf in diepgelegen *plaatsen*, inwoners van Dedan! Want Ik heb de ondergang van Ezau over hem gebracht, de tijd *dat* Ik hem straf. 
 9. Als er druivenplukkers bij u komen, laten zij *dan* geen nalezing over? Als er dieven in de nacht *komen*, zouden zij *dan geen* verderf aanrichten tot zij genoeg hebben? 
 10. Ik echter, Ik zal Ezau ontbloten, Ik zal zijn verborgen plaatsen blootleggen, zodat hij zich niet kan verstoppen. Zijn nageslacht wordt verdelgd, *evenals* zijn broers en zijn buren - en hij is er niet *meer.* 
-11. Laat uw wezen achter, Õk zal hen in het leven behouden, en laten uw weduwen op Mij vertrouwen.
+11. Laat uw wezen achter, √çk zal hen in het leven behouden, en laten uw weduwen op Mij vertrouwen.
 12. Want zo zegt de HEERE: Zie, zij die niet verdienden om de beker te moeten drinken, moeten *hem* beslist drinken. Zou u *dan* in enig opzicht voor onschuldig gehouden worden? U zult niet voor onschuldig gehouden worden, maar u moet *hem* beslist drinken!
 13. Want Ik heb bij Mijzelf gezworen, spreekt de HEERE, dat Bozra zal worden tot een verschrikking, tot smaad, tot een verwoeste *plaats* en tot een vloek. Al zijn steden zullen tot eeuwige puinhopen worden. 
 14. Ik heb een bericht gehoord van de HEERE, een gezant is uitgezonden onder de heidenvolken: Verzamel u, kom ertegen *op*, sta op voor de strijd! 
@@ -22,7 +22,7 @@
 21. Van het geluid van hun val beeft de aarde, het geschreeuw - bij de Schelfzee wordt het geluid daarvan gehoord.
 22. Zie, als een arend stijgt hij op, komt hij aanzweven, spreidt hij zijn vleugels uit over Bozra. Het hart van de helden van Edom zal op die dag zijn als het hart van een vrouw in *barens*nood.
 23. Over Damascus. Hamath en Arpad staan beschaamd. Omdat zij een slecht bericht hebben gehoord, smelten zij weg. Bij de zee is bezorgdheid, men kan niet tot rust komen. 
-24. Damascus heeft de moed verloren, het keert zich om om te vluchten, siddering heeft het aangegrepen, benauwdheid en weeÎn hebben het aangegrepen als een barende *vrouw*. 
+24. Damascus heeft de moed verloren, het keert zich om om te vluchten, siddering heeft het aangegrepen, benauwdheid en wee√´n hebben het aangegrepen als een barende *vrouw*. 
 25. Hoe is de stad van de roem verlaten, de stad van mijn vreugde!
 26. Daarom zullen haar jongemannen vallen op haar pleinen en alle strijdbare mannen zullen op die dag verdelgd worden, spreekt de HEERE van de legermachten. 
 27. Ik zal een vuur aansteken binnen de muren van Damascus; dat zal de paleizen van Benhadad verteren.

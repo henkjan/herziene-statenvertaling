@@ -21,8 +21,8 @@
 20. De wijsheid dus, waar komt zij vandaan, en waar is de plaats van het inzicht? 
 21. Zij is bedekt voor de ogen van alle levenden, en voor de vogels in de lucht is zij verborgen. 
 22. Het verderf en de dood zeggen: Met onze oren hebben wij *slechts* een gerucht over haar gehoord. 
-23. God begrijpt haar weg, en Híj kent haar plaats. 
-24. Want Híj ziet tot aan de einden der aarde, Hij ziet onder heel de hemel, 
+23. God begrijpt haar weg, en HÃ­j kent haar plaats. 
+24. Want HÃ­j ziet tot aan de einden der aarde, Hij ziet onder heel de hemel, 
 25. terwijl Hij de kracht van de wind bepaalt, en de wateren meet met een maat. 
 26. Toen Hij een verordening maakte voor de regen, en een weg voor het weerlicht van de donder - 
 27. toen zag Hij haar, en peilde haar. Hij stelde haar vast en ook onderzocht Hij haar. 

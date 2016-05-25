@@ -8,7 +8,7 @@
 7. Aan de vermoeide gaf je geen water te drinken, en je hebt de hongerige brood onthouden. 
 8. Maar was er een man met macht, voor hem was het land, en een aanzienlijk persoon woonde er. 
 9. Weduwen heb je met lege *handen* weggestuurd, en de armen van de wezen werden verbrijzeld. 
-10. D··rom zijn er strikken rondom je, en word je plotseling door schrik overmand. 
+10. D√°√°rom zijn er strikken rondom je, en word je plotseling door schrik overmand. 
 11. Of zie je de duisternis niet, en de vloed van water die je bedekt? 
 12. Is God niet *in* de hoge hemel? Zie toch de hoogste sterren, hoe verheven ze zijn. 
 13. Maar jij zegt: Wat weet God ervan? Zou Hij door de donkere *wolken* heen oordelen? 
@@ -28,4 +28,4 @@
 27. Je zult vurig tot Hem bidden, en Hij zal je verhoren; en je zult je geloften nakomen. 
 28. Als je een zaak besluit, dan komt die voor je tot stand; en op je wegen zal het licht schijnen. 
 29. Als ze *iemand* vernederen, en je zegt: Omhoog! dan zal *God* degene die de ogen heeft neergeslagen, verlossen. 
-30. Hij zal *zelfs* degene bevrijden die niet onschuldig is; die wordt bevrijd door de reinheid van jÛuw handen.
+30. Hij zal *zelfs* degene bevrijden die niet onschuldig is; die wordt bevrijd door de reinheid van j√≥uw handen.

@@ -3,7 +3,7 @@
 2. Toen zei ik: Waar gaat U heen? Hij zei tegen mij: *Ik ga* Jeruzalem opmeten om te zien hoe groot zijn breedte en hoe groot zijn lengte zal zijn.
 3. En zie, de Engel Die met mij sprak, trad naar voren en een andere engel trad Hem tegemoet.
 4. En Hij zei tegen hem: Loop snel, spreek tegen die jongeman en zeg: Jeruzalem zal niet ommuurd blijven, vanwege de veelheid aan mensen en dieren in haar midden. 
-5. En Õk zal voor haar zijn, spreekt de HEERE, een muur van vuur rondom, en Ik zal in haar midden tot heerlijkheid zijn. 
+5. En √çk zal voor haar zijn, spreekt de HEERE, een muur van vuur rondom, en Ik zal in haar midden tot heerlijkheid zijn. 
 6. O, o, vlucht dan uit het land van het noorden! spreekt de HEERE, want Ik heb u verspreid over de vier wind*streken* van de hemel, spreekt de HEERE. 
 7. O, Sion! *Zie* te ontkomen, u die woont *bij* de dochter van Babel! 
 8. Want zo zegt de HEERE van de legermachten: Nadat *Hij* heerlijkheid *heeft beloofd*, heeft Hij mij gezonden tot die heidenvolken die u beroven, want wie u aanraakt, raakt Zijn oogappel aan. 

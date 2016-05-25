@@ -6,7 +6,7 @@
 5. Maar in de meesten van hen heeft God geen welgevallen gehad, want zij zijn neergeveld in de woestijn.
 6. En deze dingen zijn gebeurd als voorbeelden voor ons, opdat wij niet zouden verlangen naar kwade dingen, zoals *ook* zij verlangd hebben.
 7. En word geen afgodendienaars zoals sommigen van hen, zoals geschreven staat: Het volk ging zitten om te eten en te drinken en zij stonden op om te feesten.
-8. En laten wij geen hoererij bedrijven, zoals sommigen van hen hoererij bedreven hebben, en op één dag vielen er drieëntwintigduizend.
+8. En laten wij geen hoererij bedrijven, zoals sommigen van hen hoererij bedreven hebben, en op Ã©Ã©n dag vielen er drieÃ«ntwintigduizend.
 9. En laten wij Christus niet verzoeken, zoals ook sommigen van hen *Hem* verzocht hebben en door de slangen omgekomen zijn.
 10. En mor niet, zoals ook sommigen van hen gemord hebben en omgekomen zijn door de verderver.
 11. Al deze dingen nu zijn hun overkomen als voorbeelden *voor ons*, en ze zijn beschreven tot waarschuwing voor ons, over wie het einde van de eeuwen gekomen is.
@@ -15,11 +15,11 @@
 14. Daarom, mijn geliefden, vlucht weg van de afgodendienst.
 15. Ik spreek *toch tot u* als tot verstandige *mensen*, beoordeelt u *dan* zelf wat ik zeg.
 16. De drinkbeker der dankzegging, die wij *met dankzegging* zegenen, is die niet *de* gemeenschap met het bloed van Christus? Het brood dat wij breken, is dat niet *de* gemeenschap met het lichaam van Christus?
-17. Omdat het brood één is, zijn wij, die velen zijn, één lichaam, want wij allen hebben deel aan het ene brood.
-18. Let op het Israël naar het vlees: hebben niet zij die de offers eten, gemeenschap met het altaar?
+17. Omdat het brood Ã©Ã©n is, zijn wij, die velen zijn, Ã©Ã©n lichaam, want wij allen hebben deel aan het ene brood.
+18. Let op het IsraÃ«l naar het vlees: hebben niet zij die de offers eten, gemeenschap met het altaar?
 19. Wat zeg ik *hiermee* dan? Dat een afgod iets is, of dat een afgodenoffer iets is?
 20. Nee, *ik zeg dit* omdat wat de heidenen offeren, zij *dat* aan demonen offeren en niet aan God, en ik wil niet dat u met de demonen gemeenschap hebt.
-21. U kunt niet de drinkbeker van de Heere drinken én de drinkbeker van de demonen. U kunt niet deelhebben aan de tafel van de Heere én aan de tafel van de demonen.
+21. U kunt niet de drinkbeker van de Heere drinken Ã©n de drinkbeker van de demonen. U kunt niet deelhebben aan de tafel van de Heere Ã©n aan de tafel van de demonen.
 22. Of willen wij de Heere tot jaloersheid verwekken? Wij zijn toch niet sterker dan Hij?
 23. Alle dingen zijn mij geoorloofd, maar niet alle dingen zijn nuttig. Alle dingen zijn mij geoorloofd, maar niet alle dingen bouwen op.
 24. Laat niemand zijn eigen *voordeel* zoeken, maar ieder dat van de ander.

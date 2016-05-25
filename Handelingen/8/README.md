@@ -25,7 +25,7 @@
 24. Maar Simon antwoordde en zei *tegen hen*: Bidt u voor mij tot de Heere, opdat mij niets overkomt van wat u gezegd hebt.
 25. Toen zij dan getuigd hadden van het Woord van de Heere en het gesproken hadden, keerden zij terug naar Jeruzalem en verkondigden het Evangelie *in* veel dorpen van de Samaritanen.
 26. En een engel van de Heere sprak tot Filippus en zei: Sta op en ga naar het zuiden, de weg op die van Jeruzalem afdaalt naar Gaza, die eenzaam is.
-27. En hij stond op en vertrok; en zie, een Ethiopiër, een kamerheer *en* een machtig heer van de kandakè, de koningin van de Ethiopiërs, die heel haar schat*kist* beheerde en gekomen was om in Jeruzalem te aanbidden,
+27. En hij stond op en vertrok; en zie, een EthiopiÃ«r, een kamerheer *en* een machtig heer van de kandakÃ¨, de koningin van de EthiopiÃ«rs, die heel haar schat*kist* beheerde en gekomen was om in Jeruzalem te aanbidden,
 28. keerde terug, en hij zat op zijn wagen en las de profeet Jesaja.
 29. En de Geest zei tegen Filippus: Ga ernaartoe en voeg u bij deze wagen.
 30. En Filippus snelde ernaartoe, hoorde hem de profeet Jesaja lezen en zei: Begrijpt u ook wat u leest?

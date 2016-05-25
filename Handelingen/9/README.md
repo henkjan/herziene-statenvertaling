@@ -13,7 +13,7 @@
 12. en hij heeft in een visioen gezien dat een man van wie de naam Ananias was, binnenkwam en hem de hand oplegde, opdat hij weer ziende zou worden.
 13. Ananias antwoordde echter: Heere, ik heb van velen over deze man gehoord hoeveel kwaad hij Uw heiligen in Jeruzalem gedaan heeft;
 14. en hij heeft hier volmacht van de overpriesters om allen gevangen te nemen die Uw Naam aanroepen.
-15. Maar de Heere zei tegen hem: Ga, want deze is voor Mij een uitverkoren instrument om Mijn Naam te brengen naar de heidenen en de koningen en de Israëlieten.
+15. Maar de Heere zei tegen hem: Ga, want deze is voor Mij een uitverkoren instrument om Mijn Naam te brengen naar de heidenen en de koningen en de IsraÃ«lieten.
 16. Want Ik zal hem laten zien hoeveel hij moet lijden voor Mijn Naam.
 17. En Ananias ging heen en ging het huis binnen; en na hem de handen opgelegd te hebben, zei hij: Saul, broeder, de Heere heeft mij gestuurd, *namelijk* Jezus, Die u verschenen is op de weg waarlangs u gekomen bent, opdat u weer ziende zou worden en met de Heilige Geest vervuld zou worden.
 18. En meteen vielen hem als het ware schellen van de ogen, en onmiddellijk werd hij weer ziende, en hij stond op en werd gedoopt.

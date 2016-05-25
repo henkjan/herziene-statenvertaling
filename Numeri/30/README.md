@@ -1,5 +1,5 @@
 #Numeri 30
-1. Mozes sprak tot de hoofden van de stammen van de Israëlieten: Dit is de zaak die de HEERE geboden heeft:
+1. Mozes sprak tot de hoofden van de stammen van de IsraÃ«lieten: Dit is de zaak die de HEERE geboden heeft:
 2. Wanneer een man de HEERE een gelofte doet of een eed zweert om een verplichting op zich te nemen, dan mag hij zijn woord niet schenden; overeenkomstig alles wat uit zijn mond komt, moet hij doen.
 3. Maar wanneer een vrouw de HEERE een gelofte doet, *en* in haar jeugd, terwijl ze *nog* in het huis van haar vader *woont*, een verplichting *op zich* neemt,
 4. en haar vader van haar gelofte hoort en van haar verplichting, die zij op zich genomen heeft, en haar vader tegen haar zwijgt, dan zijn al haar geloften en elke verplichting die zij op zich genomen heeft, van kracht.

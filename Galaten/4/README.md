@@ -22,8 +22,8 @@
 21. Zeg mij, u die onder de wet wilt zijn, luistert u niet naar de wet?
 22. Want er staat geschreven dat Abraham twee zonen had, een van de slavin, en een van de vrije.
 23. Maar hij die van de slavin was, is naar het vlees geboren, hij echter die van de vrije was, door de belofte.
-24. Deze dingen hebben een zinnebeeldige betekenis; want deze *vrouwen* zijn de twee verbonden: het ene, *dat* van de berg Sinaï, dat *kinderen* voortbrengt voor de slavernij, dat is Hagar.
-25. Want deze Hagar is de berg Sinaï in Arabië, en komt overeen met het huidige Jeruzalem, *dat* met haar kinderen in slavernij is.
+24. Deze dingen hebben een zinnebeeldige betekenis; want deze *vrouwen* zijn de twee verbonden: het ene, *dat* van de berg SinaÃ¯, dat *kinderen* voortbrengt voor de slavernij, dat is Hagar.
+25. Want deze Hagar is de berg SinaÃ¯ in ArabiÃ«, en komt overeen met het huidige Jeruzalem, *dat* met haar kinderen in slavernij is.
 26. Maar het Jeruzalem dat boven is, is vrij, en dat is de moeder van ons allen.
 27. Want er staat geschreven: Wees vrolijk, onvruchtbare, die niet baart, barst los *in gejuich* en roep, u die geen barensnood kent, want de kinderen van de eenzame zijn veel talrijker dan *die* van haar die de man heeft.
 28. Wij nu, broeders, zijn kinderen van de belofte, net zoals Izak.

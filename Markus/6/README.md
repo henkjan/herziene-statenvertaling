@@ -2,7 +2,7 @@
 1. En Hij ging vandaar weg en kwam in Zijn vaderstad en Zijn discipelen volgden Hem.
 2. En toen het sabbat geworden was, begon Hij in de synagoge te onderwijzen; en velen die luisterden, stonden *er* versteld *van* en zeiden: Waar heeft Deze die dingen vandaan en wat is dit voor wijsheid die Hem gegeven is, dat ook zulke krachten door Zijn handen gebeuren?
 3. Is Dit niet de timmerman, de Zoon van Maria en de Broer van Jakobus en Joses en van Judas en Simon? En zijn Zijn zusters niet hier bij ons? En zij namen aanstoot aan Hem.
-4. En Jezus zei tegen hen: Een profeet is niet ongeëerd, behalve in zijn vaderstad en bij *zijn* familie en in zijn huis.
+4. En Jezus zei tegen hen: Een profeet is niet ongeÃ«erd, behalve in zijn vaderstad en bij *zijn* familie en in zijn huis.
 5. En Hij kon daar geen kracht doen, maar Hij legde slechts enkele zieken de handen op en genas hen.
 6. En Hij verwonderde Zich over hun ongeloof. En Hij trok de dorpen in de omgeving rond en gaf *er* onderwijs.
 7. En Hij riep de twaalf bij Zich en begon hen twee aan twee uit te zenden en gaf hun macht over de onreine geesten.
@@ -31,7 +31,7 @@
 30. En de apostelen kwamen *weer* samen bij Jezus en berichtten Hem alles wat zij gedaan en wat zij onderwezen hadden.
 31. En Hij zei tegen hen: Komt u zelf *mee* naar een eenzame plaats, alleen, en rust wat uit; want er waren er velen die kwamen en die gingen, en zij hadden zelfs geen gelegenheid om te eten.
 32. En zij vertrokken in een schip naar een eenzame plaats, alleen.
-33. En de menigten zagen hen weggaan, en velen herkenden Hem en gingen uit alle steden gezamenlijk te voet daarnaartoe; en zij kwamen er vóór hen aan en gingen samen naar Hem toe.
+33. En de menigten zagen hen weggaan, en velen herkenden Hem en gingen uit alle steden gezamenlijk te voet daarnaartoe; en zij kwamen er vÃ³Ã³r hen aan en gingen samen naar Hem toe.
 34. En toen Jezus uit *het schip* ging, zag Hij een grote menigte en was innerlijk met ontferming bewogen over hen, want zij waren als schapen die geen herder hebben; en Hij begon hun veel dingen te onderwijzen.
 35. En toen het al laat geworden was, kwamen Zijn discipelen naar Hem toe en zeiden: Deze plaats is eenzaam en het is al laat;
 36. stuur hen weg, opdat zij naar de omliggende gehuchten en dorpen kunnen gaan en broden voor zichzelf kopen, want zij hebben niets te eten.
@@ -43,7 +43,7 @@
 42. En zij aten allen en werden verzadigd.
 43. En zij raapten twaalf manden vol met stukken *brood* op, en *wat over was* van de vissen.
 44. En die de broden gegeten hadden, waren ongeveer vijfduizend mannen.
-45. En meteen dwong Hij Zijn discipelen in het schip te gaan en vooruit te varen naar de overkant, naar Bethsaïda, terwijl Hijzelf de menigte weg zou sturen.
+45. En meteen dwong Hij Zijn discipelen in het schip te gaan en vooruit te varen naar de overkant, naar BethsaÃ¯da, terwijl Hijzelf de menigte weg zou sturen.
 46. En toen Hij afscheid van hen genomen had, ging Hij naar de berg om te bidden.
 47. En toen het avond was geworden, was het schip midden op de zee en Hijzelf was alleen op het land.
 48. En Hij zag dat zij veel moeite moesten doen om *het schip* vooruit te krijgen, want zij hadden de wind tegen; en omstreeks de vierde nachtwake kwam Hij, lopend op de zee, naar hen toe en wilde hen voorbijgaan.

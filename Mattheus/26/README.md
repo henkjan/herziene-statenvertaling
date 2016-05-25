@@ -1,10 +1,10 @@
 #Mattheus 26
-1. En toen Jezus al deze woorden geëindigd had, gebeurde het dat Hij tegen Zijn discipelen zei:
+1. En toen Jezus al deze woorden geÃ«indigd had, gebeurde het dat Hij tegen Zijn discipelen zei:
 2. U weet dat over twee dagen het Pascha is, en dan zal de Zoon des mensen overgeleverd worden om gekruisigd te worden.
 3. Toen kwamen de overpriesters en de schriftgeleerden en de oudsten van het volk bijeen in het paleis van de hogepriester, die Kajafas heette;
 4. en zij overlegden met elkaar om Jezus met list te grijpen en te doden,
 5. maar zij zeiden: Niet tijdens het feest, opdat er geen opschudding onder het volk komt.
-6. Toen Jezus in Bethanië was, in het huis van Simon, de melaatse,
+6. Toen Jezus in BethaniÃ« was, in het huis van Simon, de melaatse,
 7. kwam er een vrouw naar Hem toe die een albasten fles met zeer kostbare zalf had; en zij goot die uit op Zijn hoofd terwijl Hij aanlag.
 8. Toen Zijn discipelen dat zagen, waren zij verontwaardigd en zeiden: Waartoe deze verkwisting?
 9. Deze zalf had immers duur verkocht kunnen worden en *de opbrengst* aan de armen gegeven.
@@ -34,11 +34,11 @@
 33. Maar Petrus antwoordde Hem en zei: Al zouden zij ook allen aanstoot aan U nemen, ik zal nooit aanstoot *aan U* nemen.
 34. Jezus zei tegen hem: Voorwaar, Ik zeg u dat u in deze nacht, voordat de haan gekraaid zal hebben, Mij driemaal zult verloochenen.
 35. Petrus zei tegen Hem: Al moest ik ook met U sterven, ik zal U beslist niet verloochenen! Hetzelfde zeiden ook al de discipelen.
-36. Toen ging Jezus met hen naar een plaats die Gethsémané heette, en zei tegen de discipelen: Ga hier zitten, terwijl Ik daar ga bidden.
-37. En Hij nam Petrus en de twee zonen van Zebedeüs met Zich mee en begon bedroefd en zeer angstig te worden.
+36. Toen ging Jezus met hen naar een plaats die GethsÃ©manÃ© heette, en zei tegen de discipelen: Ga hier zitten, terwijl Ik daar ga bidden.
+37. En Hij nam Petrus en de twee zonen van ZebedeÃ¼s met Zich mee en begon bedroefd en zeer angstig te worden.
 38. Toen zei Hij tegen hen: Mijn ziel is zeer bedroefd, tot de dood toe; blijf hier en waak met Mij.
 39. En nadat Hij iets verder gegaan was, wierp Hij Zich met het gezicht *ter aarde* en bad: Mijn Vader, als het mogelijk is, laat deze drinkbeker aan Mij voorbijgaan. Maar niet zoals Ik wil, maar zoals U *wilt*.
-40. En Hij kwam bij de discipelen en trof hen slapend aan en Hij zei tegen Petrus: Kon u *dan* niet één uur met Mij waken?
+40. En Hij kwam bij de discipelen en trof hen slapend aan en Hij zei tegen Petrus: Kon u *dan* niet Ã©Ã©n uur met Mij waken?
 41. Waak en bid, opdat u niet in verzoeking komt; de geest is wel gewillig, maar het vlees is zwak.
 42. Opnieuw, voor de tweede keer, ging Hij heen en bad: Mijn Vader, als deze drinkbeker aan Mij niet voorbij kan gaan zonder dat Ik hem drink, laat Uw wil *dan* geschieden.
 43. En toen Hij *bij hen* kwam, trof Hij hen opnieuw slapend aan, want hun ogen waren zwaar geworden.
@@ -67,7 +67,7 @@
 66. Wat denkt u? En zij antwoordden en zeiden: Hij is schuldig *en verdient* de dood.
 67. Toen spuwden zij in Zijn gezicht en sloegen Hem met vuisten.
 68. En anderen sloegen Hem in het gezicht en zeiden: Profeteer ons, Christus: wie is het die U geslagen heeft?
-69. Petrus zat buiten op de binnenplaats; een dienstmeisje kwam naar hem toe en zei: Ook u was bij Jezus, de Galileeër.
+69. Petrus zat buiten op de binnenplaats; een dienstmeisje kwam naar hem toe en zei: Ook u was bij Jezus, de GalileeÃ«r.
 70. Maar hij ontkende het in het bijzijn van allen en zei: Ik weet niet wat u zegt.
 71. Toen hij naar buiten ging, naar de poort, zag een ander *dienstmeisje* hem, en die zei tegen hen die daar *waren*: Hij was ook bij Jezus de Nazarener.
 72. En hij ontkende het opnieuw, met een eed, *en zei*: Ik ken de Mens niet.

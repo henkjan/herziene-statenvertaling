@@ -1,5 +1,5 @@
 #Jeremia 4
-1. Als u zich bekeert, Israël, spreekt de HEERE, bekeer u *dan* tot Mij, en als u uw afschuwelijke *afgoden* wegdoet van voor Mijn aangezicht, en niet *meer* rondzwerft, 
+1. Als u zich bekeert, IsraÃ«l, spreekt de HEERE, bekeer u *dan* tot Mij, en als u uw afschuwelijke *afgoden* wegdoet van voor Mijn aangezicht, en niet *meer* rondzwerft, 
 2. en als u zweert: *Zo waar* de HEERE leeft, in waarheid, in recht en in gerechtigheid, dan zullen de heidenvolken zich in Hem zegenen en zich in Hem beroemen. 
 3. Want zo zegt de HEERE tegen de mannen van Juda en tegen Jeruzalem: Ploeg voor uzelf ongeploegd land om! Zaai niet tussen de doornen. 
 4. Besnijd u voor de HEERE en doe de voorhuid van uw hart weg, mannen van Juda en inwoners van Jeruzalem; anders zal Mijn grimmigheid uitslaan als een vuur en branden zonder dat iemand kan blussen, vanwege uw slechte daden. 
@@ -13,7 +13,7 @@
 12. Een wind, sterker dan deze, komt er van Mij aan. Nu zal Ik ook oordelen over hen uitspreken. 
 13. Zie, als wolken komt *de vijand* opzetten, als een wervelwind zijn wagens, sneller dan arenden zijn zijn paarden. Wee ons, want wij worden verwoest! 
 14. Was het kwaad van uw hart af, Jeruzalem, opdat u verlost wordt. Hoelang laat u uw zondige gedachten in uw binnenste overnachten? 
-15. Want een stem verkondigt het uit Dan en doet onheil horen uit het bergland van Efraïm. 
+15. Want een stem verkondigt het uit Dan en doet onheil horen uit het bergland van EfraÃ¯m. 
 16. Roep het in herinnering bij de volken, zie, laat Jeruzalem het horen: Er komen belegeraars uit een ver land, zij laten hun stem klinken tegen de steden van Juda. 
 17. Zoals wachters van de velden *staan* zij rondom tegenover haar, omdat zij Mij ongehoorzaam is geweest, spreekt de HEERE. 
 18. Uw wegen en uw daden hebben u deze dingen aangedaan. Dit is uw kwaad, dat het *zo* bitter is, dat het *u* in uw hart treft. 

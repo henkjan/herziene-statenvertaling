@@ -28,8 +28,8 @@
 27. Want wie is belangrijker: hij die aanligt of hij die bedient? Is het niet hij die aanligt? Ik echter ben in uw midden als Iemand Die dient.
 28. En u bent het die steeds bij Mij gebleven bent in Mijn verzoekingen.
 29. En Ik beschik u het Koninkrijk, zoals Mijn Vader *dat* aan Mij beschikt heeft,
-30. opdat u eet en drinkt aan Mijn tafel in Mijn Koninkrijk en op tronen zit en de twaalf stammen van Israël oordeelt.
-31. En de Heere zei: Simon, Simon, zie, de satan heeft u *allen* opgeëist om te ziften als de tarwe.
+30. opdat u eet en drinkt aan Mijn tafel in Mijn Koninkrijk en op tronen zit en de twaalf stammen van IsraÃ«l oordeelt.
+31. En de Heere zei: Simon, Simon, zie, de satan heeft u *allen* opgeÃ«ist om te ziften als de tarwe.
 32. Maar Ik heb voor u gebeden dat uw geloof niet ophoudt. En u, als u eens tot inkeer gekomen bent, versterk *dan* uw broeders.
 33. En hij zei tegen Hem: Heere, met U ben ik bereid om zelfs de gevangenis en de dood in te gaan.
 34. Maar Hij zei: Ik zeg u, Petrus, de haan zal vandaag beslist niet kraaien, voordat u driemaal geloochend zult hebben dat u Mij kent.
@@ -57,7 +57,7 @@
 56. En een zeker dienstmeisje zag hem bij het vuur zitten en zei, met haar ogen op hem gericht: Ook hij was bij Hem.
 57. Maar hij verloochende Hem en zei: Vrouw, ik ken Hem niet.
 58. En kort daarna zag een ander hem en zei: Ook u bent *een* van hen. Maar Petrus zei: Mens, *dat* ben ik niet.
-59. En ongeveer een uur later bevestigde een ander met stelligheid: Het is werkelijk waar, ook hij was bij Hem, want hij is ook een Galileeër.
+59. En ongeveer een uur later bevestigde een ander met stelligheid: Het is werkelijk waar, ook hij was bij Hem, want hij is ook een GalileeÃ«r.
 60. Maar Petrus zei: Mens, ik weet niet wat u zegt. En onmiddellijk, terwijl hij nog sprak, kraaide de haan.
 61. En de Heere keerde Zich om en keek Petrus aan. En Petrus herinnerde zich het woord van de Heere, hoe Hij tegen hem gezegd had: Voordat de haan gekraaid zal hebben, zult u Mij driemaal verloochend hebben.
 62. En Petrus ging naar buiten en huilde bitter.

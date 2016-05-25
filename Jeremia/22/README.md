@@ -21,9 +21,9 @@
 20. Klim op de Libanon, roep om hulp, laat op de Basan uw stem klinken, roep om hulp van Abarim af, want al uw minnaars zijn gebroken! 
 21. Ik sprak in uw zorgeloze rust tot u, *maar* u zei: Ik wil niet luisteren. Dit is uw weg van uw jeugd af, dat u niet naar Mijn stem geluisterd hebt. 
 22. De wind zal al uw herders weiden, uw minnaars zullen in gevangenschap gaan. Ja, dan zult u beschaamd worden en te schande worden vanwege al uw kwaad. 
-23. U die zetelt op de Libanon, genesteld in de ceders, hoe zult u zuchten als weeën u overkomen, smart als van een barende *vrouw*.
+23. U die zetelt op de Libanon, genesteld in de ceders, hoe zult u zuchten als weeÃ«n u overkomen, smart als van een barende *vrouw*.
 24. *Zo waar* Ik leef, spreekt de HEERE, zelfs al was Chonia, de zoon van Jojakim, de koning van Juda, een zegelring aan Mijn rechterhand, toch zou Ik u daarvan afrukken,
-25. en u geven in de hand van hen die u naar het leven staan, en in de hand van hen voor wie u met schrik bevangen bent, namelijk in de hand van Nebukadrezar, de koning van Babel, en in de hand van de Chaldeeën.
+25. en u geven in de hand van hen die u naar het leven staan, en in de hand van hen voor wie u met schrik bevangen bent, namelijk in de hand van Nebukadrezar, de koning van Babel, en in de hand van de ChaldeeÃ«n.
 26. Ik zal u en uw moeder, die u gebaard heeft, wegwerpen naar een ander land waar u niet geboren bent, en daar zult u sterven.
 27. Naar het land waarnaar zij smachten om daar terug te keren, daarheen zullen zij niet terugkeren. 
 28. Is deze man, Chonia, een afgedankte, stukgeslagen kruik? Of is hij een pot waaraan niemand waarde hecht? Waarom zijn hij en zijn nageslacht weggeslingerd, ja, weggeworpen naar een land dat zij niet kenden? 

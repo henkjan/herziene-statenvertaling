@@ -15,9 +15,9 @@
 14. En zij maakte ze vast met een pin en zei tegen hem: De Filistijnen over je, Simson! Toen ontwaakte hij uit zijn slaap en trok de pin los van het weefgetouw en de schering.
 15. Daarop zei zij tegen hem: Hoe kun je zeggen: Ik heb je lief, terwijl je hart niet met mij is? Je hebt mij nu drie keer bedrogen en mij niet verteld waarin je grote kracht ligt.
 16. En het gebeurde, toen zij alle dagen *zo* met haar woorden bij hem aandrong en hem lastigviel, dat zijn ziel het niet langer verdragen kon, tot stervens toe.
-17. Toen vertelde hij haar alles en zei tegen haar: Er is nooit een scheermes op mijn hoofd gekomen, want ik ben als nazireeër aan God *gewijd*, van mijn moeders buik af. Als ik geschoren zou worden, dan zou mijn kracht van mij wijken en zou ik zwak worden, en als alle mensen zijn.
+17. Toen vertelde hij haar alles en zei tegen haar: Er is nooit een scheermes op mijn hoofd gekomen, want ik ben als nazireeÃ«r aan God *gewijd*, van mijn moeders buik af. Als ik geschoren zou worden, dan zou mijn kracht van mij wijken en zou ik zwak worden, en als alle mensen zijn.
 18. Toen Delila nu zag dat hij haar alles verteld had, stuurde zij *een bode* en liet zij de Filistijnse stadsvorsten roepen, en zei: Kom ditmaal hierheen, want hij heeft mij alles verteld. En de Filistijnse stadsvorsten kwamen naar haar toe en brachten het geld mee.
-19. Daarna liet zij hem op haar knieën slapen, riep een man en liet hem de zeven haarlokken van zijn hoofd afscheren. En zij begon hem te vernederen en zijn kracht week van hem.
+19. Daarna liet zij hem op haar knieÃ«n slapen, riep een man en liet hem de zeven haarlokken van zijn hoofd afscheren. En zij begon hem te vernederen en zijn kracht week van hem.
 20. En zij zei: De Filistijnen over je, Simson! Hij ontwaakte uit zijn slaap en zei: Ik zal net als de andere keren vrijkomen en *hen* van mij afschudden. Hij wist namelijk niet dat de HEERE van hem geweken was.
 21. Toen grepen de Filistijnen hem en staken hem de ogen uit. En zij voerden hem af naar Gaza en bonden hem met twee bronzen kettingen. En hij maalde *meel* in de gevangenis.
 22. Maar het haar van zijn hoofd begon *weer* te groeien, zoals toen hij geschoren werd.
@@ -26,7 +26,7 @@
 25. En het gebeurde, toen hun hart vrolijk was, dat zij zeiden: Roep Simson en laat hem ons vermaken. En zij riepen Simson uit de gevangenis en hij vermaakte hen. En zij lieten hem tussen de pilaren staan.
 26. Toen zei Simson tegen de jongen die hem bij de hand hield: Laat mij gaan en laat mij de pilaren betasten, waarop het huis gevestigd is, zodat ik daartegen kan leunen.
 27. Nu was het huis vol mannen en vrouwen. Ook waren alle Filistijnse stadsvorsten daar. En op het dak waren ongeveer drieduizend mannen en vrouwen, die toekeken terwijl Simson *hen* vermaakte.
-28. Toen riep Simson tot de HEERE en zei: Heere, HEERE! Denk toch aan mij en maak mij toch alleen nog deze keer sterk, o God, zodat ik me met één slag op de Filistijnen kan wreken voor mijn twee ogen.
+28. Toen riep Simson tot de HEERE en zei: Heere, HEERE! Denk toch aan mij en maak mij toch alleen nog deze keer sterk, o God, zodat ik me met Ã©Ã©n slag op de Filistijnen kan wreken voor mijn twee ogen.
 29. En Simson greep de twee middelste pilaren, waarop het huis gevestigd was en waarop dat steunde: de ene met zijn rechterhand en de andere met zijn linkerhand.
-30. Vervolgens zei Simson: Moge mijn ziel sterven mét de Filistijnen! Hij boog zich met kracht en het huis viel op de stadsvorsten en op al het volk dat daarin was. En de doden die hij in zijn sterven heeft gedood, waren talrijker dan die hij in zijn leven gedood had.
-31. Toen kwamen zijn broeders en heel zijn familie en zij namen hem op, voerden *hem* mee en begroeven hem tussen Zora en Esthaol, in het graf van zijn vader Manoach. En hij had twintig jaar als richter leiding gegeven aan Israël.
+30. Vervolgens zei Simson: Moge mijn ziel sterven mÃ©t de Filistijnen! Hij boog zich met kracht en het huis viel op de stadsvorsten en op al het volk dat daarin was. En de doden die hij in zijn sterven heeft gedood, waren talrijker dan die hij in zijn leven gedood had.
+31. Toen kwamen zijn broeders en heel zijn familie en zij namen hem op, voerden *hem* mee en begroeven hem tussen Zora en Esthaol, in het graf van zijn vader Manoach. En hij had twintig jaar als richter leiding gegeven aan IsraÃ«l.

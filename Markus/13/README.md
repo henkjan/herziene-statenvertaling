@@ -1,18 +1,18 @@
 #Markus 13
 1. En toen Hij uit de tempel ging, zei een van Zijn discipelen tegen Hem: Meester, kijk, wat een stenen en wat een gebouwen!
-2. En Jezus antwoordde hem: Ziet u deze grote gebouwen? Er zal niet *één* steen op de *andere* steen gelaten worden die niet afgebroken zal worden.
+2. En Jezus antwoordde hem: Ziet u deze grote gebouwen? Er zal niet *Ã©Ã©n* steen op de *andere* steen gelaten worden die niet afgebroken zal worden.
 3. En toen Hij op de Olijfberg zat, tegenover de tempel, vroegen Petrus, Jakobus, Johannes en Andreas Hem toen zij alleen waren:
 4. Zeg ons, wanneer zullen deze dingen gebeuren? En wat is het teken wanneer al deze dingen in vervulling zullen gaan?
 5. En Jezus antwoordde hun en begon te zeggen: Pas op dat niemand u misleidt.
 6. Want velen zullen komen onder Mijn Naam en zeggen: Ik ben *de Christus*; en zij zullen velen misleiden.
 7. En wanneer u hoort van oorlogen en geruchten van oorlogen, word *dan* niet verschrikt, want *dit* moet gebeuren, maar het *is* nog niet het einde.
-8. Want het *ene* volk zal tegen het *andere* volk opstaan en het *ene* koninkrijk tegen het *andere* koninkrijk; en er zullen aardbevingen zijn in verscheidene plaatsen en er zullen hongersnoden zijn en onlusten. Deze dingen zijn het begin van de weeën.
+8. Want het *ene* volk zal tegen het *andere* volk opstaan en het *ene* koninkrijk tegen het *andere* koninkrijk; en er zullen aardbevingen zijn in verscheidene plaatsen en er zullen hongersnoden zijn en onlusten. Deze dingen zijn het begin van de weeÃ«n.
 9. Past u op uzelf; want ze zullen u overleveren aan raadsvergaderingen, en in de synagogen zult u geslagen worden; en u zult voor stadhouders en koningen geplaatst worden omwille van Mij, tot een getuigenis voor hen.
 10. En het Evangelie moet eerst gepredikt worden aan alle volken.
 11. En wanneer ze u zullen wegleiden om u over te leveren, wees *dan* van tevoren niet bezorgd wat u spreken moet, en bedenk het niet; maar wat u op dat moment gegeven zal worden, spreek dat, want u bent het niet die spreekt, maar de Heilige Geest.
 12. En de *ene* broer zal de *andere* overleveren tot de dood en de vader het kind; en de kinderen zullen opstaan tegen de ouders en zullen hen doden.
 13. En u zult door allen gehaat worden omwille van Mijn Naam, maar wie volharden zal tot het einde, die zal zalig worden.
-14. Wanneer u dan de gruwel van de verwoesting, waarover door de profeet Daniël gesproken is, zult zien staan waar het niet behoort - laat hij die het leest, daarop letten! - laten dan zij die in Judea zijn, vluchten naar de bergen.
+14. Wanneer u dan de gruwel van de verwoesting, waarover door de profeet DaniÃ«l gesproken is, zult zien staan waar het niet behoort - laat hij die het leest, daarop letten! - laten dan zij die in Judea zijn, vluchten naar de bergen.
 15. En wie op het dak is, moet niet naar beneden gaan in het huis om iets uit zijn huis te halen,
 16. en wie op de akker is, moet niet terugkeren naar wat hij achterliet, om zijn bovenkleed te halen.
 17. Maar wee de zwangere en de zogende *vrouwen* in die dagen!

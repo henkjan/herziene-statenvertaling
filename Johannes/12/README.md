@@ -1,5 +1,5 @@
 #Johannes 12
-1. Jezus dan kwam zes dagen voor het Pascha in Bethanië, waar Lazarus was, die gestorven was *maar* die Hij uit de doden opgewekt had.
+1. Jezus dan kwam zes dagen voor het Pascha in BethaniÃ«, waar Lazarus was, die gestorven was *maar* die Hij uit de doden opgewekt had.
 2. Zij nu bereidden daar een maaltijd voor Hem, en Martha bediende; en Lazarus was een van hen die met Hem aanlagen.
 3. Maria dan nam een pond zuivere narduszalf van zeer grote waarde, zalfde de voeten van Jezus en droogde Zijn voeten met haar haren af; en het huis werd vervuld met de geur van de zalf.
 4. Toen zei een van Zijn discipelen, Judas Iskariot, *de* *zoon* van Simon, die Hem verraden zou:
@@ -11,15 +11,15 @@
 10. En de overpriesters beraadslaagden om ook Lazarus te doden,
 11. omdat omwille van hem velen van de Joden wegliepen en in Jezus geloofden.
 12. Toen de volgende dag een grote menigte die naar het feest gekomen was, hoorde dat Jezus naar Jeruzalem kwam,
-13. namen zij de takken van de palmbomen en gingen *de stad* uit Hem tegemoet en riepen: Hosanna! Gezegend *is* Hij Die komt in de Naam van de Heere, de Koning van Israël!
+13. namen zij de takken van de palmbomen en gingen *de stad* uit Hem tegemoet en riepen: Hosanna! Gezegend *is* Hij Die komt in de Naam van de Heere, de Koning van IsraÃ«l!
 14. En toen Jezus een jonge ezel gevonden had, ging Hij daarop zitten, zoals geschreven is:
 15. Wees niet bevreesd, dochter van Sion, zie, uw Koning komt, zittend op het veulen van een ezelin.
 16. Dit nu begrepen Zijn discipelen eerst niet, maar toen Jezus verheerlijkt was, herinnerden zij zich dat dit over Hem geschreven was en dat zij dit met Hem gedaan hadden.
 17. De menigte dan die bij Hem geweest was toen Hij Lazarus uit het graf geroepen en hem uit de doden opgewekt had, getuigde *daarvan*.
 18. Daarom ging de menigte Hem ook tegemoet, omdat zij gehoord had dat Hij dat teken gedaan had.
-19. De Farizeeën dan zeiden tegen elkaar: U ziet dat u totaal niets bereikt! Zie, de *hele* wereld loopt achter Hem aan.
+19. De FarizeeÃ«n dan zeiden tegen elkaar: U ziet dat u totaal niets bereikt! Zie, de *hele* wereld loopt achter Hem aan.
 20. Nu waren er enkele Grieken onder hen die gekomen waren om op het feest te aanbidden.
-21. Die dan gingen naar Filippus, die van Bethsaïda in Galilea afkomstig was, en vroegen hem: Heer, wij willen Jezus *graag* zien.
+21. Die dan gingen naar Filippus, die van BethsaÃ¯da in Galilea afkomstig was, en vroegen hem: Heer, wij willen Jezus *graag* zien.
 22. Filippus kwam en zei het tegen Andreas, en Andreas en Filippus zeiden het op hun beurt tegen Jezus.
 23. Maar Jezus antwoordde hun: Het uur is gekomen dat de Zoon des mensen verheerlijkt zal worden.
 24. Voorwaar, voorwaar, Ik zeg u: Als de tarwekorrel niet in de aarde valt en sterft, blijft hij alleen, maar als hij sterft, draagt hij veel vrucht.
@@ -40,9 +40,9 @@
 39. Daarom konden zij niet geloven, omdat Jesaja verder gezegd heeft:
 40. Hij heeft hun ogen verblind en hun hart verhard, opdat zij niet met de ogen zouden zien en met het hart inzien en zich bekeren en Ik hen zou genezen.
 41. Dit zei Jesaja toen hij Zijn heerlijkheid zag en over Hem sprak.
-42. En toch geloofden ook velen van de leiders in Hem, maar vanwege de Farizeeën beleden zij het niet, opdat zij niet uit de synagoge geworpen zouden worden.
+42. En toch geloofden ook velen van de leiders in Hem, maar vanwege de FarizeeÃ«n beleden zij het niet, opdat zij niet uit de synagoge geworpen zouden worden.
 43. Want zij hadden de eer van de mensen meer lief dan de eer van God.
-44. Jezus nu riep en zei: Wie in Mij gelooft, gelooft niet in Míj maar in Hem Die Mij gezonden heeft.
+44. Jezus nu riep en zei: Wie in Mij gelooft, gelooft niet in MÃ­j maar in Hem Die Mij gezonden heeft.
 45. En wie Mij ziet, ziet Hem Die Mij gezonden heeft.
 46. Ik ben een licht, in de wereld gekomen opdat ieder die in Mij gelooft, niet in de duisternis blijft.
 47. En als iemand Mijn woorden hoort en niet gelooft, veroordeel Ik hem niet, want Ik ben niet gekomen om de wereld te veroordelen, maar om de wereld zalig te maken.

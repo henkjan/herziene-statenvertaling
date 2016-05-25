@@ -1,8 +1,8 @@
 #Jesaja 28
-1. Wee de trotse kroon van de dronkaards van Efraïm, en een verwelkende bloem, een schitterend sieraad op het hoofd van de vruchtbare vallei van hen die geveld zijn door de wijn. 
+1. Wee de trotse kroon van de dronkaards van EfraÃ¯m, en een verwelkende bloem, een schitterend sieraad op het hoofd van de vruchtbare vallei van hen die geveld zijn door de wijn. 
 2. Zie, de Heere heeft iemand die sterk en machtig is als een hagelstorm, een storm van verderf. Zoals een vloed van geweldige, *alles* wegspoelende wateren werpt hij ze hardhandig ter aarde. 
-3. Met voeten zal vertrapt worden de trotse kroon van de dronkaards van Efraïm. 
-4. En de verwelkende bloem van zijn schitterend sieraad op het hoofd van de vruchtbare vallei zal zijn als een vroege vijg vóór de zomer: als iemand die ziet, slokt hij die meteen op uit zijn hand. 
+3. Met voeten zal vertrapt worden de trotse kroon van de dronkaards van EfraÃ¯m. 
+4. En de verwelkende bloem van zijn schitterend sieraad op het hoofd van de vruchtbare vallei zal zijn als een vroege vijg vÃ³Ã³r de zomer: als iemand die ziet, slokt hij die meteen op uit zijn hand. 
 5. Op die dag zal de HEERE van de legermachten tot een schitterende kroon en sierlijke krans zijn voor de rest van Zijn volk, 
 6. tot een geest van het recht voor wie zit om recht te spreken, en tot een kracht voor wie de strijd terugdringt naar de poort.
 7. Ook dezen *hier* zwalken van wijn, dwalen rond door sterkedrank. Priester en profeet zwalken door sterkedrank. Zij zijn opgeslokt door de wijn, zij dwalen rond door de sterkedrank. Zij zwalken bij *het uitleggen van* het visioen, zij struikelen tijdens *hun* gerechtelijke uitspraak. 
@@ -23,7 +23,7 @@
 22. Nu dan, spot niet, anders zullen uw boeien nog strakker aangehaald worden; want een *vernietigend* einde - en het is vast besloten, heb ik gehoord van de Heere, de HEERE van de legermachten - *komt* over heel het land.
 23. Neem ter ore en luister naar mijn stem, sla er acht op en luister naar mijn woorden! 
 24. Ploegt de ploeger heel de dag door om te zaaien? Blijft hij zijn land *altijd maar* openleggen en eggen? 
-25. Is het niet zo: heeft hij de bovenlaag ervan geëffend, dan strooit hij wikke uit, zaait er komijn op, en zet tarwe op rij, gerst per vak, en spelt aan de rand? 
+25. Is het niet zo: heeft hij de bovenlaag ervan geÃ«ffend, dan strooit hij wikke uit, zaait er komijn op, en zet tarwe op rij, gerst per vak, en spelt aan de rand? 
 26. Zijn God onderwijst hem over de juiste wijze. Hij onderwijst hem. 
 27. Want men dorst wikke toch niet met een dorsslede, en rolt over komijn toch geen wagenwiel? Maar wikke wordt uitgeklopt met een stok, en komijn met een staak. 
 28. Broodkoren moet *wel* fijngemaakt worden, maar hij dorst en dorst *het* niet voor altijd door; hij plet het niet met zijn wagenwiel, met zijn paarden verpulvert hij het niet. 

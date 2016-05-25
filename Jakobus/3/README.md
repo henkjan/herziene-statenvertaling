@@ -10,7 +10,7 @@
 9. Door haar loven wij God en de Vader, en door haar vervloeken wij de mensen, die naar de gelijkenis van God gemaakt zijn.
 10. Uit dezelfde mond komen zegen en vervloeking voort. Dit behoort niet zo te zijn, mijn broeders.
 11. Laat soms een bron uit dezelfde ader zoet en bitter *water* opwellen?
-12. Kan ook, mijn broeders, een vijgenboom olijven voortbrengen, of een wijnstok vijgen? Evenmin *kan* een bron zout én zoet water voortbrengen.
+12. Kan ook, mijn broeders, een vijgenboom olijven voortbrengen, of een wijnstok vijgen? Evenmin *kan* een bron zout Ã©n zoet water voortbrengen.
 13. Wie is wijs en verstandig onder u? Laat hij uit *zijn* goede levenswandel zijn werken laten zien, in zachtmoedige wijsheid.
 14. Wanneer u echter bittere afgunst en eigenbelang in uw hart hebt, beroem u dan niet en lieg niet tegen de waarheid.
 15. Dat is niet de wijsheid die van boven komt, maar ze is aards, natuurlijk, duivels.

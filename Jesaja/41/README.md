@@ -6,19 +6,19 @@
 5. De kustlanden zagen het en werden bevreesd, de einden der aarde beefden; ze kwamen naderbij en traden toe. 
 6. De een hielp de ander, tegen zijn broeder zei hij: Wees sterk! 
 7. De vakman bemoedigde de edelsmid, hij die met de hamer gladmaakt, hem die op het aambeeld slaat, door van het soldeersel te zeggen: Het is goed. Daarna zette hij het vast met spijkers, zodat het niet zou wankelen. 
-8. Maar u, Israël, Mijn dienaar, u, Jakob, die Ik heb verkozen, het nageslacht van Abraham, die Mij liefhad, 
+8. Maar u, IsraÃ«l, Mijn dienaar, u, Jakob, die Ik heb verkozen, het nageslacht van Abraham, die Mij liefhad, 
 9. u, die Ik gegrepen heb van de einden der aarde, geroepen uit haar uithoeken, en tegen wie Ik zei: U bent Mijn dienaar, Ik heb u verkozen, Ik heb u niet verworpen. 
 10. Wees niet bevreesd, want Ik ben met u, wees niet verschrikt, want Ik ben uw God. Ik sterk u, ook help Ik u, ook ondersteun Ik u met Mijn rechterhand, die gerechtigheid werkt. 
 11. Zie, zij zullen beschaamd en te schande worden, allen die *in woede* tegen u ontstoken zijn. Zij zullen worden als niets, zij zullen omkomen, de mannen die u aanklagen. 
 12. U zult hen zoeken, maar u zult hen niet kunnen vinden, de mannen die zich tegen u keren. Zij zullen worden als niets, als *volstrekt* niets, de mannen die strijd tegen u voeren. 
 13. Want Ik ben de HEERE, uw God, Die uw rechterhand vastgrijpt *en* tegen u zegt: Wees niet bevreesd, Ik help u. 
-14. Wees niet bevreesd, wormpje Jakob, volkje Israël, Ík help u, spreekt de HEERE, uw Verlosser is de Heilige van Israël. 
+14. Wees niet bevreesd, wormpje Jakob, volkje IsraÃ«l, Ãk help u, spreekt de HEERE, uw Verlosser is de Heilige van IsraÃ«l. 
 15. Zie, Ik maak u tot een scherpe dorsslede, een nieuwe, met puntige pinnen. U zult bergen dorsen en verpulveren, en heuvels maken als kaf. 
-16. U zult ze wannen, de wind zal ze opnemen, en de storm zal ze verspreiden. Maar ú zult zich verheugen in de HEERE, in de Heilige van Israël zult u zich beroemen. 
-17. De ellendigen en de armen zoeken water, maar het is er niet, hun tong versmacht van dorst. Ík, de HEERE, zal hen verhoren, Ik, de God van Israël, zal hen niet verlaten. 
+16. U zult ze wannen, de wind zal ze opnemen, en de storm zal ze verspreiden. Maar Ãº zult zich verheugen in de HEERE, in de Heilige van IsraÃ«l zult u zich beroemen. 
+17. De ellendigen en de armen zoeken water, maar het is er niet, hun tong versmacht van dorst. Ãk, de HEERE, zal hen verhoren, Ik, de God van IsraÃ«l, zal hen niet verlaten. 
 18. Ik zal op kale hoogten rivieren doen ontspringen, midden in valleien bronnen. Ik zal de woestijn maken tot een waterpoel, het dorre land tot waterbronnen. 
 19. Ik zal in de woestijn de ceder zetten, de acacia, de mirt en de olie*houdende* boom. Ik zal in de wildernis de cipres plaatsen, samen met plataan en dennenboom, 
-20. opdat men ziet en erkent, bedenkt en tevens inziet dat de hand van de HEERE dit gedaan heeft, en de Heilige van Israël het geschapen heeft. 
+20. opdat men ziet en erkent, bedenkt en tevens inziet dat de hand van de HEERE dit gedaan heeft, en de Heilige van IsraÃ«l het geschapen heeft. 
 21. Kom naderbij *met* uw aanklacht, zegt de HEERE, kom *maar* naar voren met uw bewijzen, zegt de Koning van Jakob. 
 22. Laten zij naar voren brengen en ons bekendmaken de dingen die zullen gebeuren. De dingen van vroeger - wat waren ze? Maak het bekend, en wij zullen het ter harte nemen en het einde ervan weten, of doe ons de komende dingen horen. 
 23. Maak de dingen bekend die hierna zullen komen, en wij zullen weten dat u goden bent. Doe tenminste iets, goed of kwaad, en wij zullen verbaasd staan en het tezamen inzien. 

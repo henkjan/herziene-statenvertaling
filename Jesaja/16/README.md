@@ -6,8 +6,8 @@
 5. dan zal er een troon gevestigd worden in goedertierenheid. Daarop zal blijvend Iemand zitten in de tent van David, Die oordeelt en recht zoekt, Die snel gerechtigheid brengt. 
 6. Wij hebben gehoord van de trots van Moab, *dat* zeer hoogmoedig is, van zijn hoogmoed, zijn trots en zijn overmoed; zijn holle praat is niet gepast! 
 7. Daarom zal Moab over Moab weeklagen, allen zullen zij weeklagen. Aan de rozijnenkoeken van Kir-Hareseth zult u *zuchtend* terugdenken, volkomen verslagen. 
-8. Want de velden van Hesbon zijn verkommerd, de wijnstok van Sibma. De heersers van de heidenvolken hebben zijn edele druivenplanten platgeslagen. Zij reikten tot Jaëzer, zij verdwaalden *in* de woestijn. Zijn ranken verspreidden zich en hingen tot over de zee. 
-9. Daarom zal ik bij het wenen over Jaëzer de wijnstok van Sibma bewenen. Ik maak u doornat met mijn tranen, Hesbon en Eleale, want over uw zomervruchten en over uw oogst is de vreugderoep *weg*gevallen. 
+8. Want de velden van Hesbon zijn verkommerd, de wijnstok van Sibma. De heersers van de heidenvolken hebben zijn edele druivenplanten platgeslagen. Zij reikten tot JaÃ«zer, zij verdwaalden *in* de woestijn. Zijn ranken verspreidden zich en hingen tot over de zee. 
+9. Daarom zal ik bij het wenen over JaÃ«zer de wijnstok van Sibma bewenen. Ik maak u doornat met mijn tranen, Hesbon en Eleale, want over uw zomervruchten en over uw oogst is de vreugderoep *weg*gevallen. 
 10. Zo zijn blijdschap en vreugde weggenomen van het vruchtbare veld; en in de wijngaarden wordt niet *meer* gezongen, geen juichkreet *meer* geslaakt. De *druiven*treder perst geen wijn meer in de perskuipen. Ik heb de vreugderoep doen ophouden. 
 11. Daarom klagen mijn ingewanden om Moab als een harp, en mijn binnenste om Kir-Heres. 
 12. En gebeurt het dat Moab verschijnt en zich op de hoogte vermoeit en naar zijn heiligdom komt om te bidden, dan zal het niets bereiken.

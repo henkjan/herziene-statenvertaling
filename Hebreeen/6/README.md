@@ -10,7 +10,7 @@
 9. Ook al spreken wij zo, geliefden, wat u betreft zijn wij echter overtuigd van betere dingen, die met de zaligheid samenhangen.
 10. Want God is niet onrechtvaardig dat Hij uw werk zou vergeten en de liefdevolle inspanning die u Zijn Naam bewezen hebt, doordat u de heiligen gediend hebt en *nog* dient.
 11. Maar wij verlangen ernaar dat ieder van u dezelfde inzet toont, tot volle zekerheid van de hoop, tot het einde toe,
-12. opdat u niet traag wordt, maar navolgers bent van hen die door geloof en geduld de beloften beërven.
+12. opdat u niet traag wordt, maar navolgers bent van hen die door geloof en geduld de beloften beÃ«rven.
 13. Want toen God Abraham de belofte deed, zwoer Hij bij Zichzelf, omdat Hij bij niemand die hoger was, kon zweren.
 14. Hij zei: Voorzeker, rijk zal Ik u zegenen en overvloedig zal Ik u *in aantal* doen toenemen.
 15. En zo heeft hij de belofte verkregen na *daar* geduldig *op* gewacht te hebben.

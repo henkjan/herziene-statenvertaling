@@ -1,5 +1,5 @@
 #Johannes 4
-1. Toen nu de Heere merkte dat de Farizeeën gehoord hadden dat Jezus meer discipelen maakte en doopte dan Johannes
+1. Toen nu de Heere merkte dat de FarizeeÃ«n gehoord hadden dat Jezus meer discipelen maakte en doopte dan Johannes
 2. - hoewel Jezus Zelf niet doopte, maar Zijn discipelen -
 3. verliet Hij Judea en vertrok Hij weer naar Galilea.
 4. En Hij moest door Samaria gaan.
@@ -27,7 +27,7 @@
 26. Jezus zei tegen haar: Ik ben het, Die met u spreek.
 27. En op dat *moment* kwamen Zijn discipelen en zij verwonderden zich dat Hij met een vrouw sprak. Toch zei niemand: Wat zoekt U? of: Wat spreekt U met haar?
 28. De vrouw nu liet haar waterkruik staan en ging weg naar de stad en zei tegen de mensen:
-29. Kom, zie Iemand Die mij alles gezegd heeft wat ik gedaan heb; zou Híj niet de Christus zijn?
+29. Kom, zie Iemand Die mij alles gezegd heeft wat ik gedaan heb; zou HÃ­j niet de Christus zijn?
 30. Zij dan gingen de stad uit en kwamen naar Hem toe.
 31. En intussen vroegen de discipelen Hem: Rabbi, eet *toch iets*.
 32. Maar Hij zei tegen hen: Ik heb voedsel te eten waarvan u geen weet hebt.
@@ -35,16 +35,16 @@
 34. Jezus zei tegen hen: Mijn voedsel is dat Ik de wil doe van Hem Die Mij gezonden heeft en Zijn werk volbreng.
 35. Zegt u niet: Nog vier maanden, en dan komt de oogst? Zie, Ik zeg u: Sla uw ogen op en kijk naar de velden, want zij zijn al wit om te oogsten.
 36. En wie oogst, ontvangt loon en verzamelt vrucht voor het eeuwige leven, opdat zich samen verblijden zowel wie zaait als wie oogst.
-37. Want hierin is de spreuk waar: De één zaait, de ander oogst.
+37. Want hierin is de spreuk waar: De Ã©Ã©n zaait, de ander oogst.
 38. Ik heb u uitgezonden om te oogsten waarvoor u zich niet hebt ingespannen; anderen hebben zich ingespannen en u hebt *de vrucht* van hun inspanning binnengehaald.
 39. En velen van de Samaritanen uit die stad geloofden in Hem om het woord van de vrouw, die getuigde: Hij heeft alles tegen mij gezegd wat ik gedaan heb.
 40. Toen dan de Samaritanen bij Hem gekomen waren, vroegen zij Hem bij hen te blijven, en Hij bleef daar twee dagen.
 41. En er kwamen er nog veel meer tot geloof, vanwege Zijn woord,
-42. en zij zeiden tegen de vrouw: Wij geloven niet meer om wat u zegt, want wijzelf hebben *Hem* gehoord en weten dat Híj werkelijk de Zaligmaker van de wereld is, de Christus.
+42. en zij zeiden tegen de vrouw: Wij geloven niet meer om wat u zegt, want wijzelf hebben *Hem* gehoord en weten dat HÃ­j werkelijk de Zaligmaker van de wereld is, de Christus.
 43. En na die twee dagen vertrok Hij vandaar en ging naar Galilea,
 44. want Jezus heeft Zelf getuigd dat een profeet in zijn eigen vaderstad geen eer ontvangt.
-45. Toen Hij dan in Galilea kwam, ontvingen de Galileeërs Hem, omdat zij alles gezien hadden wat Hij in Jeruzalem gedaan had op het feest; want ook zijzelf waren naar het feest gegaan.
-46. Jezus dan kwam opnieuw te Kana in Galilea, waar Hij van water wijn gemaakt had. En er was een zekere koninklijke *hoveling*, wiens zoon ziek lag in Kapernaüm.
+45. Toen Hij dan in Galilea kwam, ontvingen de GalileeÃ«rs Hem, omdat zij alles gezien hadden wat Hij in Jeruzalem gedaan had op het feest; want ook zijzelf waren naar het feest gegaan.
+46. Jezus dan kwam opnieuw te Kana in Galilea, waar Hij van water wijn gemaakt had. En er was een zekere koninklijke *hoveling*, wiens zoon ziek lag in KapernaÃ¼m.
 47. Toen deze hoorde dat Jezus uit Judea in Galilea was gekomen, ging hij naar Hem toe en vroeg Hem te komen en zijn zoon gezond te maken, want hij lag op sterven.
 48. Jezus dan zei tegen hem: Als u geen tekenen en wonderen ziet, zult u beslist niet geloven.
 49. De koninklijke *hoveling* zei tegen Hem: Heere, kom voordat mijn kind sterft.

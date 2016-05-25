@@ -7,12 +7,12 @@
 6. Uw pijlen zijn scherp; *zij treffen* het hart van de vijanden van de Koning. Volken zullen onder U vallen. 
 7. Uw troon, o God, bestaat eeuwig en altijd; de scepter van Uw Koninkrijk is een scepter van rechtvaardigheid. 
 8. U hebt gerechtigheid lief en haat goddeloosheid; daarom heeft Uw God U gezalfd, o God, met vreugdeolie, boven Uw metgezellen. 
-9. Al Uw kleding geurt van mirre en aloë *en* kaneel, *wanneer U* uit de ivoren paleizen *komt*, waar men U verblijdt. 
+9. Al Uw kleding geurt van mirre en aloÃ« *en* kaneel, *wanneer U* uit de ivoren paleizen *komt*, waar men U verblijdt. 
 10. Koningsdochters zijn onder Uw voorname *vrouwen*; de koningin staat aan Uw rechterhand, in het fijne goud van Ofir. 
 11. Luister, dochter, en zie, en neig uw oor: vergeet uw volk en het huis van uw vader. 
 12. Dan zal de Koning verlangen naar uw schoonheid; omdat Hij uw Heere is, buig u voor Hem neer. 
 13. De dochter van Tyrus *zal komen* met een geschenk; de rijken onder het volk zullen trachten Uw aangezicht gunstig te stemmen. 
-14. De koningsdochter is innerlijk één en al heerlijkheid; haar kleding bestaat uit borduurwerk van gouddraad. 
+14. De koningsdochter is innerlijk Ã©Ã©n en al heerlijkheid; haar kleding bestaat uit borduurwerk van gouddraad. 
 15. In kleurrijk geborduurde kleding wordt zij naar de Koning geleid; jonge meisjes, haar vriendinnen in haar gevolg, worden bij U gebracht. 
 16. Zij worden geleid in grote blijdschap en vreugde, zij gaan het paleis van de Koning binnen. 
 17. Uw zonen zullen de plaats van Uw vaderen innemen; U zult hen tot vorsten aanstellen over heel de aarde. 

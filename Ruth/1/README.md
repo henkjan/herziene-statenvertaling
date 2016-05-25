@@ -15,9 +15,9 @@
 14. Toen begonnen zij opnieuw luid te huilen. En Orpa kuste haar schoonmoeder, maar Ruth klampte zich aan haar vast.
 15. Daarom zei zij: Zie, je schoonzuster is teruggekeerd naar haar volk en naar haar goden. Keer ook terug, je schoonzuster achterna.
 16. Maar Ruth zei: Dring er bij mij niet langer op aan u te verlaten en terug te gaan, bij u vandaan. Want waar u heen gaat, zal ik ook gaan, en waar u overnacht, zal ik overnachten. Uw volk is mijn volk en uw God mijn God.
-17. Waar u sterft, zal ik sterven, en daar zal ik begraven worden. De HEERE mag zÛ en nog veel erger doen: voorzeker, *alleen* de dood zal scheiding maken tussen mij en u.
+17. Waar u sterft, zal ik sterven, en daar zal ik begraven worden. De HEERE mag z√≥ en nog veel erger doen: voorzeker, *alleen* de dood zal scheiding maken tussen mij en u.
 18. Toen zij zag dat zij zich vast voorgenomen had met haar mee te gaan, hield zij op tot haar te spreken.
 19. Zo gingen zij samen *verder*, tot zij in Bethlehem kwamen. En het gebeurde, toen zij Bethlehem binnenkwamen, dat de hele stad over hen in rep en roer raakte, en *de vrouwen* zeiden: Is dit Naomi?
 20. Maar zij zei tegen hen: Noem mij niet Naomi, noem mij Mara, want de Almachtige heeft mij grote bitterheid aangedaan.
-21. Õk ging vol weg, maar de HEERE heeft mij leeg laten terugkeren. Waarom zou u mij Naomi noemen, nu de HEERE tegen mij getuigd heeft en de Almachtige mij kwaad gedaan heeft?
+21. √çk ging vol weg, maar de HEERE heeft mij leeg laten terugkeren. Waarom zou u mij Naomi noemen, nu de HEERE tegen mij getuigd heeft en de Almachtige mij kwaad gedaan heeft?
 22. Zo keerde Naomi terug, en met haar Ruth, de Moabitische, haar schoondochter. Zij keerde uit de vlakten van Moab terug. En zij kwamen in Bethlehem, aan het begin van de gersteoogst.

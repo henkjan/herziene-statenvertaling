@@ -1,10 +1,10 @@
 #Johannes 13
-1. En vóór het feest van het Pascha, toen Jezus wist dat Zijn uur gekomen was dat Hij uit deze wereld zou overgaan naar de Vader, heeft Hij de Zijnen, die in de wereld waren en die Hij liefgehad had, liefgehad tot het einde.
+1. En vÃ³Ã³r het feest van het Pascha, toen Jezus wist dat Zijn uur gekomen was dat Hij uit deze wereld zou overgaan naar de Vader, heeft Hij de Zijnen, die in de wereld waren en die Hij liefgehad had, liefgehad tot het einde.
 2. Toen dan de maaltijd plaatsvond en de duivel Judas Iskariot, *de zoon* van Simon, al in het hart gegeven had Hem te verraden,
 3. stond Jezus, Die wist dat de Vader Hem alle dingen in handen gegeven had en dat Hij van God uitgegaan was en tot God heenging,
 4. op van de maaltijd, legde *Zijn* kleren af, nam een linnen doek en deed die om Zijn middel.
 5. Daarna goot Hij water in de waskom en begon de voeten van de discipelen te wassen en af te drogen met de linnen doek die Hij om Zijn middel had.
-6. Zo kwam Hij bij Simon Petrus en die zei tegen Hem: Heere, wilt Ú mij de voeten wassen?
+6. Zo kwam Hij bij Simon Petrus en die zei tegen Hem: Heere, wilt Ãš mij de voeten wassen?
 7. Jezus antwoordde en zei tegen hem: Wat Ik doe, weet u nu niet, maar u zult het later inzien.
 8. Petrus zei tegen Hem: U zult mijn voeten in der eeuwigheid niet wassen! Jezus antwoordde hem: Als Ik u niet was, hebt u geen deel met Mij.
 9. Simon Petrus zei tegen Hem: Heere, niet alleen mijn voeten, maar ook mijn handen en mijn hoofd.

@@ -11,11 +11,11 @@
 10. Hoelang, o God, zal de tegenstander *U* smaden? Zal de vijand Uw Naam voor altijd lasteren? 
 11. Waarom trekt U Uw hand terug, Uw *sterke* rechterhand? *Trek haar* uit het midden van Uw boezem. Maak er een eind aan! 
 12. Toch is God mijn Koning van oudsher, Die heil brengt hier op aarde. 
-13. Ú hebt door Uw macht de zee gespleten, U hebt de koppen van de zeemonsters in de wateren vermorzeld. 
-14. Ú hebt de koppen van de Leviathan verbrijzeld, U hebt hem tot voedsel gegeven aan het volk in de woestijn. 
-15. Ú hebt een bron en een beek doormidden gespleten, Ú hebt altijd stromende rivieren laten uitdrogen. 
-16. De dag is van U, ook de nacht behoort U toe, Ú hebt het licht en de zon hun plaats gegeven. 
-17. Ú hebt alle grenzen van de aarde vastgesteld; zomer en winter, Ú hebt ze geformeerd. 
+13. Ãš hebt door Uw macht de zee gespleten, U hebt de koppen van de zeemonsters in de wateren vermorzeld. 
+14. Ãš hebt de koppen van de Leviathan verbrijzeld, U hebt hem tot voedsel gegeven aan het volk in de woestijn. 
+15. Ãš hebt een bron en een beek doormidden gespleten, Ãš hebt altijd stromende rivieren laten uitdrogen. 
+16. De dag is van U, ook de nacht behoort U toe, Ãš hebt het licht en de zon hun plaats gegeven. 
+17. Ãš hebt alle grenzen van de aarde vastgesteld; zomer en winter, Ãš hebt ze geformeerd. 
 18. Denk hieraan, de vijand heeft de HEERE gesmaad, een dwaas volk heeft Uw Naam gelasterd. 
 19. Geef aan de *wilde* dieren de ziel van Uw tortelduif niet over, vergeet niet voor altijd het volk van Uw ellendigen. 
 20. Aanschouw het verbond, want de duistere oorden van het land zijn vol woningen van geweld. 

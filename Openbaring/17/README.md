@@ -10,7 +10,7 @@
 9. Hier *blijkt* het verstand dat wijsheid heeft. De zeven koppen zijn zeven bergen, waarop de vrouw zit.
 10. Ook zijn het zeven koningen: vijf zijn er gevallen, een is er, de andere is nog niet gekomen, en wanneer hij komt, moet hij een korte *tijd* blijven.
 11. En het beest dat was en niet is, is ook zelf *de* achtste. En hij is uit de zeven, en gaat naar het verderf.
-12. En de tien horens die u gezien hebt, zijn tien koningen, die het koningschap nog niet hebben ontvangen, maar die *samen* met het beest één uur koninklijke macht zullen ontvangen.
+12. En de tien horens die u gezien hebt, zijn tien koningen, die het koningschap nog niet hebben ontvangen, maar die *samen* met het beest Ã©Ã©n uur koninklijke macht zullen ontvangen.
 13. Dezen zijn eensgezind en zij zullen hun kracht en macht aan het beest overdragen.
 14. Zij zullen oorlog voeren tegen het Lam, maar het Lam - want Heere der heren is Hij en Koning der koningen - zal hen overwinnen, en zij die samen met Hem zijn, geroepenen, uitverkorenen en gelovigen.
 15. En hij zei tegen mij: De wateren die u gezien hebt, waaraan de hoer zit, zijn volken, menigten, naties en talen.

@@ -11,7 +11,7 @@
 10. Ik, de HEERE, doorgrond het hart, beproef de nieren, en dat om ieder te geven overeenkomstig zijn wegen, overeenkomstig de vrucht van zijn daden. 
 11. Wie rijkdom verwerft, maar niet op rechtmatige *wijze*, is *als* een patrijs *die eieren* uitbroedt, maar *ze* niet gelegd heeft. Op de helft van zijn dagen moet hij die achterlaten, in zijn einde blijkt hij een dwaas te zijn. 
 12. Een eretroon, een hoge *plaats* vanaf het begin, is de plaats van ons heiligdom. 
-13. HEERE, Hoop van Israël, allen die U verlaten, zullen beschaamd worden. Wie zich van mij afkeren, zullen in de aarde worden geschreven, want zij hebben de bron van het levende water, de HEERE, verlaten. 
+13. HEERE, Hoop van IsraÃ«l, allen die U verlaten, zullen beschaamd worden. Wie zich van mij afkeren, zullen in de aarde worden geschreven, want zij hebben de bron van het levende water, de HEERE, verlaten. 
 14. Genees mij, HEERE, en ik zal genezen worden, verlos mij, en ik zal verlost worden, want U bent mijn lofzang. 
 15. Zie, zij zeggen tegen mij: Waar is het woord van de HEERE? Laat het toch uitkomen! 
 16. Wat mij betreft, ik heb niet meer aangedrongen dan een herder achter U *betaamde*, naar een onheilsdag heb ik niet verlangd. U weet Zelf wat over mijn lippen kwam, het was voor Uw aangezicht. 

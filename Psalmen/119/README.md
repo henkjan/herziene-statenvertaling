@@ -2,7 +2,7 @@
 1. Welzalig zijn de oprechten van wandel, die in de wet van de HEERE gaan. 
 2. Welzalig wie Zijn getuigenissen in acht nemen, *die* Hem met heel hun hart zoeken, 
 3. die ook geen onrecht bedrijven, *maar* in Zijn wegen gaan. 
-4. *HEERE*, Ú hebt geboden om Uw bevelen ten zeerste in acht te nemen. 
+4. *HEERE*, Ãš hebt geboden om Uw bevelen ten zeerste in acht te nemen. 
 5. Och, waren mijn wegen zo vast om Uw verordeningen in acht te nemen! 
 6. Dan zou ik niet beschaamd worden, als ik oog zou hebben voor al Uw geboden. 
 7. Ik zal U loven met een oprecht hart, wanneer ik Uw rechtvaardige bepalingen geleerd heb. 
@@ -67,8 +67,8 @@
 66. Leer mij goed onderscheiden en kennen, want ik heb in Uw geboden geloofd. 
 67. Voordat ik verdrukt werd, dwaalde ik, maar nu neem ik Uw woord in acht. 
 68. U bent goed en U doet goed, leer mij Uw verordeningen. 
-69. Hoogmoedigen hebben mij met leugens besmeurd, *maar* ík neem Uw bevelen met heel mijn hart in acht. 
-70. Hun hart is zo ongevoelig als vet, *maar* ík verblijd mij *in* Uw wet. 
+69. Hoogmoedigen hebben mij met leugens besmeurd, *maar* Ã­k neem Uw bevelen met heel mijn hart in acht. 
+70. Hun hart is zo ongevoelig als vet, *maar* Ã­k verblijd mij *in* Uw wet. 
 71. Het is goed voor mij dat ik verdrukt ben geweest, opdat ik Uw verordeningen zou leren. 
 72. De wet uit Uw mond is mij beter dan duizenden *stukken* goud of zilver. 
 73. Uw handen hebben mij gemaakt en bereid; geef mij inzicht, zodat ik Uw geboden leer. 
@@ -76,7 +76,7 @@
 75. Ik weet, HEERE, dat Uw oordelen rechtvaardig zijn en *dat* U mij *in Uw* trouw verdrukt hebt. 
 76. Laat toch Uw goedertierenheid er zijn om mij te troosten, overeenkomstig Uw belofte aan Uw dienaar. 
 77. Laat Uw barmhartigheid over mij komen, dan zal ik leven, want Uw wet is mijn bron van blijdschap. 
-78. Laten de hoogmoedigen beschaamd worden, die mij neerdrukten met leugen, *maar* ík overdenk Uw bevelen. 
+78. Laten de hoogmoedigen beschaamd worden, die mij neerdrukten met leugen, *maar* Ã­k overdenk Uw bevelen. 
 79. Laten zich tot mij keren wie U vrezen en wie Uw getuigenissen kennen. 
 80. Laat mijn hart oprecht zijn in Uw verordeningen, dan zal ik niet beschaamd worden. 
 81. Mijn ziel is bezweken van verlangen naar Uw heil, op Uw woord heb ik gehoopt. 
@@ -85,7 +85,7 @@
 84. Hoeveel zijn de dagen van Uw dienaar? Wanneer zult U gericht oefenen over mijn vervolgers? 
 85. De hoogmoedigen hebben kuilen voor mij gegraven en dat is niet overeenkomstig Uw wet. 
 86. Al Uw geboden zijn betrouwbaar; met leugen vervolgen zij mij, help mij! 
-87. Zij hebben mij op de aarde bijna vernietigd, maar ík heb Uw bevelen niet verlaten. 
+87. Zij hebben mij op de aarde bijna vernietigd, maar Ã­k heb Uw bevelen niet verlaten. 
 88. Maak mij levend overeenkomstig Uw goedertierenheid; dan zal ik het getuigenis van Uw mond in acht nemen. 
 89. Voor eeuwig, HEERE, staat Uw woord vast in de hemel. 
 90. Uw trouw duurt van generatie op generatie; U hebt de aarde gegrondvest, zodat zij blijft staan. 
@@ -100,7 +100,7 @@
 99. Ik ben verstandiger dan al mijn leraren, want Uw getuigenissen zijn mij *tot* overdenking. 
 100. Ik heb meer inzicht dan de ouderen, omdat ik Uw bevelen in acht genomen heb. 
 101. Ik heb mijn voeten weerhouden van alle slechte paden, opdat ik mij aan Uw woord zal houden. 
-102. Ik ben niet afgeweken van Uw bepalingen, want Ú hebt mij onderwezen. 
+102. Ik ben niet afgeweken van Uw bepalingen, want Ãš hebt mij onderwezen. 
 103. Hoe zoet zijn Uw woorden voor mijn gehemelte, *zoeter* dan honing voor mijn mond. 
 104. Door Uw bevelen krijg ik inzicht, daarom haat ik elk leugenpad. 
 105. Uw woord is een lamp voor mijn voet en een licht op mijn pad. 

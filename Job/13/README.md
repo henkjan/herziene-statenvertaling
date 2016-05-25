@@ -1,7 +1,7 @@
 #Job 13
 1. Zie, mijn oog heeft alles gezien, mijn oor heeft het gehoord en begrepen. 
-2. Zoals jullie *het* weten, weet ík *het* ook; ik zwicht niet voor jullie. 
-3. Maar ík zal tot de Almachtige spreken, en vind er behagen in *mij* voor God te verdedigen. 
+2. Zoals jullie *het* weten, weet Ã­k *het* ook; ik zwicht niet voor jullie. 
+3. Maar Ã­k zal tot de Almachtige spreken, en vind er behagen in *mij* voor God te verdedigen. 
 4. Maar werkelijk, jullie dekken *alles* toe met leugens; jullie zijn allemaal heelmeesters van niets. 
 5. Och, zwegen jullie maar helemaal! Dat zou jullie tot wijsheid zijn. 
 6. Luister toch naar mijn verdediging, en sla acht op het verweer van mijn lippen. 
@@ -16,11 +16,11 @@
 15. Zie, *al* zou Hij mij doden, zou ik niet hopen? Maar toch zal ik mijn wegen voor Zijn aangezicht verdedigen. 
 16. Ook zal Hij mij tot verlossing zijn; maar een huichelaar zal niet voor Zijn aangezicht komen. 
 17. Luister aandachtig naar mijn woorden, en *laat* mijn uiteenzetting in jullie oren *komen*. 
-18. Zie toch, ik heb de rechtszaak uiteengezet; ik weet dat ík rechtvaardig ben. 
+18. Zie toch, ik heb de rechtszaak uiteengezet; ik weet dat Ã­k rechtvaardig ben. 
 19. Wie is hij die een rechtszaak met mij voert? Als ik nu zweeg, zou ik de geest geven. 
 20. Alleen, doe twee dingen niet met mij, dan zal ik mij niet voor Uw aangezicht verbergen. 
 21. Doe Uw hand die op mij *drukt*, ver weg, en laat Uw bedreiging mij geen angst *meer* aanjagen. 
-22. Roep dan, en ík zal antwoorden; of ik zal spreken, en antwoord mij. 
+22. Roep dan, en Ã­k zal antwoorden; of ik zal spreken, en antwoord mij. 
 23. Hoeveel ongerechtigheden en zonden heb ik? Maak mij mijn overtreding en mijn zonde bekend. 
 24. Waarom verbergt U Uw aangezicht, en houdt U mij voor Uw vijand? 
 25. Wilt U een weggewaaid blad schrik aanjagen, en wilt U droge stoppels achtervolgen? 

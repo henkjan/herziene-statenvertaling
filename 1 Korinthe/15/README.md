@@ -9,7 +9,7 @@
 8. En als laatste van allen is Hij ook aan mij verschenen, als aan de ontijdig geborene.
 9. Ik immers ben de minste van de apostelen, die niet waard ben een apostel genoemd te worden, omdat ik de gemeente van God vervolgd heb.
 10. Maar door de genade van God ben ik wat ik ben, en Zijn genade voor mij is niet tevergeefs geweest. Integendeel, ik heb mij meer ingespannen dan zij allen; niet ik echter, maar de genade van God, die met mij is.
-11. Of ik het dan *ben* of zij, zó prediken wij en zó hebt u geloofd.
+11. Of ik het dan *ben* of zij, zÃ³ prediken wij en zÃ³ hebt u geloofd.
 12. Als nu *van* Christus gepredikt wordt dat Hij uit de doden is opgewekt, hoe *kunnen* sommigen onder u *dan* zeggen dat er geen opstanding van de doden is?
 13. En als er geen opstanding van de doden is, dan is Christus ook niet opgewekt.
 14. En als Christus niet is opgewekt, dan is onze prediking zonder inhoud, en zonder inhoud is ook uw geloof.
@@ -18,7 +18,7 @@
 17. En als Christus niet is opgewekt, is uw geloof zinloos; u bent *dan* nog in uw zonden.
 18. Dan zijn ook zij die in Christus ontslapen zijn, verloren.
 19. Als wij alleen voor dit leven op Christus onze hoop gevestigd hebben, zijn wij de meest beklagenswaardige van alle mensen.
-20. Maar nu, Christus ís opgewekt uit de doden *en* is de Eersteling geworden van hen die ontslapen zijn.
+20. Maar nu, Christus Ã­s opgewekt uit de doden *en* is de Eersteling geworden van hen die ontslapen zijn.
 21. Want omdat de dood er is door een mens, is ook de opstanding van de doden er door een Mens.
 22. Want zoals allen in Adam sterven, zo zullen ook in Christus allen levend gemaakt worden.
 23. Ieder echter in zijn eigen orde: Christus als Eersteling, daarna wie van Christus zijn, bij Zijn komst.
@@ -48,7 +48,7 @@
 47. De eerste mens is uit de aarde, stoffelijk; de tweede mens is de Heere uit de hemel.
 48. Zoals de stoffelijke *is*, zo zijn ook de stoffelijke *mensen*, en zoals de Hemelse *is*, zo zijn ook de hemelse *mensen*.
 49. En zoals wij het beeld van de stoffelijke gedragen hebben, zo zullen wij ook het beeld van de Hemelse dragen.
-50. Maar dit zeg ik, broeders, dat vlees en bloed het Koninkrijk van God niet kunnen beërven, en de vergankelijkheid beërft de onvergankelijkheid niet.
+50. Maar dit zeg ik, broeders, dat vlees en bloed het Koninkrijk van God niet kunnen beÃ«rven, en de vergankelijkheid beÃ«rft de onvergankelijkheid niet.
 51. Zie, ik vertel u een geheimenis: Wij zullen wel niet allen ontslapen, maar wij zullen allen veranderd worden,
 52. in een ondeelbaar ogenblik, in een oogwenk, bij de laatste bazuin. Immers, de bazuin zal klinken en de doden zullen *als* onvergankelijke *mensen* opgewekt worden, *en* ook wij zullen veranderd worden.
 53. Want dit vergankelijke moet zich met onvergankelijkheid bekleden en dit sterfelijke *moet* zich met onsterfelijkheid bekleden.

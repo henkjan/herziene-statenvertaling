@@ -5,8 +5,8 @@
 4. Het hart van onbedachtzamen zal inzicht krijgen, en de tong van stamelaars zal bedreven zijn om duidelijk te spreken. 
 5. Een dwaas zal niet langer edelmoedig genoemd worden, en van een bedrieger zal niet gezegd worden: *Hij is* vrijgevig, 
 6. want een dwaas spreekt dwaasheid en zijn hart bedrijft onrecht door het plegen van goddeloosheid, het spreken van lastertaal tegen de HEERE, het onverzadigd laten van de hongerige, en het de dorstige aan drinken doen ontbreken. 
-7. De middelen van de bedrieger zijn slecht; híj beraamt schandelijke plannen om de ellendigen te gronde te richten door leugenachtige woorden, en wanneer de arme spreekt, het recht. 
-8. Maar de edelmoedige beraamt edelmoedige *plannen* en híj staat voor edelmoedige *daden*. 
+7. De middelen van de bedrieger zijn slecht; hÃ­j beraamt schandelijke plannen om de ellendigen te gronde te richten door leugenachtige woorden, en wanneer de arme spreekt, het recht. 
+8. Maar de edelmoedige beraamt edelmoedige *plannen* en hÃ­j staat voor edelmoedige *daden*. 
 9. Zorgeloze vrouwen, sta op, luister naar mijn stem! Onbezorgde dochters, neem mijn woorden ter ore! 
 10. Over ruim een jaar zult u sidderen, onbezorgde *dochters*, want het zal gedaan zijn met de wijnoogst; geen inzameling *van de oogst* zal er komen. 
 11. Beef, zorgeloze *vrouwen*; sidder, onbezorgde *dochters*! Trek uw kleren uit, doe alles uit! Omgord uw heupen *met een rouwgewaad*. 

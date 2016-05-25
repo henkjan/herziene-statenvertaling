@@ -4,11 +4,11 @@
 3. Laten wij opstaan en naar Bethel gaan. Ik zal daar een altaar maken voor de God Die mij antwoordde op de dag toen ik in nood was, en Die met mij geweest is op de weg die ik gegaan ben.
 4. Toen gaven zij Jakob al de vreemde goden die ze bij zich hadden, en de ringen die ze in de oren droegen. En Jakob verborg ze onder de eik die bij Sichem staat.
 5. Daarop braken zij op. Gods verschrikking lag over de steden die hen omringden, zodat zij de zonen van Jakob niet achtervolgden.
-6. Zo kwam Jakob in Luz, dat in het land Kanaän ligt - het *tegenwoordige* Bethel - hij en al het volk dat bij hem was.
+6. Zo kwam Jakob in Luz, dat in het land KanaÃ¤n ligt - het *tegenwoordige* Bethel - hij en al het volk dat bij hem was.
 7. Hij bouwde daar een altaar en noemde die plaats El Bethel, want God had Zich daar aan hem geopenbaard, toen hij voor zijn broer vluchtte.
 8. Toen stierf Debora, de voedster van Rebekka, en zij werd begraven ten zuiden van Bethel, onder die eik die hij de naam Eik van geween gaf.
 9. En God verscheen opnieuw aan Jakob, nadat hij uit Paddan-Aram gekomen was, en Hij zegende hem.
-10. God zei toen tegen hem: Uw naam is Jakob, *maar* uw naam zal voortaan niet meer Jakob luiden, maar Israël zal uw naam zijn; en Hij gaf hem de naam Israël.
+10. God zei toen tegen hem: Uw naam is Jakob, *maar* uw naam zal voortaan niet meer Jakob luiden, maar IsraÃ«l zal uw naam zijn; en Hij gaf hem de naam IsraÃ«l.
 11. Verder zei God tegen hem: Ik ben God, de Almachtige. Wees vruchtbaar en word talrijk. Een volk, ja, een menigte van volken zal uit u ontstaan; koningen zullen uit uw lichaam voortkomen.
 12. Dit land, dat Ik Abraham en Izak gegeven heb, dat zal Ik aan u geven; en aan uw nageslacht na u zal Ik dit land geven.
 13. Toen voer God op, bij hem vandaan, van de plaats waar Hij met hem gesproken had.
@@ -19,8 +19,8 @@
 18. En het gebeurde, toen haar ziel *het lichaam* verliet, want zij stierf, dat zij hem de naam Ben-oni gaf. Zijn vader gaf hem echter de naam Benjamin.
 19. Zo stierf Rachel en zij werd begraven langs de weg naar Efrath, dat is *het tegenwoordige* Bethlehem.
 20. Jakob richtte toen een gedenkteken op boven haar graf. Dat gedenkteken op het graf van Rachel staat *er* tot op deze dag.
-21. Toen brak Israël op en hij zette zijn tent op voorbij Migdal-Eder.
-22. En het gebeurde, toen Israël in dat land woonde, dat Ruben ging en met Bilha sliep, de bijvrouw van zijn vader; en Israël kwam dat te weten. Jakob had twaalf zonen.
+21. Toen brak IsraÃ«l op en hij zette zijn tent op voorbij Migdal-Eder.
+22. En het gebeurde, toen IsraÃ«l in dat land woonde, dat Ruben ging en met Bilha sliep, de bijvrouw van zijn vader; en IsraÃ«l kwam dat te weten. Jakob had twaalf zonen.
 23. De zonen van Lea: Ruben, de eerstgeborene van Jakob, en *daarna* Simeon, Levi, Juda, Issaschar en Zebulon.
 24. De zonen van Rachel: Jozef en Benjamin.
 25. Verder de zonen van Bilha, de slavin van Rachel: Dan en Naftali.

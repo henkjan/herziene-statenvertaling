@@ -10,7 +10,7 @@
 9. Immers, wij zijn van gisteren en weten niets, want onze dagen op aarde zijn een schaduw. 
 10. Zullen die je niet onderwijzen, tot je spreken, en uit hun hart woorden voortbrengen? 
 11. Groeien biezen waar geen moeras is? Groeit rietgras op zonder water? 
-12. Als het nog in zijn knop is, *ook al* wordt het niet afgeplukt, toch verdort het vóór al het *andere* gras. 
+12. Als het nog in zijn knop is, *ook al* wordt het niet afgeplukt, toch verdort het vÃ³Ã³r al het *andere* gras. 
 13. Zo zijn de paden van allen die God vergeten; de hoop van de huichelaar vergaat. 
 14. Hij zal walgen van waar hij *eerst* zijn hoop *op stelde*; zijn vertrouwen zal spinrag *blijken te* zijn. 
 15. Hij zal op zijn huis leunen, maar het zal niet blijven staan; hij zal het vastgrijpen, maar het zal niet staande blijven. 

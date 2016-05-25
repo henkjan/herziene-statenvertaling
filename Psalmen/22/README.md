@@ -2,7 +2,7 @@
 1. Een psalm van David, voor de koorleider, op ?De hinde van de dageraad?. 
 2. Mijn God, mijn God, waarom hebt U mij verlaten, *bent U* ver van mijn verlossing, *van* de woorden van mijn jammerklacht? 
 3. Mijn God, ik roep overdag, maar U antwoordt niet, en 's nachts, maar ik vind geen stilte. 
-4. Maar U bent heilig, U troont *op* de lofzangen van Israël. 
+4. Maar U bent heilig, U troont *op* de lofzangen van IsraÃ«l. 
 5. Op U hebben onze vaderen vertrouwd, zij hebben vertrouwd en U hebt hen bevrijd. 
 6. Tot U hebben zij geroepen en zij zijn gered, op U hebben zij vertrouwd en zij zijn niet beschaamd. 
 7. Maar ik ben een worm en geen man, een smaad van mensen en veracht door het volk. 
@@ -22,7 +22,7 @@
 21. Red mijn ziel van het zwaard, mijn eenzame *ziel* van het geweld van de hond. 
 22. Verlos mij uit de muil van de leeuw en van de horens van de wilde ossen. *Ja*, U hebt mij verhoord. 
 23. Ik zal Uw Naam mijn broeders vertellen, in het midden van de gemeente zal ik U loven. 
-24. U die de HEERE vreest, loof Hem; alle nakomelingen van Jakob, vereer Hem; wees bevreesd voor Hem, alle nakomelingen van Israël. 
+24. U die de HEERE vreest, loof Hem; alle nakomelingen van Jakob, vereer Hem; wees bevreesd voor Hem, alle nakomelingen van IsraÃ«l. 
 25. Want Hij heeft de ellendige in zijn ellende niet veracht en niet verafschuwd; Hij heeft Zijn aangezicht niet voor hem verborgen, maar Hij heeft gehoord, toen hij tot Hem riep. 
 26. Van U zal mijn lof zijn in een grote gemeente, mijn geloften zal ik nakomen in bijzijn van wie Hem vrezen. 
 27. De zachtmoedigen zullen eten en verzadigd worden; wie de HEERE zoeken, zullen Hem loven. Uw hart zal voor eeuwig leven. 

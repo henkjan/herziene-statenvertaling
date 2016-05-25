@@ -8,14 +8,14 @@
 7. dat Saul verteld werd dat David naar Kehila gekomen was. En Saul zei: God heeft hem in mijn hand overgegeven, want hij heeft zich ingesloten door een stad met poorten en grendels binnen te gaan.
 8. Toen liet Saul al het volk ten strijde roepen om naar Kehila te trekken en David en zijn mannen te belegeren.
 9. Toen David te weten kwam dat Saul dit kwaad tegen hem beraamde, zei hij tegen de priester Abjathar: Breng de efod hierheen.
-10. En David zei: HEERE, God van Israël, Uw dienaar heeft duidelijk gehoord dat Saul van plan is naar Kehila te komen, om de stad omwille van mij te gronde te richten.
-11. Zullen de burgers van Kehila mij in zijn hand uitleveren? Zal Saul komen, zoals Uw dienaar gehoord heeft? O HEERE, God van Israël, vertel het Uw dienaar toch. De HEERE zei: Hij zal komen.
+10. En David zei: HEERE, God van IsraÃ«l, Uw dienaar heeft duidelijk gehoord dat Saul van plan is naar Kehila te komen, om de stad omwille van mij te gronde te richten.
+11. Zullen de burgers van Kehila mij in zijn hand uitleveren? Zal Saul komen, zoals Uw dienaar gehoord heeft? O HEERE, God van IsraÃ«l, vertel het Uw dienaar toch. De HEERE zei: Hij zal komen.
 12. Daarna zei David: Zullen de burgers van Kehila mij en mijn mannen overleveren in de hand van Saul? En de HEERE zei: Zij zullen *u* overleveren.
 13. Toen stonden David en zijn mannen op, ongeveer zeshonderd man, en zij vertrokken uit Kehila. Zij gingen waar zij *maar* konden gaan. Toen Saul verteld werd dat David uit Kehila ontkomen was, zag hij ervan af *daarheen* uit te trekken.
 14. David verbleef in de woestijn in de bergvestingen; hij verbleef in het bergland in de woestijn Zif. Saul zocht hem alle dagen, maar God gaf hem niet over in zijn hand.
 15. Toen David zag dat Saul eropuit getrokken was om hem naar het leven te staan, was David in de woestijn Zif, in Choresa.
 16. Toen stond Jonathan, de zoon van Saul, op en ging naar David in Choresa; en hij bemoedigde hem in God.
-17. Hij zei tegen hem: Wees niet bevreesd, want de hand van mijn vader Saul zal je niet vinden, maar jij zult koning worden over Israël en ik zal de tweede na jou zijn. Ook mijn vader Saul weet dit wel.
+17. Hij zei tegen hem: Wees niet bevreesd, want de hand van mijn vader Saul zal je niet vinden, maar jij zult koning worden over IsraÃ«l en ik zal de tweede na jou zijn. Ook mijn vader Saul weet dit wel.
 18. En zij sloten een verbond met elkaar voor het aangezicht van de HEERE; en David bleef in Choresa, maar Jonathan ging naar zijn huis.
 19. Toen trokken de Zifieten naar Saul in Gibea en zeiden: *Weet u* niet dat David zich bij ons verborgen heeft in de bergvestingen in Choresa, op de heuvel van Hachila, die ten zuiden van de wildernis ligt?
 20. Welnu, koning, kom dan snel, overeenkomstig het volle verlangen van uw ziel; dan is het aan ons hem uit te leveren in de hand van de koning.

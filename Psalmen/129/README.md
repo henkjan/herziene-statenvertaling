@@ -1,5 +1,5 @@
 #Psalmen 129
-1. Een pelgrimslied. Zij hebben mij dikwijls benauwd, vanaf mijn jeugd - zeg dat toch, Israël. 
+1. Een pelgrimslied. Zij hebben mij dikwijls benauwd, vanaf mijn jeugd - zeg dat toch, IsraÃ«l. 
 2. Zij hebben mij dikwijls benauwd, vanaf mijn jeugd; toch hebben zij mij niet overwonnen. 
 3. Ploegers hebben mijn rug geploegd, zij hebben hun voren lang gemaakt. 
 4. De HEERE, Die rechtvaardig is, heeft de touwen van de goddelozen afgehakt. 

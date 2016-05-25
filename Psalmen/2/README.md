@@ -5,7 +5,7 @@
 4. Die in de hemel woont, zal lachen, de Heere zal hen bespotten. 
 5. Dan zal Hij tot hen spreken in Zijn toorn, in Zijn brandende *toorn* hun schrik aanjagen. 
 6. Ik heb Mijn Koning toch gezalfd over Sion, Mijn heilige berg. 
-7. Ik zal het besluit bekendmaken: De HEERE heeft tegen Mij gezegd: U bent Mijn Zoon, Õk heb U heden verwekt. 
+7. Ik zal het besluit bekendmaken: De HEERE heeft tegen Mij gezegd: U bent Mijn Zoon, √çk heb U heden verwekt. 
 8. Eis van Mij en Ik zal *U* de heidenvolken *als* Uw eigendom geven, de einden der aarde *als* Uw bezit. 
 9. U zult hen verpletteren met een ijzeren scepter, U zult hen in stukken slaan als aardewerk. 
 10. Nu dan, koningen, handel verstandig. Laat u onderwijzen, rechters van de aarde. 

@@ -39,8 +39,8 @@
 38. De man van wie de demonen uitgegaan waren, bad Hem of hij bij Hem mocht blijven, maar Jezus stuurde hem weg en zei:
 39. Keer terug naar uw huis en vertel wat voor grote dingen God aan u gedaan heeft. En hij ging heel de stad door en verkondigde wat voor grote dingen Jezus aan hem gedaan had.
 40. Het gebeurde, toen Jezus terugkeerde, dat de menigte Hem ontving, want ze waren allen op Hem blijven wachten.
-41. En zie, er kwam een man, van wie de naam Jaïrus was. Hij was een leidinggevende in de synagoge. Hij viel aan de voeten van Jezus en smeekte Hem naar zijn huis te komen.
-42. Hij had namelijk één kind, een dochter van ongeveer twaalf jaar, en die lag op sterven. Toen Hij erheen ging, drong de menigte zich om Hem heen.
+41. En zie, er kwam een man, van wie de naam JaÃ¯rus was. Hij was een leidinggevende in de synagoge. Hij viel aan de voeten van Jezus en smeekte Hem naar zijn huis te komen.
+42. Hij had namelijk Ã©Ã©n kind, een dochter van ongeveer twaalf jaar, en die lag op sterven. Toen Hij erheen ging, drong de menigte zich om Hem heen.
 43. En een vrouw die al twaalf jaar bloedvloeiingen had *en* die al haar bezit aan dokters uitgegeven had, maar door niemand genezen had kunnen worden,
 44. kwam van achteren naar Hem toe en raakte de zoom van Zijn bovenkleed aan; en onmiddellijk hield het vloeien van haar bloed op.
 45. En Jezus zei: Wie is het die Mij heeft aangeraakt? Toen zij het allen ontkenden, zeiden Petrus en die bij hem waren: Meester, de menigte duwt tegen U aan en verdringt U, en U zegt: Wie is het die Mij aangeraakt heeft?

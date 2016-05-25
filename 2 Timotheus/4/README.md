@@ -8,7 +8,7 @@
 7. Ik heb de goede strijd gestreden. Ik heb de loop tot een einde gebracht. Ik heb het geloof behouden.
 8. Verder is voor mij weggelegd de krans van de rechtvaardigheid die de Heere, de rechtvaardige Rechter, mij op die dag geven zal. En niet alleen mij, maar ook allen die Zijn verschijning hebben liefgehad.
 9. Beijver u om spoedig naar mij toe te komen,
-10. want Demas heeft mij verlaten, omdat hij de tegenwoordige wereld heeft liefgekregen. Hij is naar Thessalonica vertrokken, Krescens naar Galatië, Titus naar Dalmatië.
+10. want Demas heeft mij verlaten, omdat hij de tegenwoordige wereld heeft liefgekregen. Hij is naar Thessalonica vertrokken, Krescens naar GalatiÃ«, Titus naar DalmatiÃ«.
 11. Alleen Lukas is bij mij. Haal Markus op en breng *hem* met u mee, want hij is voor mij van veel nut voor de *ambtelijke* bediening.
 12. Maar Tychikus heb ik naar Efeze gestuurd.
 13. Breng, wanneer u komt, de reismantel mee die ik in Troas bij Karpus achtergelaten heb, en de boeken, vooral de perkamenten.

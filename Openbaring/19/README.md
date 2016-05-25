@@ -15,7 +15,7 @@
 14. En de legers in de hemel volgden Hem op witte paarden, gekleed in fijn linnen, wit en smetteloos.
 15. En uit Zijn mond kwam een scherp zwaard, opdat Hij daarmee de heidenvolken zou slaan. En Hij zal hen hoeden met een ijzeren staf. En Hij treedt de wijnpersbak van de wijn van de grimmige toorn van de almachtige God.
 16. Er stond op *Zijn* bovenkleed en op *Zijn* dij deze naam geschreven: Koning der koningen en Heere der heren.
-17. En ik zag één engel dicht bij de zon staan, en hij riep met luide stem naar alle vogels die hoog aan de hemel vlogen: Kom en verzamel u voor het avondmaal van de grote God,
+17. En ik zag Ã©Ã©n engel dicht bij de zon staan, en hij riep met luide stem naar alle vogels die hoog aan de hemel vlogen: Kom en verzamel u voor het avondmaal van de grote God,
 18. om te eten vlees van koningen, en vlees van oversten over duizend, en vlees van machtigen, en vlees van paarden en van hen die daarop zitten, en vlees van alle vrijen en van slaven, kleinen en groten.
 19. En ik zag het beest en de koningen van de aarde en hun legers bijeenverzameld om oorlog te voeren tegen Hem Die op het paard zat, en tegen Zijn leger.
 20. En het beest werd gegrepen, en met hem de valse profeet, die in zijn tegenwoordigheid de tekenen gedaan had, waardoor hij hen misleid had die het merkteken van het beest ontvangen hadden en die zijn beeld aanbeden hadden. Deze twee werden levend geworpen in de poel van vuur, die van zwavel brandt.

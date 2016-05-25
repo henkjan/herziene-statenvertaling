@@ -16,7 +16,7 @@
 15. Goed verstand geeft gunst, maar de weg van de trouwelozen is onbegaanbaar. 
 16. Al wie schrander is, handelt met kennis *van zaken*, maar een dwaas verspreidt dwaasheid. 
 17. Een goddeloze bode vervalt in het kwaad, maar een betrouwbare gezant betekent genezing. 
-18. Armoede en schande zijn er voor wie vermaning verwerpt, maar wie bestraffing in acht neemt, zal geëerd worden. 
+18. Armoede en schande zijn er voor wie vermaning verwerpt, maar wie bestraffing in acht neemt, zal geÃ«erd worden. 
 19. Een vervuld verlangen is aangenaam voor de ziel, maar voor dwazen is het een gruwel zich van het kwade af te keren. 
 20. Wie met wijzen omgaat, zal wijs worden, maar wie omgaat met dwazen, zal het slecht vergaan. 
 21. Het kwaad achtervolgt de zondaars, maar de rechtvaardige zal men het goede vergelden. 

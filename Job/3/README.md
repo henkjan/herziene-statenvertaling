@@ -10,7 +10,7 @@
 9. Laat de sterren van zijn schemering verduisterd worden, laat hij wachten op het licht, maar laat het er niet zijn. Laat hij de oogleden van de dageraad niet zien. 
 10. Hij heeft immers de deuren van mijn buik niet gesloten, en de moeite *niet* voor mijn ogen verborgen. 
 11. Waarom ben ik niet van de baarmoeder af gestorven, *en* heb ik de geest *niet* gegeven toen ik uit de buik naar buiten kwam? 
-12. Waarom zijn de knieën mij tegemoetgekomen, en waarom *waren er* borsten, zodat ik kon zuigen? 
+12. Waarom zijn de knieÃ«n mij tegemoetgekomen, en waarom *waren er* borsten, zodat ik kon zuigen? 
 13. Want *dan* zou ik nu neerliggen en stil zijn; ik zou slapen, dan zou ik rust hebben, 
 14. *samen* met de koningen en raadsheren van de aarde, die voor zichzelf puinhopen opbouwden;
 15. of met de vorsten die goud hadden, die hun huizen met zilver vulden. 

@@ -1,11 +1,11 @@
 #Richteren 13
-1. Maar de Israëlieten deden opnieuw wat slecht was in de ogen van de HEERE. Daarom gaf de HEERE hen over in de hand van de Filistijnen, veertig jaar *lang*.
+1. Maar de IsraÃ«lieten deden opnieuw wat slecht was in de ogen van de HEERE. Daarom gaf de HEERE hen over in de hand van de Filistijnen, veertig jaar *lang*.
 2. En er was een man uit Zora, uit het geslacht van de Danieten, en zijn naam was Manoach. Zijn vrouw was onvruchtbaar en had geen *kinderen* gebaard.
 3. Toen verscheen er een Engel van de HEERE aan deze vrouw, en zei tegen haar: Zie toch, u bent onvruchtbaar en hebt geen *kinderen* gebaard. U zult echter zwanger worden en een zoon baren.
 4. Welnu dan, wees toch op uw hoede dat u geen wijn of sterkedrank drinkt, en eet niets onreins.
-5. Want zie, u zult zwanger worden en een zoon baren. En er mag geen scheermes op zijn hoofd komen. Want het jongetje zal van de *moeder*schoot af als nazireeër aan God *gewijd* zijn, en hij zal beginnen Israël te verlossen uit de hand van de Filistijnen.
+5. Want zie, u zult zwanger worden en een zoon baren. En er mag geen scheermes op zijn hoofd komen. Want het jongetje zal van de *moeder*schoot af als nazireeÃ«r aan God *gewijd* zijn, en hij zal beginnen IsraÃ«l te verlossen uit de hand van de Filistijnen.
 6. Toen ging deze vrouw naar binnen en zei tegen haar man: Een Man Gods kwam bij mij en Zijn uiterlijk was als het uiterlijk van een Engel van God, heel ontzagwekkend. Ik vroeg Hem niet waar Hij vandaan kwam, en Hij heeft mij Zijn Naam niet verteld.
-7. Maar Hij zei tegen mij: Zie, u zult zwanger worden en een zoon baren. Welnu, drink geen wijn of sterkedrank en eet niets onreins, want het jongetje zal van de *moeder*schoot af tot op de dag van zijn dood als nazireeër aan God *gewijd* zijn.
+7. Maar Hij zei tegen mij: Zie, u zult zwanger worden en een zoon baren. Welnu, drink geen wijn of sterkedrank en eet niets onreins, want het jongetje zal van de *moeder*schoot af tot op de dag van zijn dood als nazireeÃ«r aan God *gewijd* zijn.
 8. Daarop bad Manoach de HEERE vurig en zei: Ach, Heere, laat de Man Gods Die U gezonden hebt, toch opnieuw naar ons toe komen om ons te leren wat wij met het jongetje dat geboren zal worden, moeten doen.
 9. En God verhoorde de stem van Manoach, en de Engel van God kwam opnieuw naar de vrouw toe, terwijl zij in het veld zat, en haar man Manoach niet bij haar was.
 10. Toen haastte de vrouw zich en snelde *weg* en vertelde het haar man. En zij zei tegen hem: Zie, de Man Die op die dag naar mij toe kwam, is mij verschenen.

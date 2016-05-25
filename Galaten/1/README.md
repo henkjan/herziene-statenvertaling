@@ -1,6 +1,6 @@
 #Galaten 1
 1. Paulus, een apostel - *geroepen*, niet vanwege mensen, ook niet door een mens, maar door Jezus Christus en God de Vader, Die Hem uit de doden opgewekt heeft -
-2. en al de broeders die bij mij zijn, aan de gemeenten van Galatië:
+2. en al de broeders die bij mij zijn, aan de gemeenten van GalatiÃ«:
 3. genade *zij* u en vrede van God de Vader en van onze Heere Jezus Christus,
 4. Die Zichzelf gegeven heeft voor onze zonden, opdat Hij ons zou ontrukken aan de tegenwoordige slechte wereld, overeenkomstig de wil van onze God en Vader.
 5. Hem *zij* de heerlijkheid in alle eeuwigheid. Amen.
@@ -15,11 +15,11 @@
 14. en dat ik in het Jodendom meer vorderingen maakte dan veel leeftijdgenoten onder mijn volk, omdat ik een nog groter ijveraar was voor de overleveringen van mijn vaderen.
 15. Maar toen het God, Die mij vanaf de schoot van mijn moeder heeft afgezonderd en geroepen door Zijn genade, behaagde
 16. Zijn Zoon in mij te openbaren, opdat ik Hem door het Evangelie onder de heidenen zou verkondigen, ging ik niet meteen te rade bij vlees en bloed,
-17. en ging ik ook niet naar Jeruzalem, naar hen die *al* vóór mij apostel waren; maar ik vertrok naar Arabië en keerde weer terug naar Damascus.
+17. en ging ik ook niet naar Jeruzalem, naar hen die *al* vÃ³Ã³r mij apostel waren; maar ik vertrok naar ArabiÃ« en keerde weer terug naar Damascus.
 18. Daarna, drie jaar later, ging ik naar Jeruzalem om Petrus te bezoeken, en ik bleef vijftien dagen bij hem.
 19. En ik heb niemand anders van de apostelen gezien; alleen Jakobus, de broer van de Heere.
 20. Wat ik u schrijf, zie, *ik getuig* voor God dat ik niet lieg.
-21. Daarna kwam ik in de streken van Syrië en Cilicië.
+21. Daarna kwam ik in de streken van SyriÃ« en CiliciÃ«.
 22. En ik was van gezicht onbekend aan de gemeenten van Judea die in Christus zijn.
 23. Maar zij hadden alleen horen zeggen: Hij die ons voorheen vervolgde, verkondigt nu het geloof dat hij voorheen verwoestte.
 24. En zij verheerlijkten God in mij.

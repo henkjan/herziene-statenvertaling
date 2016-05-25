@@ -1,7 +1,7 @@
 #Lukas 20
 1. Het gebeurde op een van die dagen, toen Hij in de tempel het volk onderwees en het Evangelie verkondigde, dat de overpriesters en de Schriftgeleerden met de oudsten daarbij kwamen staan.
 2. En zij zeiden tegen Hem: Zeg ons met welke bevoegdheid U deze dingen doet, of wie het is die U deze bevoegdheid heeft gegeven.
-3. En Hij antwoordde en zei tegen hen: Ik zal u ook één vraag stellen. Zeg Mij eens:
+3. En Hij antwoordde en zei tegen hen: Ik zal u ook Ã©Ã©n vraag stellen. Zeg Mij eens:
 4. De doop van Johannes, was die uit de hemel of uit de mensen?
 5. Zij nu overlegden onder elkaar en zeiden: Als wij zeggen: Uit de hemel, dan zal Hij zeggen: Waarom hebt u hem dan niet geloofd?
 6. Maar als wij zeggen: Uit de mensen, dan zal heel het volk ons stenigen, want het is ervan overtuigd dat Johannes een profeet was.
@@ -25,7 +25,7 @@
 24. Laat Mij een penning zien. Van wie is het beeld en opschrift? Zij antwoordden en zeiden: Van de keizer.
 25. En Hij zei tegen hen: Geef dan aan de keizer wat van de keizer is en aan God wat van God *is*.
 26. Zij nu konden Hem tegenover het volk op *Zijn* woord niet vangen en zij verwonderden zich over Zijn antwoord en zwegen.
-27. En sommigen van de Sadduceeën, die ontkennen dat er een opstanding is, kwamen naar Hem toe, en vroegen Hem
+27. En sommigen van de SadduceeÃ«n, die ontkennen dat er een opstanding is, kwamen naar Hem toe, en vroegen Hem
 28. en zeiden: Meester, Mozes heeft ons geschreven: Als iemands broer die een vrouw heeft, sterft en deze sterft kinderloos, laat *dan* zijn broer de vrouw nemen en nageslacht voor zijn broer verwekken.
 29. Er waren nu zeven broers. En de eerste nam een vrouw en stierf kinderloos.
 30. Toen nam de tweede de vrouw en ook hij stierf kinderloos.

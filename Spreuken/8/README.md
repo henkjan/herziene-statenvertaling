@@ -20,10 +20,10 @@
 19. Mijn vrucht is beter dan bewerkt goud en dan zuiver goud, Mijn opbrengst *beter* dan het beste zilver. 
 20. Ik loop op het pad van de gerechtigheid, midden op de paden van het recht, 
 21. om wie Mij liefhebben, in erfelijk bezit te laten nemen wat er is, en Ik zal hun schatkamers vullen.
-22. De HEERE bezat Mij *aan* het begin van Zijn weg, *al* v篌r Zijn werken, van oudsher. 
+22. De HEERE bezat Mij *aan* het begin van Zijn weg, *al* v贸贸r Zijn werken, van oudsher. 
 23. Van eeuwigheid af ben Ik gezalfd geweest, vanaf het begin, vanaf de tijden voordat de aarde *er was*. 
 24. Toen er *nog* geen diepe wateren waren, werd Ik geboren, toen er *nog* geen bronnen waren, zwaar van water. 
-25. Voordat de bergen waren verzonken, v篌r de heuvels, werd Ik geboren. 
+25. Voordat de bergen waren verzonken, v贸贸r de heuvels, werd Ik geboren. 
 26. Hij had de aarde en de velden nog niet gemaakt, evenmin het begin van de stofjes van de wereld. 
 27. Toen Hij de hemel gereedmaakte, was Ik daar, toen Hij een cirkel trok over het oppervlak van de watervloed, 
 28. toen Hij de wolken daarboven sterk maakte, Hij de bronnen van de watervloed versterkte, 

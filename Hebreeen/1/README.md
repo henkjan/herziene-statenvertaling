@@ -12,4 +12,4 @@
 11. Die zullen vergaan, maar U blijft altijd. En ze zullen alle verslijten als een gewaad,
 12. en als een mantel zult U ze oprollen en ze zullen verwisseld worden; maar U bent Dezelfde en Uw jaren zullen niet ophouden.
 13. En tegen wie van de engelen heeft Hij ooit gezegd: Zit aan Mijn rechter*hand*, totdat Ik Uw vijanden neergelegd heb als een voetbank voor Uw voeten?
-14. Zijn zij niet allen dienende geesten, die uitgezonden worden ten dienste van hen die de zaligheid zullen beërven?
+14. Zijn zij niet allen dienende geesten, die uitgezonden worden ten dienste van hen die de zaligheid zullen beÃ«rven?

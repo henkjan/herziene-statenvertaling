@@ -1,9 +1,9 @@
 #2 Korinthe 9
 1. Want het is voor mij niet nodig u te schrijven over het dienstbetoon aan de heiligen.
-2. Want ik weet van uw bereidwilligheid, waarover ik u roem bij de Macedoniërs, *namelijk* dat Achaje al sinds een jaar gereed is. En uw ijver heeft velen aangestoken.
+2. Want ik weet van uw bereidwilligheid, waarover ik u roem bij de MacedoniÃ«rs, *namelijk* dat Achaje al sinds een jaar gereed is. En uw ijver heeft velen aangestoken.
 3. Maar ik heb de broeders gestuurd, opdat onze roem over u in dit opzicht niet zonder inhoud zou blijken, opdat u - zoals ik zei - gereed bent;
-4. opdat niet misschien, als er Macedoniërs met mij meekomen en zij u niet gereed vinden, wij - om niet te zeggen: u - beschaamd worden in dit vertrouwen op *onze* roem *over u*.
-5. Ik achtte het dus nodig de broeders aan te sporen eerst naar u toe te gaan en de eerder door u beloofde zegen vóóraf in gereedheid te brengen, zodat deze gereedligt als een zegen en niet als een *gift in* gierigheid *gegeven*.
+4. opdat niet misschien, als er MacedoniÃ«rs met mij meekomen en zij u niet gereed vinden, wij - om niet te zeggen: u - beschaamd worden in dit vertrouwen op *onze* roem *over u*.
+5. Ik achtte het dus nodig de broeders aan te sporen eerst naar u toe te gaan en de eerder door u beloofde zegen vÃ³Ã³raf in gereedheid te brengen, zodat deze gereedligt als een zegen en niet als een *gift in* gierigheid *gegeven*.
 6. En dit *zeg ik*: Wie karig zaait, zal ook karig oogsten; en wie zegenrijk zaait, zal ook zegenrijk oogsten.
 7. Laat ieder *doen* zoals hij in *zijn* hart voorgenomen heeft, niet met tegenzin of uit dwang, want God heeft een blijmoedige gever lief.
 8. En God is bij machte elke *vorm van* genade overvloedig te maken in u, zodat u, wanneer u in alles altijd al het nodige bezit, overvloedig kunt zijn in elk goed werk.

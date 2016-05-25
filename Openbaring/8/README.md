@@ -1,8 +1,8 @@
 #Openbaring 8
 1. En toen het *Lam* het zevende zegel geopend had, kwam er een stilte in de hemel van ongeveer een half uur.
-2. En ik zag de zeven engelen die v篌r God stonden en aan hen werden zeven bazuinen gegeven.
-3. En er kwam een andere engel, die met een gouden wierookvat bij het altaar ging staan. Aan hem werd veel reukwerk gegeven, opdat hij dat *samen met* de gebeden van alle heiligen op het gouden altaar v篌r de troon zou leggen.
-4. En de rook van het reukwerk steeg, *met* de gebeden van de heiligen, uit de hand van de engel op *tot* v篌r God.
+2. En ik zag de zeven engelen die v贸贸r God stonden en aan hen werden zeven bazuinen gegeven.
+3. En er kwam een andere engel, die met een gouden wierookvat bij het altaar ging staan. Aan hem werd veel reukwerk gegeven, opdat hij dat *samen met* de gebeden van alle heiligen op het gouden altaar v贸贸r de troon zou leggen.
+4. En de rook van het reukwerk steeg, *met* de gebeden van de heiligen, uit de hand van de engel op *tot* v贸贸r God.
 5. En de engel nam het wierookvat en vulde dat met het vuur van het altaar en wierp het op de aarde, en er *kwamen* stemmen, donderslagen, bliksemstralen en een aardbeving.
 6. En de zeven engelen die de zeven bazuinen hadden, gingen zich gereedmaken om op de bazuin te blazen.
 7. En de eerste engel blies op de bazuin, en er kwam hagel en vuur, vermengd met bloed, en dat werd op de aarde geworpen. En het derde *deel* van de bomen verbrandde, en al het groene gras verbrandde.
@@ -11,4 +11,4 @@
 10. En *toen* de derde engel op de bazuin blies, viel er een grote ster uit de hemel, die brandde als een fakkel. Hij viel op het derde *deel* van de rivieren en op de waterbronnen.
 11. En de naam van de ster was Alsem. En het derde *deel* van de wateren veranderde in alsem. En veel mensen stierven van dat water, omdat het bitter was geworden.
 12. De vierde engel blies op de bazuin, en het derde *deel* van de zon werd getroffen, en het derde *deel* van de maan en het derde *deel* van de sterren, zodat het derde *deel* daarvan verduisterd werd, en zodat de dag voor een derde *deel* niet licht werd, en de nacht evenmin.
-13. En ik zag en hoorde 殚n engel, die hoog aan de hemel vloog en met een luide stem riep: Wee, wee, wee hun die op de aarde wonen, vanwege de overige bazuinstoten van de drie engelen die *nog* op de bazuin zullen blazen.
+13. En ik zag en hoorde 茅茅n engel, die hoog aan de hemel vloog en met een luide stem riep: Wee, wee, wee hun die op de aarde wonen, vanwege de overige bazuinstoten van de drie engelen die *nog* op de bazuin zullen blazen.

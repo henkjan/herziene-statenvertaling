@@ -19,6 +19,6 @@
 18. Zij roepen en de HEERE hoort, [ tsade] Hij redt hen uit al hun benauwdheden. 
 19. De HEERE is nabij de gebrokenen van hart, [ koph] Hij verlost de verbrijzelden van geest. 
 20. De rechtvaardige heeft veel ellende, [ resj] maar uit dat alles redt de HEERE hem. 
-21. Hij bewaart al zijn beenderen, [ sjin] niet één daarvan wordt gebroken. 
+21. Hij bewaart al zijn beenderen, [ sjin] niet Ã©Ã©n daarvan wordt gebroken. 
 22. Het kwaad brengt de goddeloze de dood; [ taw] wie de rechtvaardige haten, worden schuldig verklaard. 
 23. De HEERE verlost de ziel van Zijn dienaren; allen die tot Hem de toevlucht nemen, worden niet schuldig verklaard.

@@ -4,7 +4,7 @@
 3. Wie bereidt voor de raaf zijn voedsel, als zijn jongen om hulp roepen tot God, *als* zij ronddwalen omdat er geen eten is? 
 4. Weet u de tijd waarop de berggeiten baren? Hebt u gezien dat de hinden jongen werpen? 
 5. Kunt u de maanden tellen *die* zij vol moeten maken? En weet u de tijd van hun baren? 
-6. Zij krommen zich *en* werpen hun jongen, hun weeën drijven *hun vrucht* uit. 
+6. Zij krommen zich *en* werpen hun jongen, hun weeÃ«n drijven *hun vrucht* uit. 
 7. Hun jongen worden sterk, ze worden groot in het veld; ze gaan weg en komen niet *meer* bij hen terug. 
 8. Wie heeft de wilde ezel vrij laten gaan? En wie heeft de banden van de woudezel losgemaakt? 
 9. Ik heb *hem* de wildernis als zijn huis gegeven, en de zoutvlakte als zijn woning. 
@@ -36,4 +36,4 @@
 35. Zal hij die een rechtszaak voert met de Almachtige, *Hem* onderwijzen? Laat hij die God ter verantwoording roept, daarop antwoorden.
 36. Toen antwoordde Job de HEERE en zei: 
 37. Zie, ik ben te gering; wat zou ik U antwoorden? Ik leg mijn hand op mijn mond. 
-38. Eén keer heb ik gesproken, maar ik zal niet antwoorden; twee keer, maar ik zal niet verdergaan.
+38. EÃ©n keer heb ik gesproken, maar ik zal niet antwoorden; twee keer, maar ik zal niet verdergaan.

@@ -40,7 +40,7 @@
 39. Wat klaagt *dan* een mens die leeft? [ mem] *Laat* ieder *klagen* over zijn zonden! 
 40. Laten wij onze wegen onderzoeken en doorzoeken, [ nun] en laten wij terugkeren tot de HEERE! 
 41. Laten wij met *onze* handen *ook* ons hart opheffen, [ nun] tot God in de hemel! 
-42. Wíj hebben overtreden en zijn ongehoorzaam geweest! [ nun] Ú hebt niet vergeven! 
+42. WÃ­j hebben overtreden en zijn ongehoorzaam geweest! [ nun] Ãš hebt niet vergeven! 
 43. U hebt *U* in toorn gehuld en hebt ons achtervolgd; [ samech] U hebt gedood, U hebt niet gespaard. 
 44. U hebt U in een wolk gehuld, [ samech] zodat er geen gebed doorkwam. 
 45. Uitvaagsel en afval hebt U van ons gemaakt[ samech] in het midden van de volken! 

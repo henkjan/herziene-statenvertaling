@@ -1,16 +1,16 @@
 #Mattheus 16
-1. En de Farizeeën en de Sadduceeën kwamen naar Hem toe om *Hem* te verzoeken, en zij vroegen Hem of Hij hun een teken uit de hemel wilde laten zien.
+1. En de FarizeeÃ«n en de SadduceeÃ«n kwamen naar Hem toe om *Hem* te verzoeken, en zij vroegen Hem of Hij hun een teken uit de hemel wilde laten zien.
 2. Maar Hij antwoordde en zei tegen hen: Als het avond geworden is, zegt u: Mooi weer, want de hemel is rood;
 3. en 's morgens: Vandaag storm, want de hemel is somber rood. Huichelaars! De aanblik van de lucht weet u wel te onderscheiden, en kunt u de tekenen van de tijden niet *onderscheiden*?
 4. *Het* verdorven en overspelig geslacht verlangt een teken; maar hun zal geen teken gegeven worden dan het teken van Jona, de profeet. En Hij verliet hen en ging weg.
 5. En toen Zijn discipelen aan de overkant gekomen waren, *bleek* dat zij vergeten hadden broden *mee* te nemen.
-6. Jezus zei tegen hen: Kijk uit, en wees op uw hoede voor het zuurdeeg van de Farizeeën en de Sadduceeën.
+6. Jezus zei tegen hen: Kijk uit, en wees op uw hoede voor het zuurdeeg van de FarizeeÃ«n en de SadduceeÃ«n.
 7. Zij spraken erover met elkaar en zeiden: *Dit zegt Hij*, omdat wij geen broden meegenomen hebben.
 8. En Jezus, Die dat wist, zei tegen hen: Waarom spreekt u er met elkaar over, kleingelovigen, dat u geen broden meegenomen hebt?
 9. Ziet u het nog niet in? En herinnert u zich niet de vijf broden voor de vijfduizend, en hoeveel korven u opgehaald hebt?
 10. En ook niet de zeven broden voor de vierduizend, en hoeveel manden u opgehaald hebt?
-11. Waarom ziet u dan niet in dat Ik tot u niet over brood gesproken heb, *toen Ik zei* dat u op uw hoede moest zijn voor het zuurdeeg van de Farizeeën en de Sadduceeën?
-12. Toen begrepen zij dat Hij niet gezegd had dat zij op hun hoede moesten zijn voor het zuurdeeg van het brood, maar voor het onderricht van de Farizeeën en de Sadduceeën.
+11. Waarom ziet u dan niet in dat Ik tot u niet over brood gesproken heb, *toen Ik zei* dat u op uw hoede moest zijn voor het zuurdeeg van de FarizeeÃ«n en de SadduceeÃ«n?
+12. Toen begrepen zij dat Hij niet gezegd had dat zij op hun hoede moesten zijn voor het zuurdeeg van het brood, maar voor het onderricht van de FarizeeÃ«n en de SadduceeÃ«n.
 13. Toen Jezus gekomen was in het gebied van Caesarea Filippi, vroeg Hij aan Zijn discipelen: Wie zeggen de mensen dat Ik, de Zoon des mensen, ben?
 14. Zij zeiden: Sommigen: Johannes de Doper, en anderen: Elia, en *weer* anderen: Jeremia of een van de profeten.
 15. Hij zei tegen hen: Maar u, wie zegt u dat Ik ben?

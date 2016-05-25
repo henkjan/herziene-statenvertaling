@@ -1,5 +1,5 @@
 #1 Samuel 1
-1. Er was een man uit Ramathaïm-Zofim, uit het bergland van Efraïm, en zijn naam was Elkana, een zoon van Jeroham, de zoon van Elihu, de zoon van Tochu, de zoon van Zuf, een Efrathiet.
+1. Er was een man uit RamathaÃ¯m-Zofim, uit het bergland van EfraÃ¯m, en zijn naam was Elkana, een zoon van Jeroham, de zoon van Elihu, de zoon van Tochu, de zoon van Zuf, een Efrathiet.
 2. En hij had twee vrouwen. De naam van de ene was Hanna en de naam van de andere Peninna. Nu had Peninna kinderen, maar Hanna had geen kinderen.
 3. Deze man ging van jaar tot jaar zijn stad uit om zich in Silo voor de HEERE van de legermachten neer te buigen en offers te brengen. Daar waren de twee zonen van Eli, Hofni en Pinehas, priesters van de HEERE.
 4. Wanneer de dag kwam dat Elkana een offer bracht, gaf hij delen *van het vlees* aan Peninna, zijn vrouw, en aan al haar zonen en haar dochters.
@@ -15,7 +15,7 @@
 14. En Eli zei tegen haar: Hoelang zult u zich nog dronken gedragen? Ontdoe u van uw wijn.
 15. Maar Hanna antwoordde en zei: Nee, mijn heer, ik ben een diepbedroefde vrouw; ik heb geen wijn of sterkedrank gedronken, maar ik heb mijn ziel uitgestort voor het aangezicht van de HEERE.
 16. Houd uw dienares toch niet voor een verdorven vrouw, want vanwege de veelheid van mijn gedachten en mijn verdriet heb ik tot nu toe gesproken.
-17. Toen antwoordde Eli en zei: Ga in vrede, en de God van Israël zal u geven wat u van Hem gebeden hebt.
+17. Toen antwoordde Eli en zei: Ga in vrede, en de God van IsraÃ«l zal u geven wat u van Hem gebeden hebt.
 18. Zij zei: Laat uw dienares genade vinden in uw ogen. Vervolgens ging de vrouw haars weegs. Zij at *weer* en haar gezicht stond bij haar niet meer *als voorheen*.
 19. Zij stonden 's morgens vroeg op, bogen zich neer voor het aangezicht van de HEERE, keerden terug en kwamen aan bij hun huis in Rama. Elkana kwam bij zijn vrouw Hanna, en de HEERE dacht aan haar.
 20. Het gebeurde na verloop van dagen dat Hanna zwanger werd. Zij baarde een zoon en gaf hem de naam Samuel, want, *zei ze*, ik heb hem van de HEERE gebeden.

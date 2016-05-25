@@ -13,7 +13,7 @@
 12. Daarom lachte Sara in zichzelf: Zal ik nog liefdesgenot hebben, nu ik oud geworden ben en *ook* mijn heer oud is?
 13. En de HEERE zei tegen Abraham: Waarom heeft Sara toch gelachen en gezegd: Zou ik ook werkelijk baren, nu ik oud geworden ben?
 14. Zou er iets voor de HEERE te wonderlijk zijn? Op de vastgestelde tijd, over een jaar, zal Ik bij u terugkomen, en Sara zal een zoon hebben!
-15. Maar Sara ontkende het en zei: Ik heb niet gelachen; want zij was bevreesd. Maar Hij zei: Nee, u hebt wél gelachen.
+15. Maar Sara ontkende het en zei: Ik heb niet gelachen; want zij was bevreesd. Maar Hij zei: Nee, u hebt wÃ©l gelachen.
 16. Toen stonden de mannen vandaar op en keken in de richting van Sodom; en Abraham ging met hen mee om hen uitgeleide te doen.
 17. De HEERE zei: Zal Ik voor Abraham verbergen wat Ik ga doen?
 18. Immers, Abraham zal zeker tot een groot en machtig volk worden, en alle volken van de aarde zullen in hem gezegend worden.
@@ -31,4 +31,4 @@
 30. Verder zei hij: Laat de Heere toch niet *in toorn* ontbranden, omdat ik spreek; misschien zullen er daar dertig gevonden worden! En Hij zei: Ik zal het niet doen, als Ik er daar dertig vind.
 31. Hij zei: Zie toch, ik heb het aangedurfd om tot de Heere te spreken; misschien zullen er daar twintig gevonden worden! En Hij zei: Ik zal haar niet te gronde richten omwille van die twintig.
 32. Verder zei hij: Laat de Heere toch niet *in toorn* ontbranden, omdat ik nog eenmaal spreek: Misschien zullen er tien gevonden worden. En Hij zei: Ik zal haar niet te gronde richten omwille van die tien.
-33. Toen ging de HEERE weg, nadat Hij geëindigd had met Abraham te spreken, en Abraham keerde terug naar zijn *woon*plaats.
+33. Toen ging de HEERE weg, nadat Hij geÃ«indigd had met Abraham te spreken, en Abraham keerde terug naar zijn *woon*plaats.

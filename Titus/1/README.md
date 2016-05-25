@@ -1,10 +1,10 @@
 #Titus 1
 1. Paulus, een dienstknecht van God en een apostel van Jezus Christus, overeenkomstig het geloof van de uitverkorenen van God en de kennis van de waarheid, die in overeenstemming met de godsvrucht is,
-2. in de hoop op het eeuwige leven, dat God, Die niet liegen kan, vóór de tijden der eeuwen beloofd heeft. En Hij heeft op de door Hem bestemde tijd Zijn Woord geopenbaard,
+2. in de hoop op het eeuwige leven, dat God, Die niet liegen kan, vÃ³Ã³r de tijden der eeuwen beloofd heeft. En Hij heeft op de door Hem bestemde tijd Zijn Woord geopenbaard,
 3. door de prediking, die aan mij toevertrouwd is overeenkomstig het bevel van God, onze Zaligmaker. Aan Titus, *mijn* oprechte zoon overeenkomstig het gemeenschappelijk geloof:
 4. genade, barmhartigheid en vrede zij *u* van God de Vader en van de Heere Jezus Christus, onze Zaligmaker.
 5. Om die reden heb ik u op Kreta achtergelaten, opdat u verder in orde zou brengen wat *nog* ontbrak, en van stad tot stad ouderlingen zou aanstellen, zoals ik u opgedragen heb.
-6. Zo iemand moet onberispelijk zijn, de man van één vrouw, gelovige kinderen hebben, die niet te beschuldigen zijn van losbandigheid of opstandigheid.
+6. Zo iemand moet onberispelijk zijn, de man van Ã©Ã©n vrouw, gelovige kinderen hebben, die niet te beschuldigen zijn van losbandigheid of opstandigheid.
 7. Want een opziener moet onberispelijk zijn, als een beheerder van het huis van God, niet eigenzinnig, niet opvliegend, niet verslaafd aan wijn, niet vechtlustig, niet uit op oneerlijke winst,
 8. maar gastvrij, goedwillend, bezonnen, rechtvaardig, heilig, beheerst,
 9. iemand die zich houdt aan het betrouwbare woord, dat overeenkomstig de leer is, zodat hij bij machte is *anderen* te bemoedigen door het gezonde onderwijs en ook de tegensprekers te weerleggen.

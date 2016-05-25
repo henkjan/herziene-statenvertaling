@@ -21,14 +21,14 @@
 20. Zie, Ik zend een Engel voor u uit om over u te waken op de weg en u te brengen naar de plaats die Ik gereedgemaakt heb.
 21. Wees op uw hoede voor Zijn aangezicht en luister naar Zijn stem. Verbitter Hem niet, want Hij zal uw overtredingen niet vergeven, omdat Mijn Naam in het binnenste van Hem is.
 22. Maar als u aandachtig naar Zijn stem luistert en alles doet wat Ik spreken zal, zal Ik de vijand van uw vijanden zijn en de tegenstander van hen die u in het nauw brengen.
-23. Mijn Engel zal namelijk v篌r u uit gaan en u brengen bij de Amorieten en de Hethieten en de Ferezieten en de Kana鋘ieten en de Hevieten en de Jebusieten, en Ik zal hen uitroeien.
+23. Mijn Engel zal namelijk v贸贸r u uit gaan en u brengen bij de Amorieten en de Hethieten en de Ferezieten en de Kana盲nieten en de Hevieten en de Jebusieten, en Ik zal hen uitroeien.
 24. U mag zich voor hun goden niet neerbuigen en ze niet dienen. U mag niet doen overeenkomstig hun werken. Voorzeker, u moet ze volledig omverhalen en hun gewijde stenen helemaal in stukken slaan.
 25. U moet de HEERE, uw God, dienen. Dan zal Hij uw brood en uw water zegenen. Ik zal ziekte uit uw midden doen wijken.
 26. Geen *vrouw* in uw land zal een miskraam hebben of onvruchtbaar zijn. Ik zal het aantal van uw dagen vol maken.
-27. De schrik voor Mij zal Ik v篌r u uit zenden, en al de volken waaronder u komt, zal Ik in verwarring brengen. En Ik zal al uw vijanden voor u op de vlucht doen slaan.
-28. Ik zal ook horzels v篌r u uit zenden; die zullen de Hevieten, de Kana鋘ieten en de Hethieten v篌r u uit verdrijven.
-29. Ik zal hen niet in 殚n jaar v篌r u uit verdrijven, anders wordt het land een woestenij en worden de *wilde* dieren van het veld u te talrijk.
-30. Ik zal hen geleidelijk v篌r u uit verdrijven, totdat u *zo in aantal* toegenomen bent dat u het land in erfbezit kunt nemen.
-31. Ik zal uw grenzen vaststellen, van de Schelfzee tot aan de zee van de Filistijnen, en van de woestijn tot aan de rivier, want Ik zal de bewoners van het land in uw hand geven, zodat u hen v篌r u uit kunt verdrijven.
+27. De schrik voor Mij zal Ik v贸贸r u uit zenden, en al de volken waaronder u komt, zal Ik in verwarring brengen. En Ik zal al uw vijanden voor u op de vlucht doen slaan.
+28. Ik zal ook horzels v贸贸r u uit zenden; die zullen de Hevieten, de Kana盲nieten en de Hethieten v贸贸r u uit verdrijven.
+29. Ik zal hen niet in 茅茅n jaar v贸贸r u uit verdrijven, anders wordt het land een woestenij en worden de *wilde* dieren van het veld u te talrijk.
+30. Ik zal hen geleidelijk v贸贸r u uit verdrijven, totdat u *zo in aantal* toegenomen bent dat u het land in erfbezit kunt nemen.
+31. Ik zal uw grenzen vaststellen, van de Schelfzee tot aan de zee van de Filistijnen, en van de woestijn tot aan de rivier, want Ik zal de bewoners van het land in uw hand geven, zodat u hen v贸贸r u uit kunt verdrijven.
 32. U mag met hen en met hun goden geen verbond sluiten.
 33. Zij mogen niet in uw land blijven wonen, anders zullen zij u doen zondigen tegen Mij. Als u hun goden dient, voorzeker, het zal voor u tot een valstrik worden.

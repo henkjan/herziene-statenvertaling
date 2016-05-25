@@ -25,6 +25,6 @@
 24. Want de Naam van God wordt, zoals geschreven is, door uw toedoen gelasterd onder de heidenen.
 25. Want de besnijdenis heeft wel nut als u de wet houdt, maar als u een overtreder van de wet bent, is uw besneden zijn tot onbesneden zijn geworden.
 26. Als dan een onbesnedene de verordeningen van de wet in acht neemt, zal zijn onbesneden zijn *dan* niet tot besnijdenis gerekend worden?
-27. En zal hij die overeenkomstig de natuur onbesneden is, *maar* die de wet volbrengt, u *dan niet* oordelen, die mét de letter *van de wet* en de besnijdenis een overtreder van de wet bent?
-28. Want niet híj is Jood die het in het openbaar is, en niet dát is besnijdenis die in het openbaar in het vlees plaatsvindt,
-29. maar híj is Jood die het in het verborgene is, en dát is besnijdenis, die van het hart is, naar de geest, niet naar de letter. Zijn lof is niet uit mensen maar uit God.
+27. En zal hij die overeenkomstig de natuur onbesneden is, *maar* die de wet volbrengt, u *dan niet* oordelen, die mÃ©t de letter *van de wet* en de besnijdenis een overtreder van de wet bent?
+28. Want niet hÃ­j is Jood die het in het openbaar is, en niet dÃ¡t is besnijdenis die in het openbaar in het vlees plaatsvindt,
+29. maar hÃ­j is Jood die het in het verborgene is, en dÃ¡t is besnijdenis, die van het hart is, naar de geest, niet naar de letter. Zijn lof is niet uit mensen maar uit God.

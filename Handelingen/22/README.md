@@ -1,7 +1,7 @@
 #Handelingen 22
 1. Mannenbroeders en vaders, luister naar mijn verdediging, die ik nu voor u *zal uitspreken*.
 2. Toen zij hoorden dat hij hen in de Hebreeuwse taal toesprak, hielden zij zich nog stiller. En hij zei:
-3. Ik ben een Joodse man, geboren te Tarsus in Cilicië, maar opgevoed in deze stad en aan de voeten van Gamaliël op de meest nauwgezette wijze onderwezen in de wet van de vaderen, een ijveraar voor God zoals u heden allemaal bent.
+3. Ik ben een Joodse man, geboren te Tarsus in CiliciÃ«, maar opgevoed in deze stad en aan de voeten van GamaliÃ«l op de meest nauwgezette wijze onderwezen in de wet van de vaderen, een ijveraar voor God zoals u heden allemaal bent.
 4. Ik heb deze Weg tot de dood toe vervolgd: ik heb zowel mannen als vrouwen gebonden en overgeleverd in de gevangenissen,
 5. zoals ook de hogepriester van mij kan getuigen, en heel de Raad van oudsten. Ik kreeg van hen zelfs brieven voor de broeders mee en ben *daarmee* naar Damascus gereisd om ook hen die daar waren, geboeid naar Jeruzalem te brengen, opdat ze gestraft zouden worden.
 6. Maar het overkwam mij, toen ik onderweg was en omstreeks de middag Damascus naderde, dat plotseling vanuit de hemel een fel licht mij omstraalde.

@@ -1,7 +1,7 @@
 #Johannes 18
 1. Nadat Hij dit gezegd had, vertrok Jezus met Zijn discipelen naar de overkant van de beek Kedron, waar een hof was, die Hij met Zijn discipelen inging.
 2. En Judas, die Hem verraadde, kende die plaats ook, omdat Jezus daar vaak met Zijn discipelen samengekomen was.
-3. Judas dan, die de afdeling *soldaten* en *enkele* dienaars van de overpriesters en Farizeeën meegenomen had, kwam daar met lantaarns, fakkels en wapens.
+3. Judas dan, die de afdeling *soldaten* en *enkele* dienaars van de overpriesters en FarizeeÃ«n meegenomen had, kwam daar met lantaarns, fakkels en wapens.
 4. Jezus dan, Die alles wist wat er over Hem komen zou, trad naar voren en zei tegen hen: Wie zoekt u?
 5. Zij antwoordden Hem: Jezus de Nazarener. Jezus zei tegen hen: Ik ben het. En Judas, die Hem verraadde, stond ook bij hen.
 6. Toen Hij dan tegen hen zei: Ik ben het, deinsden zij terug en vielen op de grond.
@@ -12,7 +12,7 @@
 11. Jezus dan zei tegen Petrus: Steek uw zwaard in de schede. De drinkbeker die de Vader Mij gegeven heeft, zal Ik die niet drinken?
 12. De afdeling *soldaten* dan en de overste over duizend en de dienaars van de Joden namen Jezus gevangen en boeiden Hem.
 13. En zij leidden Hem weg, eerst naar Annas, want hij was de schoonvader van Kajafas, die de hogepriester van dat jaar was.
-14. Kajafas nu was het die de Joden de raad gegeven had dat het nuttig zou zijn dat één Mens voor het volk zou sterven.
+14. Kajafas nu was het die de Joden de raad gegeven had dat het nuttig zou zijn dat Ã©Ã©n Mens voor het volk zou sterven.
 15. En Simon Petrus volgde Jezus, evenals een andere discipel. Die discipel nu was een bekende van de hogepriester, en hij ging met Jezus het paleis van de hogepriester binnen.
 16. Petrus echter stond buiten bij de deur. De andere discipel dan, die een bekende van de hogepriester was, ging naar buiten, sprak met de portierster en bracht Petrus binnen.
 17. Het dienstmeisje dan, de portierster, zei tegen Petrus: Bent ook u niet *een* van de discipelen van deze Mens? Hij zei: Dat ben ik niet.

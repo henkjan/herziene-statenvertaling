@@ -13,7 +13,7 @@
 12. Zij vergelden mij kwaad voor goed, *zij willen* mij van het leven beroven. 
 13. Maar ik? Waren zij ziek, *dan* was een rouwgewaad mijn kleding; ik kwelde mijzelf door te vasten, mijn gebed kwam telkens terug in mijn binnenste. 
 14. Alsof het *mijn* vriend was, of mijn broeder, zo liep ik steeds rond; ik ging gebukt, in het zwart gehuld, als iemand die om *zijn* moeder treurt. 
-15. Maar toen ík strompelde, waren zij verblijd en verzamelden zich; zij verzamelden zich om mij heen. Zij waren kreupel en ik merkte het niet, zij scheurden *hun kleren* en zwegen niet. 
+15. Maar toen Ã­k strompelde, waren zij verblijd en verzamelden zich; zij verzamelden zich om mij heen. Zij waren kreupel en ik merkte het niet, zij scheurden *hun kleren* en zwegen niet. 
 16. In *hun eigen* kring van huichelachtige spotters knarsetandden zij over mij. 
 17. Heere, hoelang zult U toekijken? Verlos mijn ziel van hun verwoestende daden, mijn eenzame *ziel* van de jonge leeuwen. 
 18. Dan zal ik U loven in de grote gemeente, onder machtig veel volk zal ik U prijzen. 

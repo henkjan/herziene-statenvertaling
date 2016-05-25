@@ -1,5 +1,5 @@
 #Deuteronomium 5
-1. Mozes riep heel Israël *bijeen* en zei tegen hen: Luister, Israël, naar de verordeningen en bepalingen die ik heden ten aanhoren van u spreek. U moet ze leren en nauwlettend in acht nemen.
+1. Mozes riep heel IsraÃ«l *bijeen* en zei tegen hen: Luister, IsraÃ«l, naar de verordeningen en bepalingen die ik heden ten aanhoren van u spreek. U moet ze leren en nauwlettend in acht nemen.
 2. De HEERE, onze God, heeft een verbond met ons gesloten bij de Horeb.
 3. Niet met onze vaderen heeft de HEERE dit verbond gesloten, maar met ons, wij die hier heden allen in leven zijn.
 4. Van aangezicht tot aangezicht heeft de HEERE met u gesproken op de berg, vanuit het midden van het vuur

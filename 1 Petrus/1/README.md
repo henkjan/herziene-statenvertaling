@@ -1,5 +1,5 @@
 #1 Petrus 1
-1. Petrus, een apostel van Jezus Christus, aan de vreemdelingen in de verstrooiing in Pontus, Galatië, Kappadocië, Asia en Bithynië,
+1. Petrus, een apostel van Jezus Christus, aan de vreemdelingen in de verstrooiing in Pontus, GalatiÃ«, KappadociÃ«, Asia en BithyniÃ«,
 2. uitverkoren overeenkomstig de voorkennis van God de Vader, door de heiliging van de Geest, tot gehoorzaamheid en besprenkeling met het bloed van Jezus Christus: moge genade en vrede voor u vermeerderd worden.
 3. Geprezen zij de God en Vader van onze Heere Jezus Christus, Die ons, overeenkomstig Zijn grote barmhartigheid, opnieuw geboren deed worden tot een levende hoop, door de opstanding van Jezus Christus uit de doden,
 4. tot een onvergankelijke, onbevlekte en onverwelkbare erfenis, die in de hemelen bewaard wordt voor u.
@@ -18,7 +18,7 @@
 17. En als u Hem als Vader aanroept Die zonder aanzien des persoons naar ieders werk oordeelt, wandel dan in de vreze *des Heeren*, *gedurende* de tijd van uw vreemdelingschap,
 18. in de wetenschap dat u niet met vergankelijke dingen, zilver of goud, vrijgekocht bent van uw zinloze levenswandel, die *u* door de vaderen overgeleverd is,
 19. maar met het kostbaar bloed van Christus, als van een smetteloos en onbevlekt Lam.
-20. Hij is wel van tevoren gekend, vóór de grondlegging van de wereld, maar in de laatste tijden geopenbaard omwille van u.
+20. Hij is wel van tevoren gekend, vÃ³Ã³r de grondlegging van de wereld, maar in de laatste tijden geopenbaard omwille van u.
 21. Door Hem gelooft u in God, Die Hem opgewekt heeft uit de doden en Hem heerlijkheid gegeven heeft, zodat uw geloof en hoop op God *gericht* zijn.
 22. Nu u dan uw zielen gereinigd hebt in de gehoorzaamheid aan de waarheid, door de Geest, tot ongeveinsde broederliefde, heb elkaar dan vurig lief uit een rein hart,
 23. u, die opnieuw geboren bent, niet uit vergankelijk, maar *uit* onvergankelijk zaad, door het levende en eeuwig blijvende Woord van God.

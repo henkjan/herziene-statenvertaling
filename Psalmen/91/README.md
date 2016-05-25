@@ -1,7 +1,7 @@
 #Psalmen 91
 1. Wie in de schuilplaats van de Allerhoogste is gezeten, zal overnachten in de schaduw van de Almachtige. 
 2. Ik zeg tegen de HEERE: Mijn toevlucht en mijn burcht, mijn God, op Wie ik vertrouw! 
-3. Want Híj zal u redden van de strik van de vogelvanger, van de zeer verderfelijke pest. 
+3. Want HÃ­j zal u redden van de strik van de vogelvanger, van de zeer verderfelijke pest. 
 4. Hij zal u beschutten met Zijn vlerken, onder Zijn vleugels zult u de toevlucht nemen, Zijn trouw is een schild en een pantser. 
 5. U zult niet vrezen voor het beangstigende van de nacht, voor de pijl die overdag aan komt vliegen, 
 6. voor de pest, die in het donker rondgaat, voor het verderf dat midden op de dag verwoest. 

@@ -9,6 +9,6 @@
 8. Zij gaan voort van kracht tot kracht, zij zullen verschijnen voor God in Sion. 
 9. HEERE, God van de legermachten, luister naar mijn gebed, neem *het* ter ore, o God van Jakob. [ Sela] 
 10. O God, ons schild, zie en aanschouw het aangezicht van Uw gezalfde. 
-11. Want één dag in Uw voorhoven is beter dan duizend *elders*; ik verkoos liever te staan op de drempel van het huis van mijn God dan lang te wonen in de tenten van de goddeloosheid. 
+11. Want Ã©Ã©n dag in Uw voorhoven is beter dan duizend *elders*; ik verkoos liever te staan op de drempel van het huis van mijn God dan lang te wonen in de tenten van de goddeloosheid. 
 12. Want God, de HEERE, is een zon en een schild, de HEERE zal genade en eer geven, Hij zal het goede niet onthouden aan wie in oprechtheid *zijn weg* gaat. 
 13. HEERE van de legermachten, welzalig de mens die op U vertrouwt.

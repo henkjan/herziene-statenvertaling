@@ -3,7 +3,7 @@
 2. Waarom weegt u geld af voor wat geen brood is, en uw arbeid voor wat niet verzadigen kan? Luister aandachtig naar Mij, eet het goede, en laat uw ziel vreugde scheppen in de overvloed. 
 3. Neig uw oor en kom tot Mij, luister, en uw ziel zal leven; want Ik zal met u een eeuwig verbond sluiten: de betrouwbare gunstbewijzen aan David. 
 4. Zie, Ik heb Hem gegeven als Getuige voor de volken, als Vorst en Gebieder voor de volken. 
-5. Zie, U zult een volk roepen dat U niet kende, en het volk dat U niet kende, zal naar U toe snellen, omwille van de HEERE, uw God, voor de Heilige van Israël, want Hij heeft U verheerlijkt. 
+5. Zie, U zult een volk roepen dat U niet kende, en het volk dat U niet kende, zal naar U toe snellen, omwille van de HEERE, uw God, voor de Heilige van IsraÃ«l, want Hij heeft U verheerlijkt. 
 6. Zoek de HEERE terwijl Hij te vinden is, roep Hem aan terwijl Hij nabij is. 
 7. Laat de goddeloze zijn weg verlaten, de man van ongerechtigheid zijn gedachten. Laat hij zich bekeren tot de HEERE, dan zal Hij Zich over hem ontfermen, tot onze God, want Hij vergeeft veelvuldig. 
 8. Want Mijn gedachten zijn niet uw gedachten, en uw wegen zijn niet Mijn wegen, spreekt de HEERE. 

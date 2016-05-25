@@ -13,7 +13,7 @@
 12. Dat zou namelijk een vuur zijn dat verteert tot in het verderf, en dat al mijn opbrengst ontwortelt. 
 13. Als ik het recht van mijn slaaf of van mijn slavin versmaad heb, wanneer zij een geschil met mij hadden, 
 14. wat zal ik dan doen als God opstaat? En als Hij onderzoekt, wat zal ik Hem *dan* antwoorden? 
-15. Heeft Hij Die mij in de buik maakte, *ook* hem niet gemaakt, en heeft Eén ons niet in de baarmoeder gevormd? 
+15. Heeft Hij Die mij in de buik maakte, *ook* hem niet gemaakt, en heeft EÃ©n ons niet in de baarmoeder gevormd? 
 16. Als ik de armen iets van *hun* wens onthouden heb, of de ogen van de weduwe heb laten versmachten; 
 17. als ik mijn stuk *brood* alleen gegeten heb, zodat de wees daarvan niet gegeten heeft, 
 18. - ja, hij is vanaf mijn jeugd bij mij opgegroeid, als *bij* een vader, en *de weduwe* heb ik vanaf de buik van mijn moeder geleid. 
@@ -29,7 +29,7 @@
 28. Ook dat is een misdaad *bij* de rechter, want *dan* zou ik God van boven verloochend hebben. 
 29. Als ik mij verblijd heb over de verdrukking van hem die mij haatte, en opgewekt ben geweest wanneer het kwaad hem trof! 
 30. Ik heb zelfs mijn gehemelte niet toegelaten te zondigen, door met een vervloeking zijn ziel op te eisen. 
-31. Als de mensen van mijn tent niet hebben gezegd: Wie werd er níet verzadigd van zijn vlees? 
+31. Als de mensen van mijn tent niet hebben gezegd: Wie werd er nÃ­et verzadigd van zijn vlees? 
 32. De vreemdeling overnachtte niet op de straat; ik opende mijn deuren voor de reiziger. 
 33. Als ik, zoals Adam, *ooit* mijn overtredingen bedekt heb, door mijn ongerechtigheid in mijn binnenste te verbergen, 
 34. omdat ik bevreesd was voor een grote menigte, en de verachting van de geslachten mij ontsteld zou doen raken, zodat ik zweeg en de deur niet uitging! 

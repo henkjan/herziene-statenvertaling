@@ -10,11 +10,11 @@
 9. En verder hadden wij onze aardse vaders als opvoeders, en wij hadden ontzag voor hen. Zullen wij ons dan niet veel meer onderwerpen aan de Vader van de geesten, en leven?
 10. Want zij hebben *ons* wel voor een korte tijd naar het hun goeddacht bestraft, maar Hij *doet dat* tot *ons* nut, opdat wij deel krijgen aan Zijn heiligheid.
 11. En elke bestraffing schijnt op het moment *zelf* wel geen *reden* tot blijdschap te zijn, maar tot droefheid. Maar later geeft zij hun die erdoor geoefend zijn een vreedzame vrucht van gerechtigheid.
-12. Hef daarom de slappe handen op en *strek* de knikkende knieën,
+12. Hef daarom de slappe handen op en *strek* de knikkende knieÃ«n,
 13. en maak rechte sporen voor uw voeten, opdat wat kreupel is, niet wordt ontwricht, maar veeleer genezen wordt.
 14. Jaag de vrede na met allen, en de heiliging, zonder welke niemand de Heere zal zien.
 15. Zie erop toe dat niemand achteropraakt in de genade van God, en dat er geen enkele wortel van bitterheid opschiet en onrust veroorzaakt *zodat* daardoor velen bezoedeld worden.
-16. Laat niemand een ontuchtpleger zijn of een onheilige, zoals Ezau, die voor één enkele maaltijd zijn eerstgeboorte*recht* verkocht.
+16. Laat niemand een ontuchtpleger zijn of een onheilige, zoals Ezau, die voor Ã©Ã©n enkele maaltijd zijn eerstgeboorte*recht* verkocht.
 17. Want u weet dat hij ook daarna, toen hij de zegen wilde erven, verworpen werd, want hij vond geen plaats van berouw, hoewel hij *de zegen* vurig en met tranen zocht.
 18. Want u bent niet tot een tastbare berg genaderd, en tot een brandend vuur, tot donkerheid, duisternis en stormwind,
 19. tot bazuingeschal en het geluid van woorden. Zij die dat hoorden, smeekten dat het woord niet meer tot hen gericht zou worden,

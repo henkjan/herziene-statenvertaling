@@ -1,10 +1,10 @@
 #Handelingen 27
-1. En toen besloten was dat wij naar Italië zouden varen, gaven zij Paulus en enkele andere gevangenen over aan een hoofdman over honderd, van wie de naam Julius was, van de keizerlijke afdeling.
-2. En omdat wij langs de *kust*plaatsen van Asia wilden varen, gingen wij aan boord van een Adramytteens schip en voeren weg. Aristarchus, een Macedoniër uit Thessalonica, was bij ons.
+1. En toen besloten was dat wij naar ItaliÃ« zouden varen, gaven zij Paulus en enkele andere gevangenen over aan een hoofdman over honderd, van wie de naam Julius was, van de keizerlijke afdeling.
+2. En omdat wij langs de *kust*plaatsen van Asia wilden varen, gingen wij aan boord van een Adramytteens schip en voeren weg. Aristarchus, een MacedoniÃ«r uit Thessalonica, was bij ons.
 3. En de volgende *dag* kwamen wij aan in Sidon. En Julius, die Paulus vriendelijk behandelde, stond *hem* toe naar de vrienden te gaan om *door hen* verzorgd te worden.
 4. En nadat wij daarvandaan weggevaren waren, voeren wij onder Cyprus langs, omdat de wind tegen was.
-5. En toen wij de zee waarlangs Cilicië en Pamfilië liggen, overgevaren waren, kwamen wij aan in Myra in Lycië.
-6. En de hoofdman, die daar een schip gevonden had uit Alexandrië dat naar Italië voer, liet ons daarin overstappen.
+5. En toen wij de zee waarlangs CiliciÃ« en PamfiliÃ« liggen, overgevaren waren, kwamen wij aan in Myra in LyciÃ«.
+6. En de hoofdman, die daar een schip gevonden had uit AlexandriÃ« dat naar ItaliÃ« voer, liet ons daarin overstappen.
 7. En omdat wij vele dagen *maar* langzaam vooruitkwamen en wij nauwelijks ter hoogte van Knidus gekomen waren, doordat de wind het ons niet toeliet, voeren wij onder Kreta langs, ter hoogte van Salmone.
 8. En nadat wij daar nauwelijks voorbijgezeild waren, kwamen wij in een plaats die Schone Havens genoemd wordt, waar de stad Lasea dicht bij lag.
 9. En, omdat er veel tijd verlopen was en het varen nu gevaarlijk werd, omdat de vastentijd ook al voorbij was, waarschuwde Paulus hen
@@ -38,7 +38,7 @@
 37. Wij waren nu in het schip met in totaal tweehonderdzesenzeventig zielen.
 38. En toen zij allen met voedsel verzadigd waren, maakten zij het schip lichter door het koren in zee te werpen.
 39. En toen het dag werd, herkenden zij het land niet, maar zij merkten dat er een inham was met een strand. Het leek hun raadzaam het schip, als zij konden, daarop te laten lopen.
-40. En nadat zij de ankers losgemaakt hadden, gaven zij die prijs aan de zee, terwijl zij meteen de touwen van de roeren losmaakten; en na het razeil gehesen te hebben, hielden zij vóór de wind op het strand aan.
+40. En nadat zij de ankers losgemaakt hadden, gaven zij die prijs aan de zee, terwijl zij meteen de touwen van de roeren losmaakten; en na het razeil gehesen te hebben, hielden zij vÃ³Ã³r de wind op het strand aan.
 41. Maar zij kwamen terecht op een plaats waar aan weerskanten zee was, en lieten het schip daarop lopen; het voorschip bleef onbeweeglijk vastzitten, maar het achterschip brak door het geweld van de golven.
 42. Het voornemen van de soldaten was de gevangenen te doden, opdat niemand door weg te zwemmen zou ontsnappen.
 43. Maar de hoofdman, die Paulus wilde behouden, belette hun dat voornemen en gaf bevel dat zij die konden zwemmen, eerst van boord moesten springen en aan land moesten gaan;

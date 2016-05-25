@@ -4,8 +4,8 @@
 3. Wij zijn wezen zonder vader, onze moeders zijn als weduwen. 
 4. Ons water drinken wij voor geld; ons hout komt *tot ons* voor een prijs. 
 5. Wij worden op onze nek gezeten; wij zijn *dood*moe, *maar* rust gunt men ons niet! 
-6. Egypte hebben wij de hand gegeven, Assyrië, om *met* brood verzadigd te worden. 
-7. Onze vaderen hebben gezondigd; zij zijn er niet *meer*, en wíj dragen hun ongerechtigheden. 
+6. Egypte hebben wij de hand gegeven, AssyriÃ«, om *met* brood verzadigd te worden. 
+7. Onze vaderen hebben gezondigd; zij zijn er niet *meer*, en wÃ­j dragen hun ongerechtigheden. 
 8. Knechten heersen over ons; er is niemand die *ons* aan hun hand ontrukt! 
 9. Met levensgevaar moeten wij ons brood halen vanwege het zwaard van de woestijn. 
 10. Onze huid gloeit als een oven vanwege het woeden van de honger! 

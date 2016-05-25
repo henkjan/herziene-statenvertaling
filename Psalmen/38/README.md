@@ -14,9 +14,9 @@
 13. Wie mij naar het leven staan, spannen valstrikken; wie mijn onheil zoeken, spreken schadelijke *woorden* en bedenken de hele dag listen. 
 14. Maar ik ben als een dove, ik hoor niet, en als een stomme, *die* zijn mond niet opendoet. 
 15. Ja, ik ben als een man die niet hoort en in wiens mond geen weerwoord is. 
-16. Maar op U, HEERE, hoop ik; Ú zult verhoren, Heere, mijn God! 
+16. Maar op U, HEERE, hoop ik; Ãš zult verhoren, Heere, mijn God! 
 17. Want ik zei: Laten zij zich toch over mij niet verblijden! Zou mijn voet wankelen, zij zouden zich tegen mij verheffen. 
-18. Ja, ik dreig te struikelen, mijn smart *staat* voortdurend vóór mij. 
+18. Ja, ik dreig te struikelen, mijn smart *staat* voortdurend vÃ³Ã³r mij. 
 19. Want ik maak *U* mijn ongerechtigheid bekend, ik ben bekommerd vanwege mijn zonde. 
 20. Maar mijn vijanden zijn in leven *en* worden machtig; wie mij om valse redenen haten, worden talrijk. 
 21. Wie kwaad voor goed vergelden, zijn mijn tegenstanders, omdat ik het goede najaag. 

@@ -22,11 +22,11 @@
 21. Maar U, HEERE Heere, doe *Uw werk* aan mij omwille van Uw Naam, want Uw goedertierenheid is groot: red mij. 
 22. Want ik ben ellendig en arm, mijn hart is in mijn binnenste dodelijk verwond. 
 23. Ik ga heen als een schaduw die langer wordt, ik word afgeschud als een sprinkhaan. 
-24. Mijn knieën zijn verzwakt door het vasten, en mijn vlees is vermagerd: geen vet *zit eraan*. 
-25. Toch ben ík hun *nog* tot smaad; zien zij mij, zij schudden hun hoofd. 
+24. Mijn knieÃ«n zijn verzwakt door het vasten, en mijn vlees is vermagerd: geen vet *zit eraan*. 
+25. Toch ben Ã­k hun *nog* tot smaad; zien zij mij, zij schudden hun hoofd. 
 26. Help mij, HEERE, mijn God, verlos mij, naar Uw goedertierenheid. 
-27. Dan weten zij: ja, dit is Uw hand; Ú hebt het gedaan, HEERE. 
-28. Laten zíj vloeken, als Ú maar zegent, laten zij aanvallen, als zij maar beschaamd worden en Uw dienaar zich verblijdt. 
+27. Dan weten zij: ja, dit is Uw hand; Ãš hebt het gedaan, HEERE. 
+28. Laten zÃ­j vloeken, als Ãš maar zegent, laten zij aanvallen, als zij maar beschaamd worden en Uw dienaar zich verblijdt. 
 29. Laten mijn tegenstanders met schande bekleed worden, zich hullen in hun schaamte als in een mantel. 
 30. Ik zal de HEERE met mijn mond op luide toon loven, te midden van velen zal ik Hem prijzen. 
 31. Want Hij zal aan de rechterhand van de arme staan om *hem* te verlossen van hen die zijn ziel veroordelen.

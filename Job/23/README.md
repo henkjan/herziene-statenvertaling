@@ -4,7 +4,7 @@
 3. Och, wist ik maar dat ik Hem zou vinden, *dan* zou ik naar Zijn woonplaats toe komen. 
 4. Ik zou de rechtszaak voor Zijn aangezicht uiteenzetten, en ik zou mijn mond vullen met *mijn* verdediging. 
 5. Ik zou de woorden weten *die* Hij mij zou antwoorden; en ik zou begrijpen wat Hij tegen mij zou zeggen. 
-6. Zou Hij een rechtszaak tegen mij voeren met de grootheid van *Zijn* kracht? Nee, maar Híj zou acht op mij slaan. 
+6. Zou Hij een rechtszaak tegen mij voeren met de grootheid van *Zijn* kracht? Nee, maar HÃ­j zou acht op mij slaan. 
 7. Daar zou een oprechte zich tegenover Hem verdedigen; en ik zou voor altijd vrij zijn van mijn Rechter. 
 8. *Maar* zie, ga ik naar voren, dan is Hij er niet, of naar achteren, dan merk ik Hem niet op. 
 9. Als Hij aan de linkerkant werkt, aanschouw ik *Hem* niet; keert Hij Zich naar de rechterkant, dan zie ik *Hem* niet. 

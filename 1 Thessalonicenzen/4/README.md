@@ -8,7 +8,7 @@
 7. Want God heeft ons niet geroepen tot onreinheid, maar *tot leven* in heiliging.
 8. Daarom, wie *dit* verwerpt, verwerpt niet een mens, maar God, Die ook Zijn Heilige Geest in ons heeft gegeven.
 9. Wat nu de broederliefde betreft, hebt u het niet nodig dat ik u schrijf, want u bent zelf door God onderwezen om elkaar lief te hebben.
-10. Want u doet dat ook ten opzichte van alle broeders die in heel Macedonië zijn. Wij roepen u er echter toe op, broeders, *dat* nog veel meer te doen,
+10. Want u doet dat ook ten opzichte van alle broeders die in heel MacedoniÃ« zijn. Wij roepen u er echter toe op, broeders, *dat* nog veel meer te doen,
 11. en er een eer in te stellen rustig te zijn en uw eigen zaken te behartigen en te werken met uw eigen handen, zoals wij u bevolen hebben,
 12. opdat u op een gepaste wijze wandelt ten opzichte van hen die buitenstaan, en niets nodig hebt.
 13. Maar ik wil niet, broeders, dat u onwetend bent ten aanzien van hen die ontslapen zijn, opdat u niet bedroefd bent zoals ook de anderen, die geen hoop hebben.

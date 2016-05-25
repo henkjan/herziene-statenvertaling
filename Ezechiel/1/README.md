@@ -1,7 +1,7 @@
 #Ezechiel 1
 1. In het dertigste jaar, in de vierde *maand*, op de vijfde van de maand, toen ik te midden van de ballingen aan de rivier de Kebar was, gebeurde het *dat* de hemel geopend werd en ik visioenen van God kreeg te zien.
 2. Op de vijfde van de maand - het was het vijfde jaar van de ballingschap van koning Jojachin -
-3. kwam het woord van de HEERE uitdrukkelijk tot Ezechiël, de zoon van Buzi, de priester, in het land van de Chaldeeën bij de rivier de Kebar, en de hand van de HEERE was daar op hem.
+3. kwam het woord van de HEERE uitdrukkelijk tot EzechiÃ«l, de zoon van Buzi, de priester, in het land van de ChaldeeÃ«n bij de rivier de Kebar, en de hand van de HEERE was daar op hem.
 4. Toen zag ik, en zie, een stormwind kwam uit het noorden, een grote wolk, flitsend vuur en een lichtglans eromheen. En uit het midden ervan *kwam* iets als de schittering van edelmetaal, uit het midden van het vuur.
 5. Uit het midden daarvan *kwam* een gedaante van vier levende wezens. Dit was hun uiterlijk: zij hadden de gedaante van een mens.
 6. Ieder afzonderlijk had vier gezichten en ieder afzonderlijk van hen had vier vleugels.

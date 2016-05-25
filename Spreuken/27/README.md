@@ -16,7 +16,7 @@
 15. Een twistzieke vrouw is te vergelijken met het gestadige druppelen op een dag van slagregen. 
 16. *Ieder* die haar verbergt, verbergt wind, en treft olie aan in zijn rechterhand. 
 17. IJzer scherpt men met ijzer, zo scherpt een man het gezicht van zijn naaste. 
-18. Wie de vijgenboom verzorgt, zal zijn vrucht eten, wie zijn heer bewaakt, zal geëerd worden. 
+18. Wie de vijgenboom verzorgt, zal zijn vrucht eten, wie zijn heer bewaakt, zal geÃ«erd worden. 
 19. Zoals water gezicht tegenover gezicht *stelt*, zo *weerspiegelt* het hart van de mens de mens *zelf.* 
 20. Graf en verderf worden niet verzadigd, evenmin worden de ogen van de mens verzadigd. 
 21. Een smeltkroes is er voor het zilver en een oven voor het goud, zo wordt iemand getoetst op zijn goede naam. 

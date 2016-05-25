@@ -18,7 +18,7 @@
 17. Nu ben ik het echter niet meer die dit teweegbreng, maar de zonde die in mij woont.
 18. Want ik weet dat in mij, dat is in mijn vlees, niets goeds woont. Immers, het willen is *er* bij mij *wel*, maar het goede teweegbrengen, dat vind ik niet.
 19. Want het goede dat ik wil, doe ik niet, maar het kwade, dat ik niet wil, dat doe ik.
-20. Als ik nu dat doe wat ik niet wil, breng ík dat niet meer teweeg, maar de zonde die in mij woont.
+20. Als ik nu dat doe wat ik niet wil, breng Ã­k dat niet meer teweeg, maar de zonde die in mij woont.
 21. Ik ontdek dus deze wet *in mij*: als ik het goede wil doen, is het kwade dicht bij mij.
 22. Want naar de innerlijke mens verheug ik mij in de wet van God.
 23. Maar in mijn leden zie ik een andere wet, die tegen de wet van mijn verstand strijd voert en mij tot gevangene maakt van de wet van de zonde, die in mijn leden is.

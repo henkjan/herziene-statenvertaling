@@ -1,7 +1,7 @@
 #Job 7
 1. Heeft de sterveling niet een strijd *te voeren* op aarde, en zijn zijn dagen niet als de dagen van een dagloner? 
 2. Zoals een slaaf snakt hij naar schaduw, zoals een dagloner ziet hij uit naar zijn loon. 
-3. Zo heb ik maanden van doelloosheid geërfd, en zijn nachten van moeite mij toebedeeld. 
+3. Zo heb ik maanden van doelloosheid geÃ«rfd, en zijn nachten van moeite mij toebedeeld. 
 4. Als ik mij te slapen leg, zeg ik: Wanneer zal ik opstaan? *Tot wanneer* heeft *God* de avond afgemeten? Ik ben verzadigd van onrust tot aan de schemering. 
 5. Mijn vlees is bekleed met maden en heeft een korst van stof, mijn huid is gekloofd en veretterd. 
 6. Mijn dagen zijn sneller gegaan dan een weversspoel, ze zijn vergaan zonder hoop. 

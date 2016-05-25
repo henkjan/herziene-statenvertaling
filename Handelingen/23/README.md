@@ -1,13 +1,13 @@
 #Handelingen 23
 1. En Paulus zei, terwijl hij de ogen op de Raad gevestigd hield: Mannenbroeders, ik heb voor God met een volkomen zuiver geweten gewandeld tot op deze dag.
 2. Maar de hogepriester Ananias beval hen die bij hem stonden hem op de mond te slaan.
-3. Toen zei Paulus tegen hem: God zal ú slaan, witgepleisterde wand! Zit u hier om een oordeel over mij uit te spreken overeenkomstig de wet, en geeft u bevel, tegen de wet in, mij te slaan?
+3. Toen zei Paulus tegen hem: God zal Ãº slaan, witgepleisterde wand! Zit u hier om een oordeel over mij uit te spreken overeenkomstig de wet, en geeft u bevel, tegen de wet in, mij te slaan?
 4. En zij die daarbij stonden, zeiden: Scheldt u de hogepriester van God uit?
 5. Toen zei Paulus: Ik wist niet, broeders, dat hij hogepriester is; want er staat geschreven: U mag geen kwaad spreken van de leider van uw volk.
-6. En Paulus, die wist dat het ene deel bestond uit Sadduceeën en het andere uit Farizeeën, riep in de Raad: Mannenbroeders, ik ben een Farizeeër en zoon van een Farizeeër. Ik word geoordeeld over de hoop en de opstanding van de doden.
-7. En toen hij dat gezegd had, ontstond er onenigheid tussen de Farizeeën en de Sadduceeën, en de menigte raakte verdeeld.
-8. De Sadduceeën zeggen namelijk dat er geen opstanding is en geen engel of geest, maar de Farizeeën belijden het beide.
-9. En er ontstond luid geschreeuw en de schriftgeleerden van de partij van de Farizeeën stonden op en betoogden fel: Wij vinden geen kwaad in deze man. En als er een geest tot hem gesproken heeft, of een engel, laten wij *dan* niet tegen God strijden.
+6. En Paulus, die wist dat het ene deel bestond uit SadduceeÃ«n en het andere uit FarizeeÃ«n, riep in de Raad: Mannenbroeders, ik ben een FarizeeÃ«r en zoon van een FarizeeÃ«r. Ik word geoordeeld over de hoop en de opstanding van de doden.
+7. En toen hij dat gezegd had, ontstond er onenigheid tussen de FarizeeÃ«n en de SadduceeÃ«n, en de menigte raakte verdeeld.
+8. De SadduceeÃ«n zeggen namelijk dat er geen opstanding is en geen engel of geest, maar de FarizeeÃ«n belijden het beide.
+9. En er ontstond luid geschreeuw en de schriftgeleerden van de partij van de FarizeeÃ«n stonden op en betoogden fel: Wij vinden geen kwaad in deze man. En als er een geest tot hem gesproken heeft, of een engel, laten wij *dan* niet tegen God strijden.
 10. En toen er grote onenigheid ontstond, gaf de overste, die bevreesd was dat Paulus door hen verscheurd zou worden, bevel dat *zijn* soldaten naar beneden moesten gaan om Paulus uit hun midden weg te rukken en naar de kazerne te brengen.
 11. En de volgende nacht stond de Heere bij hem en zei: Heb goede moed, Paulus, want zoals u in Jeruzalem van Mijn *zaak* getuigd hebt, zo moet u ook in Rome getuigen.
 12. En toen het dag geworden was, smeedden enkele Joden een complot: zij vervloekten zichzelf en zeiden dat zij niet zouden eten en drinken voordat zij Paulus gedood zouden hebben.
@@ -32,5 +32,5 @@
 31. Dus namen de soldaten Paulus mee en brachten hem 's nachts naar Antipatris, zoals hun bevolen was.
 32. En de volgende dag lieten zij de ruiters met hem verdergaan en keerden *zelf* naar de kazerne terug.
 33. Deze overhandigden, toen zij in Caesarea gekomen waren, de brief aan de stadhouder en droegen Paulus aan hem over.
-34. En de stadhouder vroeg, nadat hij *de brief* gelezen had, uit welke provincie hij kwam; en toen hij vernomen had dat hij uit Cilicië kwam,
+34. En de stadhouder vroeg, nadat hij *de brief* gelezen had, uit welke provincie hij kwam; en toen hij vernomen had dat hij uit CiliciÃ« kwam,
 35. zei hij: Ik zal u verhoren als ook uw aanklagers hier gekomen zijn. En hij gaf bevel hem in het gerechtsgebouw van Herodes in bewaring te stellen.

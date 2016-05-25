@@ -12,17 +12,17 @@
 11. Zet *de pot* daarna leeg op zijn kolen, zodat hij heet wordt en zijn koper gloeiend, en wat er aan hem verontreinigd is, in het midden van hem wegsmelt, *en* zijn aanslag verdwijnt.
 12. Alle moeite is vergeefs geweest, de vele aanslag ging er niet af: in het vuur, die aanslag!
 13. In uw onreinheid ligt *uw* schandelijk gedrag! Omdat Ik u heb willen reinigen, maar u niet rein geworden bent, zult u van uw onreinheid niet meer gereinigd worden, totdat Ik Mijn grimmigheid op u doe rusten.
-14. Õk, de HEERE, heb gesproken: het komt en Ik doe het. Ik zal het niet nalaten, Ik zal niet ontzien en Ik zal *ook* geen berouw hebben. Overeenkomstig uw wegen en overeenkomstig uw daden zullen zij u oordelen, spreekt de Heere HEERE.
+14. √çk, de HEERE, heb gesproken: het komt en Ik doe het. Ik zal het niet nalaten, Ik zal niet ontzien en Ik zal *ook* geen berouw hebben. Overeenkomstig uw wegen en overeenkomstig uw daden zullen zij u oordelen, spreekt de Heere HEERE.
 15. Het woord van de HEERE kwam tot mij:
 16. Mensenkind, zie, Ik ga *haar die* de lust van uw ogen is, door een *plotselinge* slag van u wegnemen. Toch mag u geen rouw bedrijven, u mag niet huilen en geen traan laten.
 17. Kerm in stilte, u mag geen rouw over de dode bedrijven. Bind uw tulband om en doe uw schoenen aan uw voeten; u mag uw baard en snor niet bedekken en van het brood dat mensen *u brengen*, mag u niet eten.
 18. 's Morgens sprak ik tot het volk en 's avonds stierf mijn vrouw. De *volgende* morgen deed ik zoals mij geboden was.
 19. Toen zei het volk tegen mij: Wilt u ons niet vertellen wat deze dingen voor ons *betekenen*, nu u *dit* doet?
 20. Toen zei ik tegen hen: Het woord van de HEERE is tot mij gekomen:
-21. Zeg tegen het huis van IsraÎl: Zo zegt de Heere HEERE: Zie, Ik ga Mijn heiligdom ontheiligen, uw sterke trots, de lust van uw ogen en het dierbaarste voor uw ziel. Uw zonen en uw dochters, die u achtergelaten hebt, zullen door het zwaard vallen.
+21. Zeg tegen het huis van Isra√´l: Zo zegt de Heere HEERE: Zie, Ik ga Mijn heiligdom ontheiligen, uw sterke trots, de lust van uw ogen en het dierbaarste voor uw ziel. Uw zonen en uw dochters, die u achtergelaten hebt, zullen door het zwaard vallen.
 22. Dan zult u doen zoals ik heb gedaan. U zult uw baard en snor niet bedekken en van het brood dat mensen *u brengen*, zult u niet eten.
 23. Uw tulbanden zullen om uw hoofd zijn en uw schoenen aan uw voeten. U zult geen rouw bedrijven en niet huilen. U zult in uw ongerechtigheden wegkwijnen, en elkaar *uw* nood klagen.
-24. Zo zal EzechiÎl voor u een wonderteken zijn: geheel zoals hij gedaan heeft, zult u doen. Wanneer het komt, zult u weten dat Ik de Heere HEERE ben.
+24. Zo zal Ezechi√´l voor u een wonderteken zijn: geheel zoals hij gedaan heeft, zult u doen. Wanneer het komt, zult u weten dat Ik de Heere HEERE ben.
 25. Wat u betreft, mensenkind, zal het niet *zo* zijn op de dag dat Ik hun kracht, de luister waarin zij zich verblijden, de lust van hun ogen, de verkwikking van hun ziel, hun zonen en hun dochters, van hen wegneem,
 26. dat op die dag *iemand* die ontkomen is, bij u zal komen om *dat uw* oren te laten horen?
 27. Op die dag zal uw mond met die van hem die ontkomen is, geopend worden, zodat u zult spreken en niet langer stom zijn. Zo zult u voor hen een wonderteken zijn. Dan zullen zij weten dat Ik de HEERE ben.

@@ -1,6 +1,6 @@
 #Exodus 22
 1. Wanneer iemand een rund of een *stuk* kleinvee steelt en het slacht of verkoopt, moet hij vijf runderen als vergoeding geven voor het rund, en vier *stuks* kleinvee voor het *stuk* kleinvee.
-2. Als een dief bij het inbreken betrapt wordt en *zó* geslagen wordt dat hij sterft, rust er geen bloedschuld op degene *die hem sloeg*.
+2. Als een dief bij het inbreken betrapt wordt en *zÃ³* geslagen wordt dat hij sterft, rust er geen bloedschuld op degene *die hem sloeg*.
 3. *Maar* als de zon over hem opgegaan is, rust er *wel* bloedschuld op hem. *De dief* moet *alles* volledig vergoeden. Heeft hij niets, dan moet hij vanwege zijn diefstal verkocht worden.
 4. Als inderdaad het gestolene levend in zijn bezit aangetroffen wordt, moet hij het van rund tot ezel, tot kleinvee toe dubbel vergoeden.
 5. Wanneer iemand een veld of wijngaard laat afgrazen door zijn vee *daarin* los te laten en *dit* het veld van een ander afgraast, moet hij het beste *deel* van zijn *eigen* veld of het beste *deel* van zijn wijngaard als vergoeding geven.

@@ -16,6 +16,6 @@
 15. Hij zal leven! Men zal Hem van het goud van Sjeba geven, men zal voortdurend voor Hem bidden, de hele dag zal men Hem zegenen. 
 16. Is er een handvol koren op het land, op de top van de bergen, de vrucht daarvan zal ruisen als de Libanon; de stedelingen zullen bloeien als het gewas op de aarde. 
 17. Zijn naam zal voor eeuwig blijven; zolang de zon er is, wordt zijn naam van kind tot kind voortgeplant. Zij zullen in Hem gezegend worden; alle heidenvolken zullen Hem gelukkig prijzen. 
-18. Geloofd zij de HEERE God, de God van Israël; Hij doet wonderen, Hij alleen. 
+18. Geloofd zij de HEERE God, de God van IsraÃ«l; Hij doet wonderen, Hij alleen. 
 19. Geloofd zij voor eeuwig Zijn heerlijke Naam; laat heel de aarde met Zijn heerlijkheid vervuld worden. Amen, ja, amen. 
-20. *Hier* eindigen de gebeden van David, de zoon van Isaï.
+20. *Hier* eindigen de gebeden van David, de zoon van IsaÃ¯.

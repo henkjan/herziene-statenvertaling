@@ -7,7 +7,7 @@
 6. zoals Sara Abraham gehoorzaamde en hem heer noemde. U bent kinderen van haar geworden, als u goeddoet en niet bevreesd bent voor enig ding dat *u* angst zou kunnen aanjagen.
 7. Evenzo, mannen, woon met begrip met *haar* samen; geef de vrouw, als de zwakkere, *haar* eer; u bent immers ook mede-erfgenamen van de genade van het *eeuwige* leven; opdat uw gebeden niet verhinderd worden.
 8. Ten slotte, wees allen eensgezind, vol medeleven, heb de broeders lief, wees barmhartig en vriendelijk.
-9. Vergeld geen kwaad met kwaad of laster met laster, maar zegen daarentegen, omdat u weet dat u daartoe geroepen bent, opdat u zegen zult beërven.
+9. Vergeld geen kwaad met kwaad of laster met laster, maar zegen daarentegen, omdat u weet dat u daartoe geroepen bent, opdat u zegen zult beÃ«rven.
 10. Want wie het leven wil liefhebben en goede dagen zien, die moet zijn tong weerhouden van het kwaad, en zijn lippen van het spreken van bedrog;
 11. die moet zich afkeren van het kwaad en het goede doen; die moet vrede zoeken en die najagen.
 12. Want de ogen van de Heere rusten op de rechtvaardigen, en Zijn oren *zijn gericht* op hun gebed; maar het aangezicht van de Heere is tegen hen die kwaad doen.

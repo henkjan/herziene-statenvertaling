@@ -4,7 +4,7 @@
 3. En ik weet van deze mens - of het in het lichaam of buiten het lichaam *gebeurde*, weet ik niet; God weet het -
 4. dat hij werd opgenomen in het paradijs en onuitsprekelijke woorden heeft gehoord, die het een mens niet is geoorloofd uit te spreken.
 5. Over zo iemand zal ik roemen, maar over mijzelf zal ik niet *anders* roemen dan in mijn zwakheden.
-6. Want gesteld dat ik zou willen roemen, ik zal niet dwaas zijn; ik zal immers de waarheid spreken. Ik onthoud mij *daar* echter *van*, opdat niemand méér van mij denkt dan wat hij aan mij ziet of van mij hoort.
+6. Want gesteld dat ik zou willen roemen, ik zal niet dwaas zijn; ik zal immers de waarheid spreken. Ik onthoud mij *daar* echter *van*, opdat niemand mÃ©Ã©r van mij denkt dan wat hij aan mij ziet of van mij hoort.
 7. En opdat ik mij door het allesovertreffende *karakter* van de openbaringen niet zou verheffen, is mij een doorn in het vlees gegeven, een engel van de satan, om mij met vuisten te slaan, opdat ik mij niet zou verheffen.
 8. Hierover heb ik de Heere driemaal gesmeekt dat hij van mij weg zou gaan.
 9. Maar Hij heeft tegen mij gezegd: Mijn genade is voor u genoeg, want Mijn kracht wordt in zwakheid volbracht. Daarom zal ik veel liever roemen in mijn zwakheden, opdat de kracht van Christus in mij komt wonen.
@@ -18,5 +18,5 @@
 17. Heb ik u soms uitgebuit door iemand van hen die ik naar u toe gestuurd heb?
 18. Ik heb Titus aangespoord en de broeder meegezonden. Heeft Titus u soms uitgebuit? Hebben wij niet in dezelfde Geest gewandeld, in dezelfde voetsporen?
 19. Denkt u nu weer dat wij ons tegenover u verdedigen? Wij spreken voor het aangezicht van God in Christus; en dit alles, geliefden, tot uw opbouw.
-20. Want ik vrees dat ik, bij mijn komst, u misschien niet zal aantreffen zoals ik wil, en *dat* ik door u gevonden zal worden zoals u niet wilt, *en* dat er misschien ruzies, afgunst, woede-uitbarstingen, egoïsme, kwaadsprekerij, laster, verwaandheid en wanorde *zullen zijn*,
+20. Want ik vrees dat ik, bij mijn komst, u misschien niet zal aantreffen zoals ik wil, en *dat* ik door u gevonden zal worden zoals u niet wilt, *en* dat er misschien ruzies, afgunst, woede-uitbarstingen, egoÃ¯sme, kwaadsprekerij, laster, verwaandheid en wanorde *zullen zijn*,
 21. *en* dat, als ik kom, mijn God mij opnieuw bij u zal vernederen en dat ik treuren moet over velen die vroeger gezondigd hebben en zich niet bekeerd hebben van de onreinheid, hoererij en losbandigheid die zij bedreven hebben.

@@ -21,6 +21,6 @@
 20. Hij zei tegen zijn dochters: Waar is hij? Waarom hebben jullie die man *daar* achtergelaten? Roep hem om de maaltijd te *komen* gebruiken.
 21. Mozes stemde erin toe bij de man te *blijven* wonen. En hij gaf zijn dochter Zippora aan Mozes.
 22. Zij baarde een zoon, en hij noemde hem Gersom, want, zei hij, ik ben een vreemdeling geworden in een vreemd land.
-23. Het gebeurde vele dagen daarna, toen de koning van Egypte gestorven was, dat de Israëlieten zuchtten en het uitschreeuwden vanwege de slavenarbeid. En hun hulpgeroep vanwege de slavenarbeid steeg omhoog tot God.
+23. Het gebeurde vele dagen daarna, toen de koning van Egypte gestorven was, dat de IsraÃ«lieten zuchtten en het uitschreeuwden vanwege de slavenarbeid. En hun hulpgeroep vanwege de slavenarbeid steeg omhoog tot God.
 24. Toen hoorde God hun gekerm, en God dacht aan Zijn verbond met Abraham, met Izak en met Jakob.
-25. En God zag naar de Israëlieten om en ontfermde Zich over hen.
+25. En God zag naar de IsraÃ«lieten om en ontfermde Zich over hen.

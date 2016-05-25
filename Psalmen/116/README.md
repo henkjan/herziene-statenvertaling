@@ -8,8 +8,8 @@
 7. Mijn ziel, keer terug tot uw rust, want de HEERE is goed voor u geweest. 
 8. Ja, U, *HEERE*, hebt mijn ziel immers gered van de dood, mijn ogen van tranen, mijn voet van struikelen. 
 9. Ik zal wandelen voor het aangezicht van de HEERE in de landen der levenden. 
-10. Ik heb geloofd, daarom spreek ik. Õk ben zeer verdrukt geweest. 
-11. Õk zei, in mijn haast: Alle mensen zijn leugenaars. 
+10. Ik heb geloofd, daarom spreek ik. √çk ben zeer verdrukt geweest. 
+11. √çk zei, in mijn haast: Alle mensen zijn leugenaars. 
 12. Wat zal ik de HEERE vergelden *voor* al Zijn weldaden, die *Hij* mij *bewees*? 
 13. Ik zal de beker van het heil heffen en de Naam van de HEERE aanroepen. 
 14. Mijn geloften zal ik aan de HEERE nakomen, nu, in de tegenwoordigheid van al Zijn volk. 

@@ -10,8 +10,8 @@
 9. En al het volk zag hem lopen en God loven.
 10. En zij wisten dat hij degene was die voor een liefdegave bij de Schone Poort van de tempel gezeten had; en zij werden vervuld met verbazing en ontsteltenis over wat er met hem gebeurd was.
 11. En terwijl de kreupele, die genezen was, Petrus en Johannes vasthield, stroomde al het volk bij hen samen in de zuilengang die *de zuilengang* van Salomo genoemd wordt, en verbaasde zich.
-12. Toen Petrus *dat* zag, antwoordde hij het volk: Israëlitische mannen, waarom verwondert u zich hierover, of waarom kijkt u ons *zo* doordringend aan, alsof wij door onze eigen kracht of godsvrucht hebben bewerkstelligd dat deze *man* nu loopt?
-13. De God van Abraham, Izak en Jakob, de God van onze vaderen, heeft Zijn Kind Jezus verheerlijkt, Die u hebt overgeleverd. U hebt Hem verloochend vóór Pilatus, toen die oordeelde dat men *Hem* zou loslaten.
+12. Toen Petrus *dat* zag, antwoordde hij het volk: IsraÃ«litische mannen, waarom verwondert u zich hierover, of waarom kijkt u ons *zo* doordringend aan, alsof wij door onze eigen kracht of godsvrucht hebben bewerkstelligd dat deze *man* nu loopt?
+13. De God van Abraham, Izak en Jakob, de God van onze vaderen, heeft Zijn Kind Jezus verheerlijkt, Die u hebt overgeleverd. U hebt Hem verloochend vÃ³Ã³r Pilatus, toen die oordeelde dat men *Hem* zou loslaten.
 14. U echter hebt de Heilige en Rechtvaardige verloochend en gevraagd dat u een moordenaar geschonken zou worden,
 15. maar de Vorst van het leven hebt u gedood, Die God uit de doden opgewekt heeft, waarvan wij getuigen zijn.
 16. En Zijn Naam heeft deze *man*, die u ziet en kent, sterk gemaakt door het geloof in Zijn Naam. En het geloof dat *er is* door Hem, heeft hem in aanwezigheid van u allen deze volkomen gezondheid gegeven.

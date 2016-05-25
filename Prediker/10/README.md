@@ -9,7 +9,7 @@
 8. Wie een kuil graaft, zal erin vallen. Wie een gat slaat in een muur, een slang zal hem bijten.
 9. Wie stenen lostrekt, zal daardoor bezeerd worden. Wie hout klooft, zal daardoor gevaar lopen.
 10. Als het ijzer bot wordt en iemand slijpt de snede niet, dan moet hij meer kracht zetten. Het voornaamste om te slagen is wijsheid.
-11. Als de slang vóór de bezwering bijt, heeft de meesterbezweerder geen nut.
+11. Als de slang vÃ³Ã³r de bezwering bijt, heeft de meesterbezweerder geen nut.
 12. Woorden uit de mond van een wijze zijn aangenaam, maar de lippen van een dwaas verslinden hemzelf.
 13. Het begin van de woorden uit zijn mond is dwaasheid en het laatste uit zijn mond boosaardige zotternij.
 14. De dwaas gebruikt veel woorden, maar de mens weet niet wat er gebeuren zal. Wat er na hem zal gebeuren, wie zal het hem bekendmaken?

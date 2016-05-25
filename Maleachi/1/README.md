@@ -1,9 +1,9 @@
 #Maleachi 1
-1. Een last, het woord van de HEERE tot IsraÎl, door de dienst van Maleachi.
+1. Een last, het woord van de HEERE tot Isra√´l, door de dienst van Maleachi.
 2. Ik heb u liefgehad, zegt de HEERE, maar u zegt: Waarin hebt U ons liefgehad? Was Ezau niet de broer van Jakob? spreekt de HEERE. Toch heb Ik Jakob liefgehad, 
 3. en Ezau heb Ik gehaat. Ik heb zijn bergen gemaakt *tot* een woestenij, en zijn erfelijk bezit *prijsgegeven* aan de jakhalzen van de woestijn. 
-4. Hoewel Edom zegt: Als wij verwoest worden, bouwen wij de puinhopen weer op, zegt de HEERE van de legermachten dit: Zullen zÌj bouwen, dan zal Õk afbreken, en men zal hen noemen: Goddeloos gebied, en: Het volk waarop de HEERE tot in eeuwigheid toornig is. 
-5. Uw *eigen* ogen zullen het zien, en u zult zelf zeggen: Groot is de HEERE, tot over de grens van IsraÎl!
+4. Hoewel Edom zegt: Als wij verwoest worden, bouwen wij de puinhopen weer op, zegt de HEERE van de legermachten dit: Zullen z√≠j bouwen, dan zal √çk afbreken, en men zal hen noemen: Goddeloos gebied, en: Het volk waarop de HEERE tot in eeuwigheid toornig is. 
+5. Uw *eigen* ogen zullen het zien, en u zult zelf zeggen: Groot is de HEERE, tot over de grens van Isra√´l!
 6. Een zoon eert zijn vader en een slaaf zijn heer. Als Ik dan een Vader ben, waar is de eerbied voor Mij? En als Ik een Heer ben, waar is de vrees voor Mij? zegt de HEERE van de legermachten tegen u, priesters die Mijn Naam verachten. Maar u zegt: Waardoor verachten wij Uw Naam? 
 7. *Doordat* u onrein brood op Mijn altaar brengt. En u zegt: Waardoor maken wij U onrein? Doordat u zegt: De tafel van de HEERE, die is verachtelijk. 
 8. En als u een blind *dier* ten offer brengt: Dat is niet erg! En als u een kreupel of ziek *dier ten offer* brengt: Dat is niet erg! Bied het maar eens aan uw landvoogd aan. Zou hij u goedgezind zijn of u ter wille zijn? *Dit* zegt de HEERE van de legermachten. 

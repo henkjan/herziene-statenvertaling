@@ -1,6 +1,6 @@
 #Lukas 13
-1. Er waren juist op dat tijdstip enigen bij Hem, die Hem berichtten over de Galileeërs van wie Pilatus het bloed met hun offers vermengd had.
-2. En Jezus antwoordde en zei tegen hen: Denkt u dat deze Galileeërs grotere zondaars zijn geweest dan alle *andere* Galileeërs, omdat zij zulke dingen geleden hebben?
+1. Er waren juist op dat tijdstip enigen bij Hem, die Hem berichtten over de GalileeÃ«rs van wie Pilatus het bloed met hun offers vermengd had.
+2. En Jezus antwoordde en zei tegen hen: Denkt u dat deze GalileeÃ«rs grotere zondaars zijn geweest dan alle *andere* GalileeÃ«rs, omdat zij zulke dingen geleden hebben?
 3. Ik zeg u: Nee, maar als u zich niet bekeert, zult u allen evenzo omkomen.
 4. Of die achttien, op wie de toren in Siloam viel en die daardoor gedood werden, denkt u dat zij meer schuld hebben gehad dan alle *andere* mensen die in Jeruzalem wonen?
 5. Ik zeg u: Nee, maar als u zich niet bekeert, zult u allen evenzo omkomen.
@@ -8,7 +8,7 @@
 7. Toen zei hij tegen de wijngaardenier: Zie, ik kom nu *al* drie jaar vrucht zoeken aan deze vijgenboom en vind die niet. Hak hem om. Waarom beslaat hij de aarde nutteloos?
 8. En hij antwoordde en zei tegen hem: Heer, laat hem ook *nog* dit jaar staan, totdat ik om hem heen gegraven en hem bemest heb.
 9. Wellicht dat hij dan vrucht draagt. Maar zo niet, dan moet u hem alsnog omhakken.
-10. En Hij gaf onderwijs op de sabbat in één van de synagogen.
+10. En Hij gaf onderwijs op de sabbat in Ã©Ã©n van de synagogen.
 11. En zie, er was een vrouw die achttien jaar lang een geest had die haar ziek maakte en zij was kromgebogen en kon zich in het geheel niet oprichten.
 12. En toen Jezus haar zag, riep Hij haar bij Zich en zei tegen haar: Vrouw, u bent verlost van uw ziekte.
 13. En Hij legde de handen op haar en zij werd onmiddellijk weer opgericht en verheerlijkte God.
@@ -29,7 +29,7 @@
 28. Daar zal gejammer zijn en tandengeknars, wanneer u Abraham, Izak en Jakob en alle profeten in het Koninkrijk van God zult zien, maar u buitengeworpen.
 29. En daar zullen er komen van oost en west, van noord en zuid, en zij zullen aan tafel gaan in het Koninkrijk van God.
 30. En zie, er zijn laatsten die de eersten zullen zijn en er zijn eersten die de laatsten zullen zijn.
-31. Op diezelfde dag kwamen er enige Farizeeën en zeiden tegen Hem: Ga weg en vertrek vanhier, want Herodes wil U doden.
+31. Op diezelfde dag kwamen er enige FarizeeÃ«n en zeiden tegen Hem: Ga weg en vertrek vanhier, want Herodes wil U doden.
 32. En Hij zei tegen hen: Ga heen en zeg die vos: Zie, Ik drijf demonen uit en verricht genezingen, vandaag en morgen, en op de derde *dag* word Ik voleindigd.
 33. Intussen moet Ik heden en morgen en de *dag* daarna reizen. Het gaat immers niet aan dat een profeet omkomt buiten Jeruzalem.
 34. Jeruzalem, Jeruzalem, u die de profeten doodt en stenigt die naar u toe gezonden zijn, hoe vaak heb Ik uw kinderen bijeen willen brengen, op de wijze waarop een hen haar kuikens *bijeenbrengt* onder *haar* vleugels, maar u hebt niet gewild!

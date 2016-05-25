@@ -8,7 +8,7 @@
 7. Een rechtvaardige gaat *zijn weg* in oprechtheid, welzalig zijn zijn kinderen na hem. 
 8. Een koning die op de rechterstoel zit, schift met zijn ogen alle kwaad. 
 9. Wie kan zeggen: Ik heb mijn hart gezuiverd, ik ben rein van mijn zonde? 
-10. Tweeërlei *weeg*steen en tweeërlei efa, ook die beide zijn voor de HEERE een gruwel. 
+10. TweeÃ«rlei *weeg*steen en tweeÃ«rlei efa, ook die beide zijn voor de HEERE een gruwel. 
 11. Ook een jongeman laat zich door zijn daden kennen of zijn werk zuiver is en of het oprecht is. 
 12. Een oor dat hoort en een oog dat ziet, ook die beide heeft de HEERE gemaakt. 
 13. Heb de slaap niet lief, anders wordt u arm, open uw ogen, verzadig u met brood. 
@@ -21,7 +21,7 @@
 20. Wie zijn vader of zijn moeder vervloekt, diens lamp zal in volslagen duisternis uitgedoofd worden. 
 21. Als een erfenis in het begin *al te snel* wordt verworven, zal er uiteindelijk geen zegen op rusten. 
 22. Zeg niet: Ik zal het kwaad vergelden, wacht op de HEERE, en Hij zal u verlossen. 
-23. Tweeërlei *weeg*steen is voor de HEERE een gruwel, een bedrieglijke weegschaal is niet goed. 
+23. TweeÃ«rlei *weeg*steen is voor de HEERE een gruwel, een bedrieglijke weegschaal is niet goed. 
 24. De voetstappen van een man zijn van de HEERE, hoe zou dan een mens zijn weg kunnen begrijpen? 
 25. Het is een valstrik voor een mens ondoordacht een heilige *gelofte* te doen, en *pas* daarna de *gedane* geloften te overwegen. 
 26. Een wijze koning verstrooit goddelozen en laat het rad over hen gaan. 

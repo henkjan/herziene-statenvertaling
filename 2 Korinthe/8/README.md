@@ -1,5 +1,5 @@
 #2 Korinthe 8
-1. Verder maken wij u bekend, broeders, de genade van God die in de gemeenten van Macedonië gegeven is,
+1. Verder maken wij u bekend, broeders, de genade van God die in de gemeenten van MacedoniÃ« gegeven is,
 2. *namelijk* dat te midden van veel beproeving door verdrukking, de overvloed van hun blijdschap en hun buitengewoon diepe armoede in overvloedige mate geleid hebben tot de rijkdom van hun vrijgevigheid.
 3. Want, *zo* getuig ik, zij *gaven* naar vermogen, ja, boven vermogen, *en* uit eigen beweging;
 4. en zij smeekten ons met veel aandrang dat wij *hun* genade*gave* en aandeel in het dienstbetoon aan de heiligen zouden aannemen.

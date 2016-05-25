@@ -10,5 +10,5 @@
 9. De vrouwen van Mijn volk verdrijft u, *elk* uit het huis dat haar lief is, haar kleine kinderen ontneemt u voor eeuwig Mijn sieraad. 
 10. Sta op en ga weg, want dit is niet het *land* van de rust. Omdat het verontreinigd is, brengt het de ondergang, ja, een verschrikkelijke ondergang. 
 11. Als er iemand is die wind naloopt, en bedrieglijk liegt *en zegt*: Ik profeteer voor u voor wijn en sterkedrank, dan is hij voor dit volk de profeet!
-12. Ik zal u, Jakob, zeker verzamelen, geheel en al. Ik zal het overblijfsel van Isra雔 zeker bijeenbrengen. Ik zal het samenbrengen als schapen van Bozra, als een kudde midden in zijn weide. Het zal er gonzen van de mensen. 
-13. De Doorbreker trekt v篌r hen op. Zij zullen doorbreken, door de poort trekken en daardoor naar buiten gaan. Hun Koning gaat v篌r hen uit, de HEERE *gaat* aan de spits.
+12. Ik zal u, Jakob, zeker verzamelen, geheel en al. Ik zal het overblijfsel van Isra毛l zeker bijeenbrengen. Ik zal het samenbrengen als schapen van Bozra, als een kudde midden in zijn weide. Het zal er gonzen van de mensen. 
+13. De Doorbreker trekt v贸贸r hen op. Zij zullen doorbreken, door de poort trekken en daardoor naar buiten gaan. Hun Koning gaat v贸贸r hen uit, de HEERE *gaat* aan de spits.

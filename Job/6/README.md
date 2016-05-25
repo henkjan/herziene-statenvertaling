@@ -1,7 +1,7 @@
 #Job 6
 1. Maar Job antwoordde en zei: 
 2. Och, werd mijn verdriet maar eens nauwkeurig gewogen, en legden ze *al* mijn ellende maar bij elkaar in een weegschaal! 
-3. Want het is nu zwaarder dan het zand van de zeeën; daarom zijn mijn woorden ondoordacht. 
+3. Want het is nu zwaarder dan het zand van de zeeÃ«n; daarom zijn mijn woorden ondoordacht. 
 4. Want de pijlen van de Almachtige zijn in mij, mijn geest drinkt het vergif ervan; de verschrikkingen van God staan tegen mij opgesteld. 
 5. Balkt de wilde ezel bij het malse gras? Loeit het rund bij zijn voer? 
 6. Wordt het smakeloze gegeten zonder zout? Zit er smaak aan het wit van een ei? 
@@ -22,7 +22,7 @@
 21. Voorzeker, *zo* zijn jullie nu *voor mij* geworden: niets! Jullie hebben de ontzetting gezien en jullie zijn bevreesd geworden. 
 22. Heb ik soms gezegd: Geef mij *iets*, of: Geef een geschenk voor mij van jullie vermogen? 
 23. of: Bevrijd mij uit de hand van de tegenstander, en verlos mij uit de hand van de geweldplegers? 
-24. Onderwijs mij, dan zal ík zwijgen, doe mij begrijpen waarin ik gedwaald heb. 
+24. Onderwijs mij, dan zal Ã­k zwijgen, doe mij begrijpen waarin ik gedwaald heb. 
 25. Wat zijn oprechte woorden krachtig! Maar wat betekent het straffen *dat* bij jullie vandaan *komt*? 
 26. Willen jullie woorden bedenken om te straffen? Zijn de woorden van een wanhopige dan wind? 
 27. Jullie zouden zelfs over een wees *het lot* werpen, jullie zouden jullie vriend verkopen. 

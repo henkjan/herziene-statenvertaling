@@ -10,7 +10,7 @@
 9. Uw ogen moeten op de akker *gericht* zijn die zij aan het maaien zijn en u moet achter hen aan gaan. Heb ik de knechten niet geboden dat zij u niet aanraken? Als u dorst hebt, mag u naar de *water*vaten gaan en drinken van wat de knechten zullen scheppen.
 10. Toen wierp zij zich met het gezicht *ter aarde*, boog zich naar de grond en zei tegen hem: Waarom heb ik genade gevonden in uw ogen, dat u naar mij omziet, terwijl ik een buitenlandse ben?
 11. Boaz antwoordde en zei tegen haar: Het is mij allemaal verteld, alles wat u na de dood van uw man voor uw schoonmoeder gedaan hebt, en hoe u uw vader en uw moeder en uw geboorteland hebt verlaten en naar een volk bent gegaan dat u voorheen niet kende.
-12. Moge de HEERE uw daad vergelden, en moge uw loon volkomen zijn van de HEERE, de God van Israël, onder Wiens vleugels u gekomen bent om toevlucht te nemen.
+12. Moge de HEERE uw daad vergelden, en moge uw loon volkomen zijn van de HEERE, de God van IsraÃ«l, onder Wiens vleugels u gekomen bent om toevlucht te nemen.
 13. En zij zei: Laat mij genade vinden in uw ogen, mijn heer, want u hebt mij getroost en u hebt naar het hart van uw dienares gesproken, hoewel ik niet ben als een van uw dienaressen.
 14. Toen het etenstijd was, zei Boaz tegen haar: Kom er hier bij en eet van het brood en doop uw stukje *brood* in de zure wijn. Zo zat zij neer naast de maaiers, en hij reikte haar geroosterd koren aan. En zij at en werd verzadigd en hield nog over.
 15. Toen zij opstond om *weer aren* te gaan rapen, gebood Boaz zijn knechten: Laat haar ook tussen de schoven rapen en val haar niet lastig.

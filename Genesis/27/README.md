@@ -5,10 +5,10 @@
 4. Maak dan een smakelijk gerecht voor me klaar, zoals ik het graag heb, en breng het me om te eten. Dan zal mijn ziel je zegenen voordat ik sterf.
 5. Nu luisterde Rebekka mee, toen Izak tot zijn zoon Ezau sprak. Ezau ging het veld in om een stuk wild te jagen en dat mee te brengen.
 6. Toen zei Rebekka tegen Jakob, haar zoon: Zie, ik heb je vader tegen Ezau, je broer, horen zeggen:
-7. Breng me een stuk wild en maak een smakelijk gerecht voor me klaar om op te eten; dan zal ik je voor het aangezicht van de HEERE zegenen, v篌r mijn dood.
+7. Breng me een stuk wild en maak een smakelijk gerecht voor me klaar om op te eten; dan zal ik je voor het aangezicht van de HEERE zegenen, v贸贸r mijn dood.
 8. Nu dan, mijn zoon, luister naar mijn stem, naar wat ik je gebied.
 9. Ga toch naar de kudde en haal daar voor mij twee goede geitenbokjes. Dan zal ik daarvan een smakelijk gerecht voor je vader klaarmaken, zoals hij het graag heeft.
-10. Dat moet je naar je vader brengen en hij zal *het* eten. Dan zal hij je zegenen, v篌r zijn dood.
+10. Dat moet je naar je vader brengen en hij zal *het* eten. Dan zal hij je zegenen, v贸贸r zijn dood.
 11. Toen zei Jakob tegen Rebekka, zijn moeder: Zie, mijn broer Ezau is een behaarde man en ik heb een gladde huid.
 12. Misschien betast mijn vader mij; dan zal ik in zijn ogen als een bedrieger zijn en zal ik een vloek over mij brengen en geen zegen.
 13. Maar zijn moeder zei tegen hem: *Laat* je vloek mij *dan maar treffen*, mijn zoon. Luister nu maar naar mijn stem en ga *ze* voor mij halen.
@@ -43,5 +43,5 @@
 42. Toen aan Rebekka deze woorden van haar oudste zoon Ezau verteld werden, stuurde zij *een bode* en *liet* Jakob, haar jongste zoon, roepen en zei tegen hem: Zie, je broer Ezau troost zich over jou *met de gedachte* dat hij je zal doden.
 43. Nu dan, mijn zoon, luister naar mijn stem: Sta op, vlucht naar Haran, naar mijn broer Laban,
 44. en blijf enige tijd bij hem, totdat de woede van je broer bedaard is.
-45. Als de boosheid van je broer bedaard is en hij vergeten is wat je hem hebt aangedaan, zal ik *een bode* sturen en je vandaar *terug laten* halen. Waarom zou ik me op 殚n dag van jullie beiden laten beroven?
+45. Als de boosheid van je broer bedaard is en hij vergeten is wat je hem hebt aangedaan, zal ik *een bode* sturen en je vandaar *terug laten* halen. Waarom zou ik me op 茅茅n dag van jullie beiden laten beroven?
 46. Rebekka zei tegen Izak: Ik heb een afkeer van mijn leven vanwege de dochters van de Hethieten. Als Jakob een vrouw neemt uit de dochters van de Hethieten zoals deze *twee*, uit de dochters van dit land, wat heeft mijn leven dan nog voor zin?

@@ -5,17 +5,17 @@
 4. De vrouw heeft niet de beschikking over haar eigen lichaam, maar de man. En evenzo heeft ook de man niet de beschikking over zijn eigen lichaam, maar de vrouw.
 5. Onttrek u niet aan elkaar, behalve dan met *onderling* goedvinden voor een *bepaalde* tijd, om u te wijden aan vasten en bidden. Kom daarna weer bij elkaar, opdat de satan u niet zal verzoeken omdat u zich niet kunt onthouden.
 6. Dit zeg ik echter als tegemoetkoming, niet als bevel.
-7. Want ik zou wel willen dat alle mensen waren zoals ikzelf, maar ieder heeft zijn eigen genadegave van God, de één op deze wijze, de ander op die wijze.
+7. Want ik zou wel willen dat alle mensen waren zoals ikzelf, maar ieder heeft zijn eigen genadegave van God, de Ã©Ã©n op deze wijze, de ander op die wijze.
 8. Maar ik zeg tegen de ongehuwden en de weduwen: Het is goed voor hen, als zij blijven zoals ik.
 9. Maar als zij zich niet kunnen beheersen, laten zij dan trouwen, want het is beter te trouwen dan *van begeerte* te branden.
 10. Maar de gehuwden beveel ik - niet ik, maar de Heere - dat een vrouw niet zal scheiden van *haar* man,
 11. - en als zij toch gaat scheiden, moet zij ongehuwd blijven of zich met *haar* man verzoenen - en dat een man zijn vrouw niet zal verlaten.
-12. Maar tegen de anderen zeg ík, niet de Heere: Als een broeder een ongelovige vrouw heeft en zij ermee instemt bij hem te wonen, moet hij haar niet verlaten.
+12. Maar tegen de anderen zeg Ã­k, niet de Heere: Als een broeder een ongelovige vrouw heeft en zij ermee instemt bij hem te wonen, moet hij haar niet verlaten.
 13. En als een vrouw een ongelovige man heeft en deze stemt ermee in bij haar te wonen, moet zij hem niet verlaten.
 14. Want de ongelovige man is geheiligd door *zijn* vrouw en de ongelovige vrouw is geheiligd door *haar* man. Anders waren immers uw kinderen onrein, maar nu zijn zij heilig.
 15. Maar als de ongelovige scheiden wil, laat hij scheiden. De broeder of de zuster is in zulke gevallen niet gebonden. God heeft ons echter tot vrede geroepen.
 16. Want hoe weet u, vrouw, of u *uw* man zult behouden? Of hoe weet u, man, of u *uw* vrouw zult behouden?
-17. Maar zoals God aan ieder heeft toebedeeld, zoals de Heere ieder geroepen heeft, zó moet hij wandelen. En zo schrijf ik *het* in alle gemeenten voor.
+17. Maar zoals God aan ieder heeft toebedeeld, zoals de Heere ieder geroepen heeft, zÃ³ moet hij wandelen. En zo schrijf ik *het* in alle gemeenten voor.
 18. Is iemand als besnedene geroepen, dan moet hij *die besnijdenis* niet ongedaan laten maken. Is iemand geroepen die onbesneden is, dan moet hij zich niet laten besnijden.
 19. Besneden zijn is niets en onbesneden zijn is niets, maar het in acht nemen van de geboden van God.
 20. Laat ieder blijven in de roeping waarin hij geroepen is.

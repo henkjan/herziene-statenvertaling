@@ -1,7 +1,7 @@
 #Job 9
 1. Maar Job antwoordde en zei: 
 2. Het is waar, ik weet dat het zo is; want hoe zou een sterveling rechtvaardig kunnen zijn voor God? 
-3. Als Hij ertoe genegen is hem ter verantwoording te roepen, niet één op de duizend *keer* zal hij Hem antwoord kunnen geven. 
+3. Als Hij ertoe genegen is hem ter verantwoording te roepen, niet Ã©Ã©n op de duizend *keer* zal hij Hem antwoord kunnen geven. 
 4. Hij is wijs van hart en sterk van kracht; wie heeft zich tegen Hem verhard en vrede gehad? 
 5. Hij verplaatst bergen, zonder dat men het merkt, Hij keert ze om in Zijn toorn. 
 6. Hij schudt de aarde van haar plaats, zodat haar pilaren wankelen. 
@@ -12,7 +12,7 @@
 11. Zie, gaat Hij langs mij heen, ik zie Hem niet; gaat Hij voorbij, ik merk Hem niet op. 
 12. Zie, neemt Hij weg, wie zal het Hem laten teruggeven? Wie zal tegen Hem zeggen: Wat doet U? 
 13. God keert Zijn toorn niet af; *zelfs* de helpers van Rahab bukken zich onder Hem. 
-14. Hoeveel te minder zal ík Hem dan kunnen antwoorden, *en* mijn woorden uitkiezen tegen Hem? 
+14. Hoeveel te minder zal Ã­k Hem dan kunnen antwoorden, *en* mijn woorden uitkiezen tegen Hem? 
 15. *Zelfs* als ik rechtvaardig ben, kan ik geen antwoord geven; mijn Rechter zal ik om genade smeken. 
 16. Als ik roep en Hij antwoordt mij, dan kan ik niet geloven dat Hij mijn stem ter ore neemt. 
 17. Want Hij vermorzelt mij door een storm, en maakt mijn wonden talrijk, zonder reden. 
@@ -22,7 +22,7 @@
 21. Ik ben oprecht, *maar* ik sla geen acht op mijn ziel; ik veracht mijn leven. 
 22. Het is een *en hetzelfde*; daarom zeg ik: Hij brengt zowel de oprechte als de goddeloze om. 
 23. Als plotseling de gesel doodt, spot Hij met de wanhoop van de onschuldigen. 
-24. De aarde is overgegeven in de hand van de goddeloze; Hij bedekt het gezicht van haar rechters. Als Híj het niet is, wie is het dan? 
+24. De aarde is overgegeven in de hand van de goddeloze; Hij bedekt het gezicht van haar rechters. Als HÃ­j het niet is, wie is het dan? 
 25. Mijn dagen zijn sneller voorbijgegaan dan een ijlbode; zij zijn weggevlucht, zij hebben het goede niet gezien. 
 26. Zij zijn voorbijgegaan als boten van riet, zoals een arend op voedsel afvliegt. 
 27. Als ik zeg: Ik zal mijn klacht vergeten, ik zal een ander gezicht zetten en mij verkwikken, 

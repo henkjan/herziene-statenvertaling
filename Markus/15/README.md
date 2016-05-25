@@ -4,7 +4,7 @@
 3. En de overpriesters beschuldigden Hem van veel *dingen*, maar Hij antwoordde niets.
 4. En Pilatus stelde Hem opnieuw een vraag en zei: Antwoordt U niet? Zie, hoeveel zij tegen U getuigen!
 5. Maar Jezus antwoordde helemaal niets meer, zodat Pilatus zich verwonderde.
-6. Nu liet hij op een feest ÈÈn gevangene voor hen los, wie zij maar wensten.
+6. Nu liet hij op een feest √©√©n gevangene voor hen los, wie zij maar wensten.
 7. En er was er een, die Barabbas heette, die gevangen zat met medeoproermakers die in het oproer een moord begaan hadden.
 8. En de menigte schreeuwde en begon te eisen *dat hij zou doen* zoals hij altijd voor hen gedaan had.
 9. En Pilatus antwoordde hun: Wilt u dat ik de Koning van de Joden voor u loslaat?
@@ -17,7 +17,7 @@
 16. En de soldaten leidden Hem het paleis binnen, dat is het gerechtsgebouw, en riepen heel de legerafdeling bijeen.
 17. En zij deden Hem een purperen mantel om, en nadat zij een doornenkroon gevlochten hadden, zetten zij Hem *die* op
 18. en begonnen Hem te begroeten: Gegroet, Koning van de Joden!
-19. En zij sloegen op Zijn hoofd met een rietstok en bespuwden Hem en zij vielen op de knieÎn en aanbaden Hem.
+19. En zij sloegen op Zijn hoofd met een rietstok en bespuwden Hem en zij vielen op de knie√´n en aanbaden Hem.
 20. En toen zij Hem bespot hadden, trokken zij Hem de purperen mantel uit en trokken Hem Zijn eigen kleren aan en leidden Hem naar buiten om Hem te kruisigen.
 21. En zij dwongen een voorbijganger, Simon van Cyrene, die van de akker kwam, de vader van Alexander en Rufus, dat hij Zijn kruis droeg.
 22. En zij brachten Hem naar de plaats Golgotha, dat is vertaald: Schedelplaats.
@@ -30,13 +30,13 @@
 29. En de voorbijgangers lasterden Hem en schudden hun hoofd en zeiden: Ha! U die de tempel afbreekt en in drie dagen opbouwt,
 30. verlos Uzelf en kom van het kruis af!
 31. En evenzo spotten ook de overpriesters, samen met de schriftgeleerden, onder elkaar en zeiden: Anderen heeft Hij verlost, Zichzelf kan Hij niet verlossen.
-32. Laat de Christus, de Koning van IsraÎl, nu van het kruis afkomen, opdat wij het zien en gaan geloven. Ook zij die met Hem gekruisigd waren, smaadden Hem.
+32. Laat de Christus, de Koning van Isra√´l, nu van het kruis afkomen, opdat wij het zien en gaan geloven. Ook zij die met Hem gekruisigd waren, smaadden Hem.
 33. En toen het zesde uur gekomen was, kwam er duisternis over heel de aarde, tot het negende uur toe.
-34. En op het negende uur riep Jezus met luide stem: ELOœ, ELOœ, LAMA SABACHTANI, dat is vertaald: Mijn God, Mijn God, waarom hebt U Mij verlaten?
+34. En op het negende uur riep Jezus met luide stem: ELO√è, ELO√è, LAMA SABACHTANI, dat is vertaald: Mijn God, Mijn God, waarom hebt U Mij verlaten?
 35. En sommigen van hen die daarbij stonden en *dit* hoorden, zeiden: Zie, Hij roept Elia.
 36. En er snelde iemand toe, vulde een spons met zure wijn, stak die op een rietstok en gaf Hem te drinken, en hij zei: Houd op, laten wij zien of Elia komt om Hem er af te nemen.
 37. En roepend met luide stem gaf Jezus de geest.
-38. En het voorhangsel van de tempel scheurde in tweeÎn, van boven tot beneden.
+38. En het voorhangsel van de tempel scheurde in twee√´n, van boven tot beneden.
 39. En de hoofdman over honderd die daarbij stond, tegenover Hem, en zag dat Hij zo roepend de geest gegeven had, zei: Werkelijk, deze Mens was Gods Zoon!
 40. En er waren *daar* ook vrouwen, die uit de verte toekeken; onder hen was ook Maria Magdalena, en Maria, de moeder van Jakobus de kleine en van Joses, en Salome,
 41. die, ook toen Hij in Galilea was, Hem gevolgd waren en gediend hadden, en veel andere *vrouwen* die met Hem naar Jeruzalem opgegaan waren.

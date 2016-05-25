@@ -1,6 +1,6 @@
 #Leviticus 19
 1. De HEERE sprak tot Mozes:
-2. Spreek tot heel de gemeenschap van de Israëlieten, en zeg tegen hen: Heilig moet u zijn, want Ik, de HEERE, uw God, ben heilig.
+2. Spreek tot heel de gemeenschap van de IsraÃ«lieten, en zeg tegen hen: Heilig moet u zijn, want Ik, de HEERE, uw God, ben heilig.
 3. Ieder moet ontzag hebben voor zijn moeder en zijn vader en Mijn sabbatten in acht nemen. Ik ben de HEERE, uw God.
 4. U mag u niet tot de afgoden wenden en voor uzelf geen gegoten goden maken. Ik ben de HEERE, uw God.
 5. Wanneer u nu een dankoffer aan de HEERE brengt, moet u *dat* zo brengen dat u voor Hem welgevallig bent.
@@ -12,7 +12,7 @@
 11. U mag niet stelen, u mag niet liegen of iemand zijn naaste bedriegen.
 12. U mag geen valse eed afleggen in Mijn Naam, en zo de Naam van uw God ontheiligen. Ik ben de HEERE.
 13. U mag uw naaste niet afpersen en niet beroven. Het arbeidsloon van de dagloner mag niet de nacht bij u overblijven tot de *volgende* morgen.
-14. U mag een dove niet vervloeken en vóór een blinde mag u geen struikelblok neerleggen, maar u moet uw God vrezen. Ik ben de HEERE.
+14. U mag een dove niet vervloeken en vÃ³Ã³r een blinde mag u geen struikelblok neerleggen, maar u moet uw God vrezen. Ik ben de HEERE.
 15. U mag geen onrecht doen in de rechtspraak, u mag geen partij trekken voor de arme en de aanzienlijke niet voortrekken. Op rechtvaardige wijze moet u uw naaste oordelen.
 16. U mag onder uw volksgenoten niet met lasterpraat rondgaan, u mag uw naaste niet naar het leven staan. Ik ben de HEERE.
 17. U mag in uw hart uw broeder niet haten. U moet uw naaste zeker terechtwijzen, zodat u geen zonde op hem laadt.

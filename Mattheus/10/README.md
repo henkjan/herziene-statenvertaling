@@ -1,10 +1,10 @@
 #Mattheus 10
 1. En Hij riep Zijn twaalf discipelen bij Zich en gaf hun macht over de onreine geesten om die uit te drijven, en om iedere ziekte en elke kwaal te genezen.
-2. De namen nu van de twaalf apostelen zijn deze: de eerste, Simon die Petrus genoemd werd, en Andreas, zijn broer; Jakobus, de *zoon* van Zebedeüs, en Johannes, zijn broer;
-3. Filippus en Bartholomeüs; Thomas en Mattheüs, de tollenaar; Jakobus, de *zoon* van Alfeüs, en Lebbeüs, die ook Thaddeüs genoemd werd;
+2. De namen nu van de twaalf apostelen zijn deze: de eerste, Simon die Petrus genoemd werd, en Andreas, zijn broer; Jakobus, de *zoon* van ZebedeÃ¼s, en Johannes, zijn broer;
+3. Filippus en BartholomeÃ¼s; Thomas en MattheÃ¼s, de tollenaar; Jakobus, de *zoon* van AlfeÃ¼s, en LebbeÃ¼s, die ook ThaddeÃ¼s genoemd werd;
 4. Simon Kananites en Judas Iskariot, die Hem ook verraden heeft.
 5. Deze twaalf zond Jezus uit en Hij gebood hun: U zult u niet op weg begeven naar de heidenen en u zult geen *enkele* stad van de Samaritanen binnengaan,
-6. maar ga liever naar de verloren schapen van het huis van Israël.
+6. maar ga liever naar de verloren schapen van het huis van IsraÃ«l.
 7. En als u op weg gaat, predik dan: Het Koninkrijk der hemelen is nabijgekomen.
 8. Genees zieken, reinig melaatsen, wek doden op, drijf demonen uit. U hebt het voor niets ontvangen, geef het voor niets.
 9. Voorzie u niet van goud of zilver of koper*geld* in uw gordels,
@@ -21,9 +21,9 @@
 20. Want u bent het niet die spreekt, maar de Geest van uw Vader, Die in u spreekt.
 21. De *ene* broer zal de *andere* broer overleveren om gedood te worden, en de vader het kind, en de kinderen zullen tegen de ouders opstaan en hen doden.
 22. En u zult door allen gehaat worden omwille van Mijn Naam; maar wie volharden zal tot het einde, die zal zalig worden.
-23. Wanneer ze u in de ene stad vervolgen, vlucht dan naar de andere, want voorwaar, Ik zeg u: U zult *uw rondgang door* de steden van Israël niet geëindigd hebben, voordat de Zoon des mensen gekomen is.
+23. Wanneer ze u in de ene stad vervolgen, vlucht dan naar de andere, want voorwaar, Ik zeg u: U zult *uw rondgang door* de steden van IsraÃ«l niet geÃ«indigd hebben, voordat de Zoon des mensen gekomen is.
 24. De discipel staat niet boven de meester en de slaaf niet boven zijn heer.
-25. Het *moet* genoeg *zijn* voor de discipel dat hij wordt zoals zijn meester, en *dat* de slaaf *wordt* zoals zijn heer. Als ze de Heere van het huis Beëlzebul genoemd hebben, hoeveel te meer Zijn huisgenoten!
+25. Het *moet* genoeg *zijn* voor de discipel dat hij wordt zoals zijn meester, en *dat* de slaaf *wordt* zoals zijn heer. Als ze de Heere van het huis BeÃ«lzebul genoemd hebben, hoeveel te meer Zijn huisgenoten!
 26. Wees dus niet bevreesd voor hen, want er is niets bedekt wat niet geopenbaard zal worden, en *er is niets* verborgen wat niet bekend zal worden.
 27. Wat Ik u zeg in het duister, zeg het in het licht; en wat u hoort in het oor, predik dat op de daken.
 28. En wees niet bevreesd voor hen die het lichaam doden en de ziel niet kunnen doden, maar wees veeleer bevreesd voor Hem Die zowel ziel als lichaam te gronde kan richten in de hel.

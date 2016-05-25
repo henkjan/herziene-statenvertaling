@@ -6,6 +6,6 @@
 5. Moge Hij u overeenkomstig *de wens van* uw hart geven en al uw voornemens in vervulling doen gaan. 
 6. Wij zullen juichen over uw heil en de vaandels opheffen in de Naam van onze God. Moge de HEERE al uw verlangens vervullen. 
 7. Nu weet ik dat de HEERE Zijn gezalfde verlost! Hij zal hem verhoren uit Zijn heilige hemel, met machtige daden van heil door Zijn rechterhand. 
-8. Dezen *vertrouwen* op strijdwagens en die op paarden, maar wíj zullen de Naam van de HEERE, onze God in herinnering roepen. 
-9. Zíj kromden zich en vielen, maar wíj zijn opgestaan en staande gebleven. 
+8. Dezen *vertrouwen* op strijdwagens en die op paarden, maar wÃ­j zullen de Naam van de HEERE, onze God in herinnering roepen. 
+9. ZÃ­j kromden zich en vielen, maar wÃ­j zijn opgestaan en staande gebleven. 
 10. HEERE, verlos; moge die Koning ons verhoren op de dag dat wij roepen.

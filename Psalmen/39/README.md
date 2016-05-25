@@ -8,7 +8,7 @@
 7. Ja, de mens loopt rond in een schijnbeeld. Ja, tevergeefs is men onrustig. Men brengt *van alles* bijeen en weet niet wie het binnenhalen zal. 
 8. En nu, wat verwacht ik, Heere? Mijn hoop, die is op U! 
 9. Red mij van al mijn overtredingen, maak mij niet tot een smaad voor de dwaas. 
-10. Ik ben verstomd, ik zal mijn mond niet opendoen, want Ú hebt het gedaan. 
+10. Ik ben verstomd, ik zal mijn mond niet opendoen, want Ãš hebt het gedaan. 
 11. Neem Uw plaag van mij weg; ik ben bezweken door de bestrijding van Uw hand. 
 12. Bestraft U iemand met straffen om *zijn* ongerechtigheid, dan doet U zijn aantrekkelijkheid als een mot teniet. Ja, ieder mens is een zucht. [ Sela] 
 13. Luister naar mijn gebed, HEERE, neem mijn hulpgeroep ter ore, zwijg niet bij mijn tranen, want ik ben een vreemdeling bij U, een bijwoner, zoals al mijn vaderen. 

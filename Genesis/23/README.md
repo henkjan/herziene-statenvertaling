@@ -1,6 +1,6 @@
 #Genesis 23
 1. Sara leefde honderdzevenentwintig jaar; *dat* waren de levensjaren van Sara.
-2. En Sara stierf in Kirjath-Arba - het *tegenwoordige* Hebron - in het land Kana‰n. Abraham ging *de tent* in om rouw te bedrijven over Sara en haar te bewenen.
+2. En Sara stierf in Kirjath-Arba - het *tegenwoordige* Hebron - in het land Kana√§n. Abraham ging *de tent* in om rouw te bedrijven over Sara en haar te bewenen.
 3. Daarna stond Abraham op, *ging* weg van zijn dode en sprak tot de Hethieten:
 4. Ik ben *slechts* een vreemdeling en bijwoner bij u, *maar* geef mij *toch* bij u een eigen graf zodat ik mijn dode kan uitdragen en begraven.
 5. De Hethieten antwoordden Abraham en zeiden:
@@ -17,5 +17,5 @@
 16. Abraham luisterde naar Efron; en Abraham woog voor Efron het geld af waarover hij ten aanhoren van de Hethieten gesproken had: vierhonderd sikkel zilver, naar de gangbare *waarde* voor de koopman.
 17. Zo ging de akker van Efron in Machpela, die tegenover Mamre lag, de akker en de grot die daarop gelegen is, en al de bomen op de akker, op heel het gebied rondom *de grot*,
 18. over op Abraham als *zijn* eigendom, voor de ogen van de Hethieten, in het bijzijn van allen die naar de poort van zijn stad gekomen waren.
-19. Daarna begroef Abraham zijn vrouw Sara in de grot op de akker van Machpela, tegenover Mamre - het *tegenwoordige* Hebron - in het land Kana‰n.
+19. Daarna begroef Abraham zijn vrouw Sara in de grot op de akker van Machpela, tegenover Mamre - het *tegenwoordige* Hebron - in het land Kana√§n.
 20. Zo ging de akker met de grot die daarop *gelegen* is als een eigen graf over van de Hethieten op Abraham.

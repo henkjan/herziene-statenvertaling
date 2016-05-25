@@ -5,14 +5,14 @@
 4. Ik heb voor mijzelf grootse dingen tot stand gebracht: Ik bouwde mij huizen, ik plantte mij wijngaarden. 
 5. Ik legde mij tuinen en boomgaarden aan en plantte daarin allerlei vruchtbomen. 
 6. Ik legde mij waterbekkens aan om daaruit een bos met jonge bomen te bevochtigen. 
-7. Ik verwierf slaven en slavinnen en de *in* huis *geboren* kinderen behoorden mij toe. Ook had ik grote kudden runderen en kleinvee, meer dan allen die v篌r mij in Jeruzalem geweest zijn. 
+7. Ik verwierf slaven en slavinnen en de *in* huis *geboren* kinderen behoorden mij toe. Ook had ik grote kudden runderen en kleinvee, meer dan allen die v贸贸r mij in Jeruzalem geweest zijn. 
 8. Ik vergaarde mij ook zilver en goud, kostbaarheden van koningen en gewesten. Ik zorgde voor zangers en zangeressen, en de genoegens van de mensenkinderen: genot in overvloed. 
-9. Ik werd groter en nam toe, meer dan allen die v篌r mij in Jeruzalem geweest zijn. Ook bleef mijn wijsheid mij bij. 
+9. Ik werd groter en nam toe, meer dan allen die v贸贸r mij in Jeruzalem geweest zijn. Ook bleef mijn wijsheid mij bij. 
 10. Al wat mijn ogen verlangden, onthield ik ze niet. Ik ontzegde mijn hart geen enkele blijdschap, want mijn hart werd verblijd vanwege al mijn zwoegen. Dat was mijn deel voor al mijn zwoegen.
 11. Toen richtte ik *mijn aandacht* op al mijn werken, die mijn handen gemaakt hadden, en op het zwoegen waarmee ik had gezwoegd om ze tot stand te brengen. Zie, het was alles vluchtig en najagen van wind. Daarin was geen voordeel onder de zon.
 12. Daarna richtte ik *mijn aandacht* op het bezien van wijsheid, ook van onverstand en dwaasheid. Immers, hoe zal de mens die na de koning komt, *doen* wat al gedaan is?
 13. Toen zag ik dat de wijsheid voorkeur heeft boven de dwaasheid, evenals het licht voorkeur heeft boven de duisternis.
-14. De wijze heeft ogen in zijn hoofd, maar de dwaas wandelt in de duisternis. Toen merkte ik ook dat 殚n lot hen allen treft.
+14. De wijze heeft ogen in zijn hoofd, maar de dwaas wandelt in de duisternis. Toen merkte ik ook dat 茅茅n lot hen allen treft.
 15. Toen zei ik in mijn hart: Zoals het lot van de dwaas ook mijzelf treft, waarom ben ik dan toen zo bovenmate wijs geweest? Ik sprak in mijn hart: Ook dat was vluchtig.
 16. Er is immers voor eeuwig niet meer herinnering aan een wijze dan aan een dwaas. Wat er nu is, wordt in de dagen die komen, allemaal vergeten. Hoe sterft de wijze met de dwaas?
 17. Daarom haatte ik het leven, want het werk dat plaatsvindt onder de zon, leek mij kwaad. Het is immers alles vluchtig en najagen van wind.

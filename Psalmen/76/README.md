@@ -1,6 +1,6 @@
 #Psalmen 76
 1. Voor de koorleider, bij snarenspel, een psalm van Asaf, een lied. 
-2. God is bekend in Juda, Zijn Naam is groot in Israël. 
+2. God is bekend in Juda, Zijn Naam is groot in IsraÃ«l. 
 3. In Salem is Zijn hut, en Zijn woning in Sion. 
 4. Daar brak Hij de vurige pijlen van de boog, het schild, het zwaard en de strijd. [ Sela] 
 5. U bent schitterender *en* machtiger dan de roofzuchtige bergen. 

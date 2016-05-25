@@ -5,7 +5,7 @@
 4. Het is beter dat u niet belooft, dan dat u belooft maar niet nakomt. 
 5. Sta uw mond niet toe, uw vlees te doen zondigen. Zeg ook niet in de tegenwoordigheid van de engel: dat was een vergissing. Waarom zou God zeer toornig worden om wat u zegt, en het werk van uw handen te gronde richten? 
 6. Want zoals er in een veelheid aan dromen *veel* vluchtigs is, zo is het ook met de veelheid van woorden. Daarom: vrees God!
-7. Indien u onderdrukking van de arme en beroving van recht en gerechtigheid in het gewest ziet, wees dan over dat verschijnsel niet verbijsterd. Want een hooggeplaatste let op een *andere* hooggeplaatste, en *nog* hoger geplaatsten *letten* op hén.
+7. Indien u onderdrukking van de arme en beroving van recht en gerechtigheid in het gewest ziet, wees dan over dat verschijnsel niet verbijsterd. Want een hooggeplaatste let op een *andere* hooggeplaatste, en *nog* hoger geplaatsten *letten* op hÃ©n.
 8. De opbrengst van het land is er voor iedereen. *Ook* een koning wordt gediend met *de opbrengst van* het veld.
 9. Wie het geld liefheeft, wordt van geld nooit verzadigd, en wie de overvloed liefheeft, niet van inkomsten. Ook dat is vluchtig.
 10. Waar het goed vermeerdert, vermeerderen zij die het opeten. Welk voordeel hebben dan de bezitters ervan, behalve dat hun ogen *ernaar* kunnen kijken?

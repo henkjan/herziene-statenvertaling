@@ -7,10 +7,10 @@
 6. Volstrekt niet! Hoe zal God anders de wereld oordelen?
 7. Want als de waarheid van God door mijn leugen overvloediger is geworden tot Zijn heerlijkheid, waarom word ik dan toch nog als zondaar geoordeeld?
 8. En *het is* toch niet, zoals wij belasterd worden en zoals sommigen zeggen dat wij zeggen: Laten wij het kwade doen, opdat het goede *daaruit* voortkomt? De verdoemenis van hen is rechtvaardig.
-9. Wat dan *wel*? Zijn wij voortreffelijker? Beslist niet! Wij hebben immers zojuist én Joden én Grieken beschuldigd dat zij allen onder de zonde zijn,
-10. zoals geschreven staat: Er is niemand rechtvaardig, ook niet één,
+9. Wat dan *wel*? Zijn wij voortreffelijker? Beslist niet! Wij hebben immers zojuist Ã©n Joden Ã©n Grieken beschuldigd dat zij allen onder de zonde zijn,
+10. zoals geschreven staat: Er is niemand rechtvaardig, ook niet Ã©Ã©n,
 11. er is niemand die verstandig is, er is niemand die God zoekt.
-12. Allen zijn zij afgedwaald, samen zijn zij nutteloos geworden. Er is niemand die goeddoet, er is er zelfs niet één.
+12. Allen zijn zij afgedwaald, samen zijn zij nutteloos geworden. Er is niemand die goeddoet, er is er zelfs niet Ã©Ã©n.
 13. Hun keel is een open graf, met hun tong plegen zij bedrog, addergif is onder hun lippen.
 14. Hun mond is vol vervloeking en bitterheid,
 15. hun voeten zijn snel om bloed te vergieten.
@@ -24,9 +24,9 @@
 23. Want allen hebben gezondigd en missen de heerlijkheid van God,
 24. en worden om niet gerechtvaardigd door Zijn genade, door de verlossing in Christus Jezus.
 25. Hem heeft God openlijk aangewezen als middel tot verzoening, door het geloof in Zijn bloed. *Dit was* om Zijn gerechtigheid te bewijzen vanwege het voorbij laten gaan van de zonden die eertijds hadden plaatsgevonden onder de verdraagzaamheid van God.
-26. *Hij deed dit* om Zijn rechtvaardigheid te bewijzen nu in deze tijd, zodat Hijzelf rechtvaardig is én rechtvaardigt diegene die uit het geloof in Jezus is.
+26. *Hij deed dit* om Zijn rechtvaardigheid te bewijzen nu in deze tijd, zodat Hijzelf rechtvaardig is Ã©n rechtvaardigt diegene die uit het geloof in Jezus is.
 27. Waar is dan de roem? Hij is uitgesloten. Door welke wet? Van de werken? Nee, maar door de wet van het geloof.
 28. Wij komen dus tot de slotsom dat de mens door het geloof gerechtvaardigd wordt zonder werken van de wet.
 29. Of *is God* alleen de God van Joden? En niet ook van heidenen? Ja, ook van heidenen.
-30. Het is toch immers één *en dezelfde* God, Die besnedenen rechtvaardigen zal uit het geloof en onbesnedenen door het geloof.
+30. Het is toch immers Ã©Ã©n *en dezelfde* God, Die besnedenen rechtvaardigen zal uit het geloof en onbesnedenen door het geloof.
 31. Doen wij dan door het geloof de wet teniet? Volstrekt niet, maar wij bevestigen de wet.

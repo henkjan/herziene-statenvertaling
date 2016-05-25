@@ -1,5 +1,5 @@
 #Job 20
-1. Toen antwoordde Zofar, de Na‰mathiet, en zei: 
+1. Toen antwoordde Zofar, de Na√§mathiet, en zei: 
 2. Daarom laten mijn gedachten mij antwoorden, en vanwege *deze woorden* haast ik mij. 
 3. Ik heb een bestraffing gehoord die mij schande aandoet; maar de Geest zal op grond van mijn inzicht voor mij antwoorden. 
 4. Weet je dit? Dat altijd al, vanaf *het moment* dat *God* de mens op de aarde geplaatst heeft, 

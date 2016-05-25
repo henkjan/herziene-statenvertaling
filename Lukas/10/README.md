@@ -11,9 +11,9 @@
 10. Maar welke stad u ook maar binnengaat en men ontvangt u niet, ga naar buiten, de straat op, en zeg:
 11. Zelfs het stof uit uw stad dat aan ons kleeft, schudden wij tegen u af. Maar weet dit, dat het Koninkrijk van God dicht bij u is gekomen.
 12. Ik zeg u dat het voor Sodom verdraaglijker zal zijn op die dag dan voor die stad.
-13. Wee u, Chorazin, wee u, Bethsaïda! Want als in Tyrus en Sidon de krachten gebeurd waren, die in u plaatsgevonden hebben, dan zouden zij zich allang, in zak en as gezeten, bekeerd hebben.
+13. Wee u, Chorazin, wee u, BethsaÃ¯da! Want als in Tyrus en Sidon de krachten gebeurd waren, die in u plaatsgevonden hebben, dan zouden zij zich allang, in zak en as gezeten, bekeerd hebben.
 14. Maar het zal voor Tyrus en Sidon verdraaglijker zijn in het oordeel dan voor u.
-15. En u, Kapernaüm, die tot de hemel toe verhoogd bent, u zult tot de hel toe neergestoten worden.
+15. En u, KapernaÃ¼m, die tot de hemel toe verhoogd bent, u zult tot de hel toe neergestoten worden.
 16. Wie naar u luistert, die luistert naar Mij; wie u verwerpt, die verwerpt Mij; en wie Mij verwerpt, die verwerpt Hem Die Mij gezonden heeft.
 17. De zeventig zijn teruggekeerd met blijdschap en zeiden: Heere, zelfs de demonen zijn in Uw Naam aan ons onderworpen.
 18. Hij zei tegen hen: Ik zag de satan als een bliksem uit de hemel vallen.
@@ -23,7 +23,7 @@
 22. Alle dingen zijn Mij overgegeven door Mijn Vader; en niemand weet Wie de Zoon is dan de Vader, en Wie de Vader is dan de Zoon, en hij aan wie de Zoon *het* wil openbaren.
 23. En Hij keerde Zich naar de discipelen en zei *tegen hen* alleen: Zalig zijn de ogen die zien wat u ziet.
 24. Want Ik zeg u dat veel profeten en koningen *de dingen* hebben willen zien die u ziet, en zij hebben ze niet gezien; en te horen de dingen die u hoort, en zij hebben ze niet gehoord.
-25. En zie, een wetgeleerde stond op om Hem te verzoeken, en zei: Meester, wat moet ik doen om het eeuwige leven te beërven?
+25. En zie, een wetgeleerde stond op om Hem te verzoeken, en zei: Meester, wat moet ik doen om het eeuwige leven te beÃ«rven?
 26. En Hij zei tegen hem: Wat staat er in de Wet geschreven? Wat leest u *daar*?
 27. Hij antwoordde en zei: U zult de Heere, uw God, liefhebben met heel uw hart, met heel uw ziel, met heel uw kracht en met heel uw verstand, en uw naaste als uzelf.
 28. Hij zei tegen hem: U hebt juist geantwoord. Doe dat en u zult leven.
@@ -40,4 +40,4 @@
 39. En zij had een zuster die Maria heette, die ook aan de voeten van Jezus zat en naar Zijn woord luisterde.
 40. Maar Martha was druk bezig met bedienen. Nadat zij erbij was komen staan, zei zij: Heere, trekt U het Zich niet aan dat mijn zuster mij alleen laat bedienen? Zeg toch tegen haar dat zij mij helpt.
 41. Jezus antwoordde en zei tegen haar: Martha, Martha, u bent bezorgd en maakt u druk over veel dingen.
-42. Slechts één ding is nodig. Maria heeft het goede deel uitgekozen, dat niet van haar zal worden afgenomen.
+42. Slechts Ã©Ã©n ding is nodig. Maria heeft het goede deel uitgekozen, dat niet van haar zal worden afgenomen.

@@ -22,5 +22,5 @@
 21. Toen liet de HEERE God een diepe slaap op Adam vallen, zodat hij in slaap viel; en Hij nam een van zijn ribben en sloot de plaats ervan toe met vlees.
 22. En de HEERE God bouwde de rib die Hij uit Adam genomen had, tot een vrouw en Hij bracht haar bij Adam.
 23. Toen zei Adam: Deze is ditmaal been van mijn beenderen, en vlees van mijn vlees! Deze zal mannin genoemd worden, want uit de man is zij genomen.
-24. Daarom zal een man zijn vader en zijn moeder verlaten en zich aan zijn vrouw hechten; en zij zullen tot één vlees zijn.
+24. Daarom zal een man zijn vader en zijn moeder verlaten en zich aan zijn vrouw hechten; en zij zullen tot Ã©Ã©n vlees zijn.
 25. En zij waren beiden naakt, Adam en zijn vrouw, maar zij schaamden zich niet.

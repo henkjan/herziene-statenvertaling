@@ -26,5 +26,5 @@
 25. en de slagregen viel neer en de waterstromen kwamen en de winden waaiden en stortten zich op dat huis, maar het stortte niet in, want het was op de rots gefundeerd.
 26. En ieder die deze woorden van Mij hoort en ze niet doet, zal met een dwaze man vergeleken worden, die zijn huis op zand gebouwd heeft;
 27. en de slagregen viel neer en de waterstromen kwamen en de winden waaiden en sloegen tegen dat huis, en het stortte in en zijn val was groot.
-28. Toen Jezus deze woorden had geëindigd, gebeurde het dat de menigte versteld stond van Zijn onderricht,
+28. Toen Jezus deze woorden had geÃ«indigd, gebeurde het dat de menigte versteld stond van Zijn onderricht,
 29. want Hij onderwees hen als gezaghebbende en niet zoals de schriftgeleerden.

@@ -1,7 +1,7 @@
 #Genesis 30
 1. Toen Rachel merkte dat zij Jakob geen kinderen baarde, werd Rachel jaloers op haar zuster en zei tegen Jakob: Geef mij kinderen, en zo niet, dan sterf ik.
 2. Toen ontstak Jakob in woede tegen Rachel en hij zei: Neem ik soms de plaats in van God, Die jou de vrucht van de schoot onthouden heeft?
-3. Daarop zei ze: Zie, hier is mijn slavin Bilha; kom bij haar, zodat zij op mijn knieën zal baren en ook ik uit haar nageslacht zal krijgen.
+3. Daarop zei ze: Zie, hier is mijn slavin Bilha; kom bij haar, zodat zij op mijn knieÃ«n zal baren en ook ik uit haar nageslacht zal krijgen.
 4. Zo gaf zij hem haar slavin Bilha tot vrouw, en Jakob kwam bij haar.
 5. En Bilha werd zwanger en baarde Jakob een zoon.
 6. Toen zei Rachel: God heeft mij recht verschaft. Ook heeft Hij naar mijn stem geluisterd en mij een zoon gegeven. Daarom gaf zij hem de naam Dan.
@@ -18,7 +18,7 @@
 17. En God verhoorde Lea; zij werd zwanger en baarde Jakob een vijfde zoon.
 18. Toen zei Lea: God heeft mij beloond, omdat ik mijn slavin aan mijn man gegeven heb. En zij gaf hem de naam Issaschar.
 19. Lea werd opnieuw zwanger en zij baarde Jakob een zesde zoon.
-20. Lea zei toen: God heeft mij, *ja* mij, een mooi geschenk gegeven; ditmaal zal mijn man bij míj komen wonen, want ik heb hem zes zonen gebaard. En zij gaf hem de naam Zebulon.
+20. Lea zei toen: God heeft mij, *ja* mij, een mooi geschenk gegeven; ditmaal zal mijn man bij mÃ­j komen wonen, want ik heb hem zes zonen gebaard. En zij gaf hem de naam Zebulon.
 21. Daarna baarde zij een dochter en gaf haar de naam Dina.
 22. God dacht ook aan Rachel en God verhoorde haar. Hij opende haar baarmoeder
 23. en zij werd zwanger en baarde een zoon. Toen zei ze: God heeft mijn schande weggenomen!
@@ -27,7 +27,7 @@
 26. Geef mijn vrouwen en mijn kinderen, voor wie ik u gediend heb, zodat ik kan gaan. U weet immers van het werk waar ik u mee gediend heb.
 27. Toen zei Laban tegen hem: Laat mij toch genade vinden in jouw ogen; ik heb waargenomen dat de HEERE mij omwille van jou gezegend heeft.
 28. Hij zei: Bepaal wat je loon bij mij moet zijn, dan zal ik het je geven.
-29. Toen zei hij tegen hem: Ú weet hoe ik u gediend heb en hoe uw vee onder mijn hoede geweest is.
+29. Toen zei hij tegen hem: Ãš weet hoe ik u gediend heb en hoe uw vee onder mijn hoede geweest is.
 30. Het weinige dat u voor mijn *komst* had, heeft zich immers tot een menigte uitgebreid. De HEERE heeft u sinds mijn komst gezegend. Nu dan, wanneer zal ik ook voor mijn *eigen* huis kunnen werken?
 31. Daarop zei hij: Wat moet ik je geven? Toen zei Jakob: U hoeft mij helemaal niets te geven; als u het volgende voor mij wilt doen, zal ik opnieuw uw kleinvee hoeden en beschermen.
 32. Ik zal vandaag al uw kleinvee langsgaan en daaruit elk gespikkeld of gevlekt dier afzonderen, elk zwart dier onder de schapen en *alles* wat gevlekt en gespikkeld is onder de geiten; en dat zal mijn loon zijn.

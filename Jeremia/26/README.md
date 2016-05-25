@@ -6,7 +6,7 @@
 5. door te luisteren naar de woorden van Mijn dienaren, de profeten, die Ik vroeg en laat tot u zend, en u niet hebt willen luisteren,
 6. dan zal Ik dit huis maken als Silo, en deze stad zal Ik maken tot een vloek voor alle volken van de aarde.
 7. De priesters, de profeten en heel het volk hoorden Jeremia deze woorden spreken in het huis van de HEERE.
-8. Het gebeurde zodra Jeremia geëindigd had uit te spreken alles wat de HEERE geboden had tot heel het volk te spreken, dat de priesters, de profeten en heel het volk hem grepen en zeiden: U zult zeker sterven!
+8. Het gebeurde zodra Jeremia geÃ«indigd had uit te spreken alles wat de HEERE geboden had tot heel het volk te spreken, dat de priesters, de profeten en heel het volk hem grepen en zeiden: U zult zeker sterven!
 9. Waarom hebt u in de Naam van de HEERE geprofeteerd: Dit huis zal worden als Silo en deze stad zal verwoest worden, zodat er geen inwoner *meer* is? En heel het volk liep te hoop tegen Jeremia in het huis van de HEERE.
 10. Toen nu de vorsten van Juda deze woorden hoorden, kwamen zij uit het huis van de koning *naar* het huis van de HEERE, en gingen bij de ingang van de nieuwe poort *van het huis* van de HEERE, zitten.
 11. Toen zeiden de priesters en de profeten tegen de vorsten en tegen heel het volk: Deze man heeft de doodstraf *verdiend*, want hij heeft geprofeteerd tegen deze stad, zoals u met eigen oren gehoord hebt.

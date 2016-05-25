@@ -8,8 +8,8 @@
 7. die altijd leren en nooit tot kennis van de waarheid kunnen komen.
 8. Op de wijze waarop Jannes en Jambres tegen Mozes ingingen, zo gaan ook zij tegen de waarheid in. Het zijn mensen met een verdorven gezindheid en, wat het geloof betreft, verwerpelijk.
 9. Maar zij zullen het niet veel verder brengen, want hun dwaasheid zal voor ieder volstrekt duidelijk worden, zoals *dat* ook bij die *twee* het geval was.
-10. Maar ú hebt *mij* nagevolgd *in* mijn onderwijs, levenswandel, levensopvatting, geloof, geduld, liefde, volharding,
-11. in *mijn* vervolgingen en lijden zoals *die* mij overkomen zijn in Antiochië, in Ikonium *en* in Lystre. Wat heb ik al niet aan vervolgingen doorstaan, en uit die alle heeft de Heere mij verlost.
+10. Maar Ãº hebt *mij* nagevolgd *in* mijn onderwijs, levenswandel, levensopvatting, geloof, geduld, liefde, volharding,
+11. in *mijn* vervolgingen en lijden zoals *die* mij overkomen zijn in AntiochiÃ«, in Ikonium *en* in Lystre. Wat heb ik al niet aan vervolgingen doorstaan, en uit die alle heeft de Heere mij verlost.
 12. En ook allen die godvruchtig willen leven in Christus Jezus, zullen vervolgd worden.
 13. Maar slechte mensen en bedriegers zullen *van kwaad* tot erger gaan: zij misleiden en worden misleid.
 14. Blijft u echter bij wat u geleerd hebt en *waarvan* u verzekerd bent, omdat u weet van wie u het geleerd hebt,

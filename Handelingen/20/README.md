@@ -1,8 +1,8 @@
 #Handelingen 20
-1. Nadat de opschudding bedaard was, ontbood Paulus de discipelen en, na *hen* gegroet te hebben, vertrok hij om naar Macedonië te reizen.
+1. Nadat de opschudding bedaard was, ontbood Paulus de discipelen en, na *hen* gegroet te hebben, vertrok hij om naar MacedoniÃ« te reizen.
 2. En toen hij die delen *van het land* doorgetrokken was en hen met veel woorden bemoedigd had, kwam hij in Griekenland.
-3. En toen hij *daar* drie maanden doorgebracht had, en de Joden een aanslag op hem wilden plegen toen hij op het punt stond naar Syrië te varen, vatte hij het plan op terug te keren door Macedonië.
-4. En tot in Asia vergezelden hem Sopater uit Berea, en van de Thessalonicenzen Aristarchus en Secundus, en Gajus uit Derbe, en Timotheüs, en Tychikus en Trofimus uit Asia.
+3. En toen hij *daar* drie maanden doorgebracht had, en de Joden een aanslag op hem wilden plegen toen hij op het punt stond naar SyriÃ« te varen, vatte hij het plan op terug te keren door MacedoniÃ«.
+4. En tot in Asia vergezelden hem Sopater uit Berea, en van de Thessalonicenzen Aristarchus en Secundus, en Gajus uit Derbe, en TimotheÃ¼s, en Tychikus en Trofimus uit Asia.
 5. Dezen waren vooruitgereisd en wachtten ons op in Troas.
 6. Wij echter vertrokken na de dagen van de ongezuurde *broden* per schip van Filippi en kwamen binnen vijf dagen bij hen in Troas aan, waar wij zeven dagen verbleven.
 7. En op de eerste *dag* van de week, toen de discipelen bijeengekomen waren om brood te breken, sprak Paulus hen toe, omdat hij de volgende dag wilde vertrekken; en hij liet *zijn* toespraak voortduren tot middernacht.

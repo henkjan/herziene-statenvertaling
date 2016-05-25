@@ -19,4 +19,4 @@
 18. De wolken goten water uit, de hemel gaf geluid, ook vlogen Uw pijlen overal heen. 
 19. Het geluid van Uw donder *klonk* in het rond, de bliksemflitsen verlichtten de wereld, de aarde sidderde en beefde. 
 20. Uw weg was door de zee, Uw pad door grote wateren, en Uw voetstappen werden niet bekend. 
-21. U leidde Uw volk als een kudde door de hand van Mozes en Aäron.
+21. U leidde Uw volk als een kudde door de hand van Mozes en AÃ¤ron.

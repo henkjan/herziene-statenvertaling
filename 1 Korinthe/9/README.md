@@ -22,7 +22,7 @@
 21. Voor hen die zonder de wet zijn, *ben ik geworden* als zonder de wet - *hoewel* niet zonder de wet van God, want *ik sta* onder de wet van Christus - om hen te winnen die zonder de wet zijn.
 22. Ik ben voor de zwakken geworden als een zwakke, om de zwakken te winnen. Voor allen ben ik alles geworden, om in ieder geval enigen te behouden.
 23. En dit doe ik ter wille van het Evangelie, opdat ik daarvan *ook zelf* deelgenoot zou worden.
-24. Weet u niet dat zij die in de renbaan lopen, allen wel lopen, maar *dat slechts* één de prijs ontvangt? Loop dan zo dat u *die* verkrijgt.
+24. Weet u niet dat zij die in de renbaan lopen, allen wel lopen, maar *dat slechts* Ã©Ã©n de prijs ontvangt? Loop dan zo dat u *die* verkrijgt.
 25. En iedereen die aan een wedstrijd deelneemt, beheerst zich in alles. Zij nu *doen dat* om een vergankelijke krans te ontvangen, maar wij om een onvergankelijke *te ontvangen*.
-26. Ik loop daarom niet zonder duidelijk doel *en* ik vecht zó met de vuist dat ik niet *maar wat in de* lucht sla.
+26. Ik loop daarom niet zonder duidelijk doel *en* ik vecht zÃ³ met de vuist dat ik niet *maar wat in de* lucht sla.
 27. Maar ik oefen mijn lichaam op harde wijze en maak het dienstbaar, opdat ik niet misschien, na anderen gepredikt te hebben, zelf verwerpelijk word.

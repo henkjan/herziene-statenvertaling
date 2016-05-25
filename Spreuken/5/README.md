@@ -19,6 +19,6 @@
 18. Moge je *levens*bron gezegend zijn en verblijd je over de vrouw van je jeugd: 
 19. een zeer lieflijke hinde, een bevallig steengeitje. Laten haar borsten jou te allen tijde dronken maken, dool voortdurend rond in haar liefde. 
 20. Waarom zou je, mijn zoon, ronddolen bij een vreemde vrouw, de boezem van die onbekende omarmen? 
-21. Want de wegen van een man zijn vóór de ogen van de HEERE, Hij weegt al zijn sporen. 
+21. Want de wegen van een man zijn vÃ³Ã³r de ogen van de HEERE, Hij weegt al zijn sporen. 
 22. Zijn ongerechtigheden nemen de goddeloze gevangen: met de banden van zijn zonde wordt hij vastgehouden. 
-23. Híj zal sterven omdat er geen vermaning was, door zijn grote dwaasheid zal hij verdwalen.
+23. HÃ­j zal sterven omdat er geen vermaning was, door zijn grote dwaasheid zal hij verdwalen.

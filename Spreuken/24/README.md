@@ -10,7 +10,7 @@
 9. Het bedenken van dwaasheid is zonde, een spotter is een gruwel voor de mens. 
 10. Als u zich in de dag van benauwdheid slap opstelt, is uw kracht beperkt. 
 11. Red hen die opgepakt zijn om te sterven, *wee* als u zich afzijdig houdt van wie wankelend ter slachting gaat. 
-12. Wanneer u zegt: Zie, wij hebben dat niet geweten, zal Hij Die de harten toetst, dat niet merken? Hij Die uw ziel gadeslaat, zal Híj het *niet* weten? Immers, Hij zal een mens vergelden naar zijn werk. 
+12. Wanneer u zegt: Zie, wij hebben dat niet geweten, zal Hij Die de harten toetst, dat niet merken? Hij Die uw ziel gadeslaat, zal HÃ­j het *niet* weten? Immers, Hij zal een mens vergelden naar zijn werk. 
 13. Eet honing, mijn zoon, want dat is goed, en honingzeem is zoet voor je gehemelte. 
 14. Evenzo is het kennen van wijsheid voor je ziel: als je haar vindt, dan is er toekomst, en wordt je hoop niet afgesneden. 
 15. Goddeloze, loer niet op de woning van een rechtvaardige, verwoest zijn verblijfplaats niet, 
@@ -22,7 +22,7 @@
 21. Mijn zoon, vrees de HEERE en de koning, laat je niet in met hen die op veranderingen uit zijn, 
 22. want hun ondergang zal plotseling opdagen en wie kent de verdrukking door hen beiden *teweeggebracht*?
 23. Ook deze *spreuken* zijn voor de wijzen: Het is niet goed partijdig te zijn in een rechtszaak. 
-24. Wie tegen een goddeloze zegt: U bent rechtvaardig, die zullen de volken vervloeken, de natiën zullen hem verwensen, 
+24. Wie tegen een goddeloze zegt: U bent rechtvaardig, die zullen de volken vervloeken, de natiÃ«n zullen hem verwensen, 
 25. maar hun die voor het recht opkomen, zal het aangenaam zijn, de zegen van het goede zal over hen komen. 
 26. Men zal de lippen kussen van hem die *met* oprechte woorden antwoordt. 
 27. Regel uw werk buiten en maak het op de akker voor u gereed, en bouw daarna uw huis. 

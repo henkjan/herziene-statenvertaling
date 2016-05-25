@@ -1,7 +1,7 @@
 #Ezechiel 2
 1. Hij zei tegen mij: Mensenkind, ga op uw voeten staan, en Ik zal met u spreken.
 2. Terwijl Hij tot mij sprak, kwam de Geest in mij. Hij deed mij op mijn voeten staan en ik luisterde naar Hem Die tot mij sprak.
-3. Hij zei tegen mij: Mensenkind, Ik zend u naar de Israëlieten, naar die opstandige volken, die tegen Mij in opstand zijn gekomen. Zij en hun vaderen hebben tot op deze zelfde dag tegen Mij overtreden.
+3. Hij zei tegen mij: Mensenkind, Ik zend u naar de IsraÃ«lieten, naar die opstandige volken, die tegen Mij in opstand zijn gekomen. Zij en hun vaderen hebben tot op deze zelfde dag tegen Mij overtreden.
 4. En deze kinderen zijn schaamteloos en hardleers. Ik zend u naar hen toe. U moet tegen hen zeggen: Zo zegt de Heere HEERE.
 5. En zij, of zij luisteren of *dat* niet doen - zij zijn immers een opstandig huis - zij zullen weten dat er een profeet in hun midden geweest is.
 6. Maar u, mensenkind, wees niet bevreesd voor hen, wees niet bevreesd voor hun woorden, hoewel er prikkels en doornen bij u zijn en u bij schorpioenen verblijft. Wees niet bevreesd voor hun woorden en wees niet ontsteld voor hun blik, want zij zijn een opstandig huis!

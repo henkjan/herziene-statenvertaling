@@ -1,7 +1,7 @@
 #Ezechiel 31
 1. Het gebeurde in het elfde jaar, in de derde *maand*, op de eerste van de maand, *dat* het woord van de HEERE tot mij kwam:
 2. Mensenkind, zeg tegen de farao, de koning van Egypte, en tegen zijn menigte: Met wie bent u te vergelijken in uw grootheid? 
-3. Zie, Assyrië was een ceder op de Libanon, *met* mooie takken, *als* een woud dat schaduw geeft en hoog van stam is; zijn kruin reikte tot in de wolken. 
+3. Zie, AssyriÃ« was een ceder op de Libanon, *met* mooie takken, *als* een woud dat schaduw geeft en hoog van stam is; zijn kruin reikte tot in de wolken. 
 4. Het water deed hem groeien, de watervloed deed hem hoog worden. Die vloeide *met* zijn stromen rond de plaats waar hij geplant was, en stuurde zijn waterlopen naar alle bomen op het veld. 
 5. Daarom werd zijn stam hoger dan alle bomen op het veld. Zijn takken werden talrijk en zijn twijgen lang vanwege het vele water toen hij uitliep. 
 6. Alle vogels in de lucht nestelden in zijn takken. Alle dieren van het veld wierpen hun jongen onder zijn twijgen. In zijn schaduw woonden zij allen, vele volken. 

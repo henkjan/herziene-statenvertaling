@@ -1,5 +1,5 @@
 #Leviticus 21
-1. De HEERE zei tegen Mozes: Spreek tot de priesters, de zonen van Aäron, en zeg tegen hen: *Een priester* mag zichzelf niet verontreinigen met een dode onder zijn volksgenoten,
+1. De HEERE zei tegen Mozes: Spreek tot de priesters, de zonen van AÃ¤ron, en zeg tegen hen: *Een priester* mag zichzelf niet verontreinigen met een dode onder zijn volksgenoten,
 2. behalve met zijn naaste bloedverwant: met zijn moeder, met zijn vader, met zijn zoon, met zijn dochter, met zijn broer.
 3. En met zijn zuster die maagd is, *die* nauw aan hem verwant is, die *nog* niet aan een man toebehoort. Met haar mag hij zich verontreinigen.
 4. Hij mag zich *als* echtgenoot niet verontreinigen met zijn volksgenoten. Hij zou zichzelf daardoor ontheiligen.
@@ -15,11 +15,11 @@
 14. Een weduwe, een verstoten vrouw of een door hoererij ontheiligde vrouw, deze mag hij niet nemen, maar hij moet een maagd tot vrouw nemen uit zijn volksgenoten,
 15. zodat hij zijn nageslacht onder zijn volksgenoten niet ontheiligt. Voorzeker, Ik ben de HEERE, Die hem heiligt.
 16. De HEERE sprak tot Mozes:
-17. Spreek tot Aäron en zeg: Niemand van je nageslacht, *al* hun generaties door, die een gebrek heeft, mag naar voren komen om het voedsel van zijn God aan te bieden.
+17. Spreek tot AÃ¤ron en zeg: Niemand van je nageslacht, *al* hun generaties door, die een gebrek heeft, mag naar voren komen om het voedsel van zijn God aan te bieden.
 18. Voorzeker, geen enkele man die een gebrek heeft, mag naar voren komen: een blinde man, of een verlamde, of iemand met een misvormd gezicht of te lange ledematen,
 19. of iemand die een *vergroeide* breuk *in zijn* voet, of een *vergroeide* breuk *in zijn* hand heeft,
 20. of iemand met een bochel, of een dwerg, of iemand met een vlek op zijn oog, of met uitslag, of een huidziekte of met verminkte testikels.
-21. Geen enkele man uit het nageslacht van de priester Aäron met een gebrek mag naderbij komen om de vuuroffers van de HEERE aan te bieden. Hij heeft een gebrek, *daarom* mag hij niet naderbij komen om het voedsel van zijn God aan te bieden.
+21. Geen enkele man uit het nageslacht van de priester AÃ¤ron met een gebrek mag naderbij komen om de vuuroffers van de HEERE aan te bieden. Hij heeft een gebrek, *daarom* mag hij niet naderbij komen om het voedsel van zijn God aan te bieden.
 22. Hij mag *wel* het voedsel van zijn God eten, zowel van de allerheiligste als van de heilige *offergaven*,
 23. maar omdat hij een gebrek heeft, mag hij niet bij het voorhangsel komen en niet tot het altaar naderen, opdat hij Mijn heiligdommen niet ontheiligt, want Ik ben de HEERE, Die hen heiligt.
-24. Mozes sprak *deze woorden* tot Aäron en tot zijn zonen, en tot al de Israëlieten.
+24. Mozes sprak *deze woorden* tot AÃ¤ron en tot zijn zonen, en tot al de IsraÃ«lieten.

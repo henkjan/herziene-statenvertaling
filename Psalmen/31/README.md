@@ -5,7 +5,7 @@
 4. Want U bent mijn rots en mijn burcht! Wijs mij dan de weg en leid mij zachtjes, omwille van Uw Naam. 
 5. Trek mij uit het net dat zij heimelijk voor mij *spanden*, want U bent mijn kracht. 
 6. In Uw hand beveel ik mijn geest; U hebt mij verlost, HEERE, getrouwe God! 
-7. Ik haat hen die nietige afgoden vereren. Õk vertrouw op de HEERE. 
+7. Ik haat hen die nietige afgoden vereren. √çk vertrouw op de HEERE. 
 8. Ik zal mij verheugen en verblijden in Uw goedertierenheid, want U hebt mijn ellende gezien *en* mijn ziel in benauwdheden gekend. 
 9. U hebt mij niet overgeleverd in de hand van de vijand, *maar* mijn voeten in de ruimte doen staan. 
 10. Wees mij genadig, HEERE, want *angst* benauwt mij; verzwakt van verdriet is mijn oog, mijn ziel en mijn buik. 
@@ -13,7 +13,7 @@
 12. Vanwege al mijn tegenstanders ben ik tot een smaad geworden, voor mijn buren het meest, en tot een *bron van* angst voor mijn bekenden; wie mij op straat zien, ontvluchten mij. 
 13. Vergeten ben ik, als een dode, *verdwenen* uit het hart; ik ben geworden als een gebroken kruik. 
 14. Want ik hoor de laster van velen; angst van rondom, omdat zij tegen mij samenspannen. Zij bedenken plannen om mij het leven te benemen. 
-15. Maar Ìk vertrouw op U, HEERE. Ik zeg: U bent mijn God! 
+15. Maar √≠k vertrouw op U, HEERE. Ik zeg: U bent mijn God! 
 16. Mijn tijden zijn in Uw hand; red mij uit de hand van mijn vijanden en van mijn vervolgers. 
 17. Doe Uw aangezicht over Uw dienaar lichten, verlos mij door Uw goedertierenheid. 
 18. HEERE, laat mij niet beschaamd worden, want ik roep U aan; laat de goddelozen beschaamd worden, laat hen zwijgen in het graf. 

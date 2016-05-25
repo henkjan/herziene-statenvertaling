@@ -1,8 +1,8 @@
 #Deuteronomium 6
 1. Dit zijn de geboden, de verordeningen en de bepalingen die de HEERE, uw God, geboden heeft u te leren, om *ze* te doen in het land waar u naartoe trekt om het in bezit te nemen,
 2. opdat u de HEERE, uw God, vreest door al Zijn verordeningen en Zijn geboden, die ik u gebied, in acht te nemen: u, uw kind en uw kleinkind, alle dagen van uw leven; en opdat uw dagen verlengd worden.
-3. Luister dan, Israël, en neem *ze* nauwlettend in acht! Dan zal het u goed gaan en zult u zeer talrijk worden - zoals de HEERE, de God van uw vaderen, tot u gesproken heeft - in het land dat overvloeit van melk en honing.
-4. Luister, Israël! De HEERE, onze God, de HEERE is één!
+3. Luister dan, IsraÃ«l, en neem *ze* nauwlettend in acht! Dan zal het u goed gaan en zult u zeer talrijk worden - zoals de HEERE, de God van uw vaderen, tot u gesproken heeft - in het land dat overvloeit van melk en honing.
+4. Luister, IsraÃ«l! De HEERE, onze God, de HEERE is Ã©Ã©n!
 5. Daarom zult u de HEERE, uw God, liefhebben met heel uw hart, met heel uw ziel en met heel uw kracht.
 6. Deze woorden, die ik u heden gebied, moeten in uw hart zijn.
 7. U moet ze uw kinderen inprenten en erover spreken, als u in uw huis zit en als u over de weg gaat, als u neerligt en als u opstaat.

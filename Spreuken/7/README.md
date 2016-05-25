@@ -15,7 +15,7 @@
 14. Ik moet dankoffers brengen, ik ben vandaag mijn geloften nagekomen. 
 15. Daarom ben ik naar buiten gegaan, jou tegemoet om je ijverig te zoeken en - *daar* vond ik je! 
 16. Ik heb mijn rustbank opgemaakt met dekens, kleurige spreien van Egyptisch linnen. 
-17. Mijn slaapplaats heb ik besprenkeld met mirre, aloë en kaneel. 
+17. Mijn slaapplaats heb ik besprenkeld met mirre, aloÃ« en kaneel. 
 18. Kom, laten we dronken worden van liefde, tot de morgen toe, laten we samen genieten van grote liefde. 
 19. Want mijn man is niet thuis, hij is voor een verre reis vertrokken. 
 20. Hij heeft de geldbuidel in zijn hand meegenomen, op de dag van de volle maan zal hij thuiskomen. 

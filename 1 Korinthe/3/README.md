@@ -6,8 +6,8 @@
 5. Wie is Paulus dan, en wie is Apollos, anders dan dienaren, door wie u tot geloof gekomen bent, en dat zoals de Heere aan ieder *van hen* gegeven heeft?
 6. Ik heb geplant, Apollos heeft begoten, maar God heeft laten groeien.
 7. Dus is dan noch hij die plant iets, noch hij die begiet, maar God, Die laat groeien.
-8. En hij die plant en hij die begiet, zijn één, maar ieder zal zijn eigen loon ontvangen overeenkomstig zijn eigen inspanning.
-9. Want Gods medearbeiders zijn wíj. Gods akker en Gods bouwwerk bent ú.
+8. En hij die plant en hij die begiet, zijn Ã©Ã©n, maar ieder zal zijn eigen loon ontvangen overeenkomstig zijn eigen inspanning.
+9. Want Gods medearbeiders zijn wÃ­j. Gods akker en Gods bouwwerk bent Ãº.
 10. Overeenkomstig de genade van God die mij gegeven is, heb ik als een wijs bouwmeester het fundament gelegd en een ander bouwt daarop. Ieder dient er echter op toe te zien hoe hij daarop bouwt.
 11. Want niemand kan een ander fundament leggen dan wat gelegd is, dat is Jezus Christus.
 12. Of nu iemand op dit fundament bouwt met goud, zilver, edelstenen, hout, hooi *of* stro,

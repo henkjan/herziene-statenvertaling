@@ -32,5 +32,5 @@
 31. De heerlijkheid van de HEERE zij voor eeuwig, laat de HEERE Zich verblijden in Zijn werken. 
 32. Aanschouwt Hij de aarde, dan beeft hij, raakt Hij de bergen aan, dan roken hij. 
 33. Ik zal voor de HEERE zingen in mijn leven, ik zal voor mijn God psalmen zingen, mijn *leven* lang. 
-34. Mijn overdenking van Hem zal aangenaam zijn, ík zal mij in de HEERE verblijden. 
+34. Mijn overdenking van Hem zal aangenaam zijn, Ã­k zal mij in de HEERE verblijden. 
 35. De zondaars zullen van de aarde verdwijnen, de goddelozen zullen er niet meer zijn. Loof de HEERE, mijn ziel! Halleluja!

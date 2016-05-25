@@ -12,7 +12,7 @@
 11. Tussen hun muren persen zij olie uit, treden de perskuipen, en hebben dorst. 
 12. Vanuit de stad kermen mensen, en de ziel van de dodelijk gewonden schreeuwt het uit; toch beschikt God niets ongerijmds. 
 13. Zij zijn bij hen die het licht weerstaan; zij kennen Zijn wegen niet, en blijven niet op Zijn paden. 
-14. Vóór het licht staat de moordenaar op, hij doodt de ellendige en arme; en 's nachts is hij als een dief. 
+14. VÃ³Ã³r het licht staat de moordenaar op, hij doodt de ellendige en arme; en 's nachts is hij als een dief. 
 15. Het oog van de overspeler wacht op de schemering; hij zegt: Geen oog mag mij waarnemen; en hij doet een masker voor *zijn* gezicht. 
 16. In de duisternis dringt hij door in de huizen. Overdag sluiten zij zichzelf op; zij willen niets weten van het licht. 
 17. Ja, de schaduw van de dood is voor hen allen *als* de morgen, want men kent de verschrikkingen van de schaduw van de dood. 

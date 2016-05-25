@@ -11,7 +11,7 @@
 10. Hij boog de hemel en daalde neer, een donkere *wolk* was onder Zijn voeten. 
 11. Hij reed op een cherub en vloog, ja, Hij werd gezien op de vleugels van de wind. 
 12. Hij maakte duisternis tot tenten om Zich heen, een opeenhoping van water, donkere wolken. 
-13. Door de lichtglans vóór Hem ontbrandden vurige kolen! 
+13. Door de lichtglans vÃ³Ã³r Hem ontbrandden vurige kolen! 
 14. De HEERE deed het vanuit de hemel donderen, de Allerhoogste liet Zijn stem klinken. 
 15. Hij schoot pijlen af en verspreidde hen, *Hij zond* bliksem en bracht hen in verwarring. 
 16. De bodem van de zee werd zichtbaar, de fundamenten van de wereld werden blootgelegd door de bestraffing van de HEERE, door het blazen van de adem uit Zijn neus. 

@@ -9,7 +9,7 @@
 8. alle dingen hebt U onder zijn voeten onderworpen. Want bij het onderwerpen van alle dingen aan Hem heeft Hij niets uitgezonderd dat Hem niet onderworpen is. Nu zien wij echter nog niet dat Hem alle dingen onderworpen zijn,
 9. maar wij zien Jezus met heerlijkheid en eer gekroond, Die voor korte tijd minder dan de engelen geworden was, vanwege het lijden van de dood, opdat Hij door de genade van God voor allen de dood zou proeven.
 10. Want het paste Hem, om Wie alle dingen zijn en door Wie alle dingen zijn, dat Hij, om veel kinderen tot heerlijkheid te brengen, de Leidsman van hun zaligheid door lijden zou heiligen.
-11. Immers, zowel Hij Die heiligt als zij die geheiligd worden, zijn allen uit één. Daarom schaamt Hij Zich er niet voor hen broeders te noemen,
+11. Immers, zowel Hij Die heiligt als zij die geheiligd worden, zijn allen uit Ã©Ã©n. Daarom schaamt Hij Zich er niet voor hen broeders te noemen,
 12. *want* Hij zegt: Ik zal Uw Naam aan Mijn broeders verkondigen; te midden van de gemeente zal Ik U lofzingen.
 13. En verder: Ik zal Mijn vertrouwen op Hem stellen. En vervolgens: Zie, Ik en de kinderen die God Mij gegeven heeft.
 14. Omdat nu *die* kinderen van vlees en bloed zijn, heeft Hij eveneens daaraan deel gehad om door de dood hem die de macht over de dood had - dat is de duivel - teniet te doen,

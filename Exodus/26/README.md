@@ -1,15 +1,15 @@
 #Exodus 26
 1. De tabernakel moet u vervolgens maken van tien tentkleden, van dubbeldraads fijn linnen en blauwpurperen, roodpurperen en scharlakenrode *wol*. U moet ze maken *met* cherubs *erop*, werk van een kunstenaar.
-2. De lengte van één tentkleed moet achtentwintig el zijn en de breedte van één tentkleed vier el: al de tentkleden moeten dezelfde afmeting hebben.
+2. De lengte van Ã©Ã©n tentkleed moet achtentwintig el zijn en de breedte van Ã©Ã©n tentkleed vier el: al de tentkleden moeten dezelfde afmeting hebben.
 3. Vijf tentkleden moeten aan elkaar vastgemaakt worden, en *nog eens* vijf tentkleden moeten aan elkaar vastgemaakt worden.
 4. Dan moet u blauwpurperen lussen maken aan de zoom van het ene tentkleed, aan het uiteinde van het *ene* stel, en zo moet u *ze* ook maken aan de zoom van het laatste tentkleed, bij het tweede stel.
 5. U moet vijftig lussen maken aan het ene tentkleed en vijftig lussen moet u maken aan het uiteinde van het tentkleed dat bij het tweede stel behoort; de lussen moeten precies tegenover elkaar gezet zijn.
-6. Dan moet u vijftig gouden haken maken en met die haken de tentkleden aan elkaar vastmaken, zodat de tabernakel één *geheel* is.
+6. Dan moet u vijftig gouden haken maken en met die haken de tentkleden aan elkaar vastmaken, zodat de tabernakel Ã©Ã©n *geheel* is.
 7. Ook moet u kleden van geiten*haar* maken voor een tent over de tabernakel: elf tentkleden moet u daarvan maken.
-8. De lengte van één tentkleed moet dertig el zijn, en de breedte van het tentkleed vier el: de elf tentkleden moeten eenzelfde afmeting hebben.
+8. De lengte van Ã©Ã©n tentkleed moet dertig el zijn, en de breedte van het tentkleed vier el: de elf tentkleden moeten eenzelfde afmeting hebben.
 9. En u moet vijf van de tentkleden apart aan elkaar vastmaken en zes van de *andere* tentkleden eveneens apart. Vervolgens moet u het zesde tentkleed dubbelvouwen aan de voorkant van de tent.
 10. Dan moet u vijftig lussen maken aan de zoom van het ene tentkleed, het laatste van het stel, en vijftig lussen aan de zoom van het tentkleed *bij* het andere stel.
-11. Vervolgens moet u vijftig koperen haken maken en u moet de haken in de lussen aanbrengen en de tent*delen zo* aan elkaar vastmaken dat ze één *geheel* vormen.
+11. Vervolgens moet u vijftig koperen haken maken en u moet de haken in de lussen aanbrengen en de tent*delen zo* aan elkaar vastmaken dat ze Ã©Ã©n *geheel* vormen.
 12. Het loshangende *deel* van wat overblijft van de kleden van de tent, *namelijk* het halve tentkleed dat overblijft, moet aan de achterkant van de tabernakel overhangen.
 13. De el die aan deze en de el die aan de andere *kant* in de lengte van de kleden van de tent overblijft, moet langs de zijkanten van de tabernakel overhangen, aan deze en aan de andere *kant*, om die af te dekken.
 14. U moet ook voor de tent een dekkleed van roodgeverfde ramshuiden maken, en daarover een dekkleed van zeekoeienhuiden.

@@ -1,5 +1,5 @@
 #Markus 11
-1. En toen zij Jeruzalem naderden, bij Bethfagé en Bethanië, dicht bij de Olijfberg, zond Hij twee van Zijn discipelen uit,
+1. En toen zij Jeruzalem naderden, bij BethfagÃ© en BethaniÃ«, dicht bij de Olijfberg, zond Hij twee van Zijn discipelen uit,
 2. en zei tegen hen: Ga naar het dorp dat voor u ligt, en zodra u er binnenkomt, zult u een veulen vinden *dat* vastgebonden *is*, waarop geen mens gezeten heeft; maak het los en breng het hier.
 3. En als iemand tegen u zegt: Waarom doet u dat? zeg dan: De Heere heeft het nodig; en hij zal het meteen hierheen sturen.
 4. En zij vertrokken en vonden het veulen vastgebonden bij de deur, buiten aan de straat, en zij maakten het los.
@@ -9,8 +9,8 @@
 8. Ook spreidden velen hun kleren op de weg uit en anderen hakten twijgen van de bomen en spreidden ze op de weg uit.
 9. En zij die vooropliepen en zij die volgden, riepen: Hosanna! Gezegend Hij Die komt in de Naam van de Heere!
 10. Gezegend het Koninkrijk van onze vader David, dat komt in de Naam van de Heere! Hosanna in de hoogste *hemelen*!
-11. En Jezus kwam Jeruzalem binnen en *ging* de tempel in; en nadat Hij alles rondom bekeken had en toen het al avond was, ging Hij met de twaalf *de stad* uit naar Bethanië.
-12. En de volgende dag, toen zij uit Bethanië gingen, kreeg Hij honger.
+11. En Jezus kwam Jeruzalem binnen en *ging* de tempel in; en nadat Hij alles rondom bekeken had en toen het al avond was, ging Hij met de twaalf *de stad* uit naar BethaniÃ«.
+12. En de volgende dag, toen zij uit BethaniÃ« gingen, kreeg Hij honger.
 13. En toen Hij in de verte een vijgenboom zag die bladeren had, ging Hij erheen *om te zien* of Hij er ook iets aan zou vinden; en erbij gekomen, vond Hij niets dan bladeren, want het was niet de tijd voor vijgen.
 14. En Jezus antwoordde en zei tegen hem: Laat niemand meer vrucht van u eten in eeuwigheid! En Zijn discipelen hoorden het.
 15. En zij kwamen in Jeruzalem; en toen Jezus de tempel binnengegaan was, begon Hij hen die in de tempel verkochten en kochten, naar buiten te drijven; en de tafels van de wisselaars en de stoelen van hen die de duiven verkochten, keerde Hij om,
@@ -27,7 +27,7 @@
 26. Maar als u niet vergeeft, zal uw Vader, Die in de hemelen is, ook uw misdaden niet vergeven.
 27. En zij kwamen weer in Jeruzalem. En toen Hij in de tempel rondliep, kwamen de overpriesters en de schriftgeleerden en de oudsten naar Hem toe
 28. en zeiden tegen Hem: Met welke bevoegdheid doet U deze dingen? En wie heeft U deze bevoegdheid gegeven om deze dingen te doen?
-29. Maar Jezus antwoordde en zei tegen hen: Ik zal u ook één vraag stellen; antwoord Mij ook, en dan zal Ik u zeggen met welke bevoegdheid Ik deze dingen doe:
+29. Maar Jezus antwoordde en zei tegen hen: Ik zal u ook Ã©Ã©n vraag stellen; antwoord Mij ook, en dan zal Ik u zeggen met welke bevoegdheid Ik deze dingen doe:
 30. De doop van Johannes, was die uit de hemel of uit de mensen? Antwoord Mij.
 31. En zij overlegden met elkaar en zeiden: Als wij zeggen: Uit de hemel, dan zal Hij zeggen: Waarom hebt u hem dan niet geloofd?
 32. Maar als wij zeggen: Uit de mensen, dan hebben wij bevreesd te zijn voor het volk; want allen hielden het ervoor dat Johannes werkelijk een profeet was.

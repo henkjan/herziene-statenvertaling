@@ -1,11 +1,11 @@
 #Handelingen 21
 1. En het gebeurde, nadat wij ons van hen losgemaakt hadden en weggevaren waren, dat wij rechtstreeks koers zetten naar Kos, de volgende *dag* naar Rhodos en vandaar naar Patara.
-2. En toen wij een schip gevonden hadden dat naar Fenicië zou oversteken, gingen wij aan boord en voeren weg.
-3. En nadat wij Cyprus in zicht gekregen hadden en dat links hadden laten liggen, voeren wij naar Syrië en kwamen aan in Tyrus, want daar moest het schip zijn lading lossen.
+2. En toen wij een schip gevonden hadden dat naar FeniciÃ« zou oversteken, gingen wij aan boord en voeren weg.
+3. En nadat wij Cyprus in zicht gekregen hadden en dat links hadden laten liggen, voeren wij naar SyriÃ« en kwamen aan in Tyrus, want daar moest het schip zijn lading lossen.
 4. En nadat wij *er* discipelen gevonden hadden, bleven wij daar zeven dagen. Zij zeiden tegen Paulus, door de Geest, dat hij niet naar Jeruzalem moest gaan.
 5. Het gebeurde nu, toen wij *deze* dagen *daar* doorgebracht hadden, dat wij vertrokken en verder reisden. En zij begeleidden ons allen met vrouwen en kinderen tot buiten de stad. En wij knielden neer op het strand en baden.
 6. En toen wij elkaar gegroet hadden, gingen wij aan boord van het schip, maar zij keerden terug, *ieder* naar zijn *huis*.
-7. Nadat wij de reis per schip vanaf Tyrus volbracht hadden, kwamen wij aan in Ptolemaïs, begroetten de broeders en bleven één dag bij hen.
+7. Nadat wij de reis per schip vanaf Tyrus volbracht hadden, kwamen wij aan in PtolemaÃ¯s, begroetten de broeders en bleven Ã©Ã©n dag bij hen.
 8. En de volgende dag gingen Paulus en wij die bij hem waren, daarvandaan en kwamen in Caesarea. Wij gingen naar het huis van Filippus, de evangelist, die *een* van de zeven *diakenen* was, en bleven bij hem.
 9. Deze had vier dochters, *nog* maagden, die profeteerden.
 10. En toen wij daar vele dagen bleven, kwam er een zekere profeet uit Judea, van wie de naam Agabus was.
@@ -26,16 +26,16 @@
 25. Maar wat de heidenen betreft die geloven, hebben wij geschreven en goedgevonden dat zij niets dergelijks in acht hoeven te nemen, behalve dat zij zich moeten wachten voor afgodenoffers, voor bloed, voor het verstikte en voor ontucht.
 26. Toen nam Paulus de mannen mee en de dag daarna reinigde hij zich samen met hen, ging de tempel binnen en maakte bekend wanneer de dagen van de reiniging vervuld zouden zijn, *namelijk* wanneer voor ieder van hen het offer zou worden gebracht.
 27. Toen de zeven dagen ten einde liepen, zagen de Joden uit Asia hem in de tempel en brachten heel de menigte in verwarring. Zij sloegen de handen aan hem
-28. en schreeuwden: Mannen van Israël, kom helpen! Dit is de man die overal iedereen onderwijs geeft *dat indruist* tegen het volk, tegen de wet en tegen deze plaats. Bovendien heeft hij ook nog Grieken in de tempel gebracht en deze heilige plaats ontheiligd.
-29. Want zij hadden eerder al de Efeziër Trofimus met hem in de stad gezien, van wie zij dachten dat Paulus hem de tempel binnengebracht had.
+28. en schreeuwden: Mannen van IsraÃ«l, kom helpen! Dit is de man die overal iedereen onderwijs geeft *dat indruist* tegen het volk, tegen de wet en tegen deze plaats. Bovendien heeft hij ook nog Grieken in de tempel gebracht en deze heilige plaats ontheiligd.
+29. Want zij hadden eerder al de EfeziÃ«r Trofimus met hem in de stad gezien, van wie zij dachten dat Paulus hem de tempel binnengebracht had.
 30. En heel de stad raakte in rep en roer en het volk liep te hoop. En ze grepen Paulus en sleurden hem de tempel uit, en de deuren werden meteen gesloten.
 31. En terwijl zij hem probeerden te doden, kreeg de overste van de legerafdeling het bericht dat heel Jeruzalem in verwarring was.
 32. Die nam ogenblikkelijk soldaten en hoofdmannen over honderd mee en liep snel naar beneden naar hen toe. Toen zij nu de overste en de soldaten zagen, hielden zij op Paulus te slaan.
 33. Toen kwam de overste dichterbij, greep hem en gaf bevel *hem* met twee ketenen te boeien, en hij vroeg wie hij was en wat hij gedaan had.
-34. En in de menigte riep *de één dit* en de ander weer wat anders. Maar toen hij door de opschudding niets met zekerheid te weten kon komen, gaf hij bevel hem naar de kazerne te brengen.
+34. En in de menigte riep *de Ã©Ã©n dit* en de ander weer wat anders. Maar toen hij door de opschudding niets met zekerheid te weten kon komen, gaf hij bevel hem naar de kazerne te brengen.
 35. En toen hij bij de trappen gekomen was, gebeurde het dat hij door de soldaten gedragen moest worden vanwege het geweld van de menigte,
 36. want de volksmenigte volgde, al schreeuwend: Weg met hem!
 37. Toen Paulus de kazerne binnengebracht zou worden, zei hij tegen de overste: Is het mij geoorloofd iets tegen u te zeggen? En hij zei: Kent u Grieks?
 38. Bent u dan niet de Egyptenaar die enige tijd geleden oproer ontketende en die vierduizend gewapende opstandelingen naar de woestijn leidde?
-39. Maar Paulus zei: Ik ben een Joodse man uit Tarsus, een burger van een niet onbekende stad in Cilicië. Ik vraag u: Sta mij toe het volk toe te spreken.
+39. Maar Paulus zei: Ik ben een Joodse man uit Tarsus, een burger van een niet onbekende stad in CiliciÃ«. Ik vraag u: Sta mij toe het volk toe te spreken.
 40. En toen hij het toegestaan had, gaf Paulus, staande op de trappen, het volk een wenk met de hand. En toen er een grote stilte gevallen was, sprak hij hen toe in de Hebreeuwse taal en zei:

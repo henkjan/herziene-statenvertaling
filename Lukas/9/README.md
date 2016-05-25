@@ -8,7 +8,7 @@
 7. Herodes, de viervorst, hoorde al de dingen die door Hem gebeurden. En hij verkeerde in onzekerheid, omdat door sommigen gezegd werd dat Johannes uit de doden was opgewekt,
 8. en door anderen dat Elia verschenen was, en door *weer* anderen dat een van de oude profeten opgestaan was.
 9. En Herodes zei: Johannes heb ik onthoofd. Wie is Deze dan over Wie ik zulke dingen hoor? En hij probeerde Hem te zien *te krijgen*.
-10. En toen de apostelen teruggekeerd waren, vertelden zij Hem alles wat zij gedaan hadden. Hij nam hen mee en vertrok, alleen *met hen,* naar een eenzame plaats bij een stad die Bethsaïda heette.
+10. En toen de apostelen teruggekeerd waren, vertelden zij Hem alles wat zij gedaan hadden. Hij nam hen mee en vertrok, alleen *met hen,* naar een eenzame plaats bij een stad die BethsaÃ¯da heette.
 11. Toen de menigte *dat* merkte, volgden zij Hem. Hij ontving hen en sprak tot hen over het Koninkrijk van God; en hen die genezing nodig hadden, maakte Hij gezond.
 12. De dag begon te dalen. De twaalf kwamen naar Hem toe en zeiden tegen Hem: Stuur de menigte weg, opdat zij naar de omliggende dorpen en gehuchten gaan om onderdak en voedsel te vinden, want wij zijn hier op een eenzame plaats.
 13. Maar Hij zei tegen hen: Geeft u hun te eten. Zij zeiden: Wij hebben niet meer dan vijf broden en twee vissen, of wij zouden voor al dit volk voedsel moeten gaan kopen.

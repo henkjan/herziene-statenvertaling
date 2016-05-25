@@ -5,7 +5,7 @@
 4. Want een engel daalde van tijd tot tijd neer in het badwater en bracht het water in beweging; wie dan het eerst daarin kwam, na de beweging van het water, werd gezond, aan welke ziekte hij ook leed.
 5. En daar was een man die *al* achtendertig jaar ziek was.
 6. Jezus zag hem liggen en omdat Hij wist dat hij al lange tijd *ziek* was, zei Hij tegen hem: Wilt u gezond worden?
-7. De zieke antwoordde Hem: Mijn heer, ik heb geen mens om mij in het badwater te werpen wanneer het water in beroering gebracht wordt; en terwijl ik kom, daalt een ander vóór mij af.
+7. De zieke antwoordde Hem: Mijn heer, ik heb geen mens om mij in het badwater te werpen wanneer het water in beroering gebracht wordt; en terwijl ik kom, daalt een ander vÃ³Ã³r mij af.
 8. Jezus zei tegen hem: Sta op, neem uw ligmat op en ga lopen.
 9. En meteen werd de man gezond, nam zijn ligmat op en ging lopen. En het was sabbat op die dag.
 10. De Joden dan zeiden tegen hem die genezen was: Het is sabbat, het is u niet geoorloofd de ligmat te dragen.

@@ -6,7 +6,7 @@
 5. Want willens *en wetens* is het hun onbekend dat door het Woord van God de hemelen er reeds lang geweest zijn, evenals de aarde, die uit water *oprijst* en in water vaststaat.
 6. Daardoor is de wereld die er toen was, vergaan, overspoeld door het water.
 7. Maar de hemelen die er nu zijn, en de aarde, zijn door hetzelfde Woord als een schat weggelegd en worden voor het vuur bewaard tot de dag van het oordeel en van het verderf van de goddeloze mensen.
-8. Maar laat vooral dit u niet ontgaan, geliefden, dat één dag bij de Heere is als duizend jaar en duizend jaar als één dag.
+8. Maar laat vooral dit u niet ontgaan, geliefden, dat Ã©Ã©n dag bij de Heere is als duizend jaar en duizend jaar als Ã©Ã©n dag.
 9. De Heere vertraagt de belofte niet (zoals sommigen dat als traagheid beschouwen), maar Hij heeft geduld met ons en wil niet dat enigen verloren gaan, maar dat allen tot bekering komen.
 10. Maar de dag des Heeren zal komen als een dief in de nacht. Dan zullen de hemelen met gedruis voorbijgaan en de elementen brandend vergaan, en de aarde en de werken daarop zullen verbranden.
 11. Als deze dingen dus allemaal vergaan, hoedanig behoort u dan te zijn in heilige levenswandel en in godsvrucht;
