@@ -312,3 +312,4 @@
     * [1 Koningen 6](1 Koningen/6/README.md)
     * [1 Koningen 7](1 Koningen/7/README.md)
     * [1 Koningen 8](1 Koningen/8/README.md)
+    * [1 Koningen 9](1 Koningen/9/README.md)
