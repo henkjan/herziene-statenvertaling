@@ -172,3 +172,4 @@
     * [Deuteronomium 10](Deuteronomium/10/README.md)
     * [Deuteronomium 11](Deuteronomium/11/README.md)
     * [Deuteronomium 12](Deuteronomium/12/README.md)
+    * [Deuteronomium 13](Deuteronomium/13/README.md)
