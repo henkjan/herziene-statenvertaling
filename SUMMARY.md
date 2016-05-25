@@ -1256,3 +1256,4 @@
     * [Openbaring 19](Openbaring/19/README.md)
     * [Openbaring 20](Openbaring/20/README.md)
     * [Openbaring 21](Openbaring/21/README.md)
+    * [Openbaring 22](Openbaring/22/README.md)
