@@ -596,3 +596,4 @@
     * [Psalmen 95](Psalmen/95/README.md)
     * [Psalmen 96](Psalmen/96/README.md)
     * [Psalmen 97](Psalmen/97/README.md)
+    * [Psalmen 98](Psalmen/98/README.md)
