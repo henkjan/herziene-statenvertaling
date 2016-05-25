@@ -526,3 +526,4 @@
     * [Psalmen 25](Psalmen/25/README.md)
     * [Psalmen 26](Psalmen/26/README.md)
     * [Psalmen 27](Psalmen/27/README.md)
+    * [Psalmen 28](Psalmen/28/README.md)
