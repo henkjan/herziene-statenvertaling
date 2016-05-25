@@ -846,3 +846,4 @@
     * [Ezechiel 14](Ezechiel/14/README.md)
     * [Ezechiel 15](Ezechiel/15/README.md)
     * [Ezechiel 16](Ezechiel/16/README.md)
+    * [Ezechiel 17](Ezechiel/17/README.md)
