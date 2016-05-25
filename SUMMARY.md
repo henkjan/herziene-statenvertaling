@@ -933,3 +933,4 @@
     * [Micha 3](Micha/3/README.md)
     * [Micha 4](Micha/4/README.md)
     * [Micha 5](Micha/5/README.md)
+    * [Micha 6](Micha/6/README.md)
