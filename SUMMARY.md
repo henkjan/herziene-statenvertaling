@@ -161,3 +161,4 @@
     * [Numeri 36](Numeri/36/README.md)
 * [Deuteronomium](Deuteronomium/README.md)
     * [Deuteronomium 1](Deuteronomium/1/README.md)
+    * [Deuteronomium 2](Deuteronomium/2/README.md)
