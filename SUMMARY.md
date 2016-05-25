@@ -98,3 +98,4 @@
     * [Leviticus 1](Leviticus/1/README.md)
     * [Leviticus 2](Leviticus/2/README.md)
     * [Leviticus 3](Leviticus/3/README.md)
+    * [Leviticus 4](Leviticus/4/README.md)
