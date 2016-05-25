@@ -389,3 +389,4 @@
     * [2 Kronieken 4](2 Kronieken/4/README.md)
     * [2 Kronieken 5](2 Kronieken/5/README.md)
     * [2 Kronieken 6](2 Kronieken/6/README.md)
+    * [2 Kronieken 7](2 Kronieken/7/README.md)
