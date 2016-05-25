@@ -1168,3 +1168,4 @@
     * [1 Thessalonicenzen 1](1 Thessalonicenzen/1/README.md)
     * [1 Thessalonicenzen 2](1 Thessalonicenzen/2/README.md)
     * [1 Thessalonicenzen 3](1 Thessalonicenzen/3/README.md)
+    * [1 Thessalonicenzen 4](1 Thessalonicenzen/4/README.md)
