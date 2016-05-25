@@ -1082,3 +1082,4 @@
     * [Handelingen 16](Handelingen/16/README.md)
     * [Handelingen 17](Handelingen/17/README.md)
     * [Handelingen 18](Handelingen/18/README.md)
+    * [Handelingen 19](Handelingen/19/README.md)
