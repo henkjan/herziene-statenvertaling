@@ -267,3 +267,4 @@
     * [1 Samuel 18](1 Samuel/18/README.md)
     * [1 Samuel 19](1 Samuel/19/README.md)
     * [1 Samuel 20](1 Samuel/20/README.md)
+    * [1 Samuel 21](1 Samuel/21/README.md)
