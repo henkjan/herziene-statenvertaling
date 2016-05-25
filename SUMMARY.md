@@ -936,3 +936,4 @@
     * [Micha 6](Micha/6/README.md)
     * [Micha 7](Micha/7/README.md)
 * [Nahum](Nahum/README.md)
+    * [Nahum 1](Nahum/1/README.md)
