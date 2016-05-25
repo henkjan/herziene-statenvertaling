@@ -1236,3 +1236,4 @@
     * [Judas 1](Judas/1/README.md)
 * [Openbaring](Openbaring/README.md)
     * [Openbaring 1](Openbaring/1/README.md)
+    * [Openbaring 2](Openbaring/2/README.md)
