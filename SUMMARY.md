@@ -122,3 +122,4 @@
     * [Leviticus 25](Leviticus/25/README.md)
     * [Leviticus 26](Leviticus/26/README.md)
     * [Leviticus 27](Leviticus/27/README.md)
+* [Numeri](Numeri/README.md)
