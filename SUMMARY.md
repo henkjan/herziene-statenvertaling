@@ -442,3 +442,4 @@
     * [Nehemia 9](Nehemia/9/README.md)
     * [Nehemia 10](Nehemia/10/README.md)
     * [Nehemia 11](Nehemia/11/README.md)
+    * [Nehemia 12](Nehemia/12/README.md)
