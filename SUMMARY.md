@@ -1226,3 +1226,4 @@
     * [1 Johannes 1](1 Johannes/1/README.md)
     * [1 Johannes 2](1 Johannes/2/README.md)
     * [1 Johannes 3](1 Johannes/3/README.md)
+    * [1 Johannes 4](1 Johannes/4/README.md)
