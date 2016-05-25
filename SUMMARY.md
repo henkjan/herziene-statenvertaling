@@ -962,3 +962,4 @@
     * [Zacharia 9](Zacharia/9/README.md)
     * [Zacharia 10](Zacharia/10/README.md)
     * [Zacharia 11](Zacharia/11/README.md)
+    * [Zacharia 12](Zacharia/12/README.md)
