@@ -584,3 +584,4 @@
     * [Psalmen 83](Psalmen/83/README.md)
     * [Psalmen 84](Psalmen/84/README.md)
     * [Psalmen 85](Psalmen/85/README.md)
+    * [Psalmen 86](Psalmen/86/README.md)
