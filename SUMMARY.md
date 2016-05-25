@@ -965,3 +965,4 @@
     * [Zacharia 12](Zacharia/12/README.md)
     * [Zacharia 13](Zacharia/13/README.md)
     * [Zacharia 14](Zacharia/14/README.md)
+* [Maleachi](Maleachi/README.md)
