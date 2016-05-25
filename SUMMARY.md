@@ -992,3 +992,4 @@
     * [Mattheus 19](Mattheus/19/README.md)
     * [Mattheus 20](Mattheus/20/README.md)
     * [Mattheus 21](Mattheus/21/README.md)
+    * [Mattheus 22](Mattheus/22/README.md)
