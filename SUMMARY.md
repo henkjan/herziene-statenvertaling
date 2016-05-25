@@ -1164,3 +1164,4 @@
     * [Kolossenzen 2](Kolossenzen/2/README.md)
     * [Kolossenzen 3](Kolossenzen/3/README.md)
     * [Kolossenzen 4](Kolossenzen/4/README.md)
+* [1 Thessalonicenzen](1 Thessalonicenzen/README.md)
