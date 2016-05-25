@@ -899,3 +899,4 @@
     * [Hosea 5](Hosea/5/README.md)
     * [Hosea 6](Hosea/6/README.md)
     * [Hosea 7](Hosea/7/README.md)
+    * [Hosea 8](Hosea/8/README.md)
