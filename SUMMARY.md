@@ -277,3 +277,4 @@
     * [1 Samuel 28](1 Samuel/28/README.md)
     * [1 Samuel 29](1 Samuel/29/README.md)
     * [1 Samuel 30](1 Samuel/30/README.md)
+    * [1 Samuel 31](1 Samuel/31/README.md)
