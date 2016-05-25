@@ -778,3 +778,4 @@
     * [Jeremia 5](Jeremia/5/README.md)
     * [Jeremia 6](Jeremia/6/README.md)
     * [Jeremia 7](Jeremia/7/README.md)
+    * [Jeremia 8](Jeremia/8/README.md)
