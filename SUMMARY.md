@@ -795,3 +795,4 @@
     * [Jeremia 22](Jeremia/22/README.md)
     * [Jeremia 23](Jeremia/23/README.md)
     * [Jeremia 24](Jeremia/24/README.md)
+    * [Jeremia 25](Jeremia/25/README.md)
