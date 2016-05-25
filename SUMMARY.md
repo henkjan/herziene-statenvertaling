@@ -1109,3 +1109,4 @@
     * [Romeinen 14](Romeinen/14/README.md)
     * [Romeinen 15](Romeinen/15/README.md)
     * [Romeinen 16](Romeinen/16/README.md)
+* [1 Korinthe](1 Korinthe/README.md)
