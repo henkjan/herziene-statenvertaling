@@ -452,3 +452,4 @@
     * [Esther 5](Esther/5/README.md)
     * [Esther 6](Esther/6/README.md)
     * [Esther 7](Esther/7/README.md)
+    * [Esther 8](Esther/8/README.md)
