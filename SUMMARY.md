@@ -421,3 +421,4 @@
     * [2 Kronieken 36](2 Kronieken/36/README.md)
 * [Ezra](Ezra/README.md)
     * [Ezra 1](Ezra/1/README.md)
+    * [Ezra 2](Ezra/2/README.md)
