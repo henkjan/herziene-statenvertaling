@@ -1139,3 +1139,4 @@
     * [2 Korinthe 10](2 Korinthe/10/README.md)
     * [2 Korinthe 11](2 Korinthe/11/README.md)
     * [2 Korinthe 12](2 Korinthe/12/README.md)
+    * [2 Korinthe 13](2 Korinthe/13/README.md)
