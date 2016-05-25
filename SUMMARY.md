@@ -272,3 +272,4 @@
     * [1 Samuel 23](1 Samuel/23/README.md)
     * [1 Samuel 24](1 Samuel/24/README.md)
     * [1 Samuel 25](1 Samuel/25/README.md)
+    * [1 Samuel 26](1 Samuel/26/README.md)
