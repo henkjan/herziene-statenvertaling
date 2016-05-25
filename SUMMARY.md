@@ -649,3 +649,4 @@
     * [Psalmen 148](Psalmen/148/README.md)
     * [Psalmen 149](Psalmen/149/README.md)
     * [Psalmen 150](Psalmen/150/README.md)
+* [Spreuken](Spreuken/README.md)
