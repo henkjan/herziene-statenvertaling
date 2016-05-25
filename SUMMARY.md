@@ -1182,3 +1182,4 @@
     * [1 Timotheus 5](1 Timotheus/5/README.md)
     * [1 Timotheus 6](1 Timotheus/6/README.md)
 * [2 Timotheus](2 Timotheus/README.md)
+    * [2 Timotheus 1](2 Timotheus/1/README.md)
