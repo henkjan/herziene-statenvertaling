@@ -713,3 +713,4 @@
     * [Jesaja 7](Jesaja/7/README.md)
     * [Jesaja 8](Jesaja/8/README.md)
     * [Jesaja 9](Jesaja/9/README.md)
+    * [Jesaja 10](Jesaja/10/README.md)
