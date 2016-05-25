@@ -170,3 +170,4 @@
     * [Deuteronomium 8](Deuteronomium/8/README.md)
     * [Deuteronomium 9](Deuteronomium/9/README.md)
     * [Deuteronomium 10](Deuteronomium/10/README.md)
+    * [Deuteronomium 11](Deuteronomium/11/README.md)
