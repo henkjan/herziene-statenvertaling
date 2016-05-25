@@ -221,3 +221,4 @@
     * [Jozua 24](Jozua/24/README.md)
 * [Richteren](Richteren/README.md)
     * [Richteren 1](Richteren/1/README.md)
+    * [Richteren 2](Richteren/2/README.md)
