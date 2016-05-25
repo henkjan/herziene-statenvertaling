@@ -792,3 +792,4 @@
     * [Jeremia 19](Jeremia/19/README.md)
     * [Jeremia 20](Jeremia/20/README.md)
     * [Jeremia 21](Jeremia/21/README.md)
+    * [Jeremia 22](Jeremia/22/README.md)
