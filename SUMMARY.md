@@ -1243,3 +1243,4 @@
     * [Openbaring 6](Openbaring/6/README.md)
     * [Openbaring 7](Openbaring/7/README.md)
     * [Openbaring 8](Openbaring/8/README.md)
+    * [Openbaring 9](Openbaring/9/README.md)
