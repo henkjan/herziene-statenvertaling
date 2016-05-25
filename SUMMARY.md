@@ -130,3 +130,4 @@
     * [Numeri 5](Numeri/5/README.md)
     * [Numeri 6](Numeri/6/README.md)
     * [Numeri 7](Numeri/7/README.md)
+    * [Numeri 8](Numeri/8/README.md)
