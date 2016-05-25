@@ -180,3 +180,4 @@
     * [Deuteronomium 18](Deuteronomium/18/README.md)
     * [Deuteronomium 19](Deuteronomium/19/README.md)
     * [Deuteronomium 20](Deuteronomium/20/README.md)
+    * [Deuteronomium 21](Deuteronomium/21/README.md)
