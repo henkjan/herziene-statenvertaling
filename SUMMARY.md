@@ -732,3 +732,4 @@
     * [Jesaja 26](Jesaja/26/README.md)
     * [Jesaja 27](Jesaja/27/README.md)
     * [Jesaja 28](Jesaja/28/README.md)
+    * [Jesaja 29](Jesaja/29/README.md)
