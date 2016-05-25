@@ -67,3 +67,4 @@
     * [Exodus 11](Exodus/11/README.md)
     * [Exodus 12](Exodus/12/README.md)
     * [Exodus 13](Exodus/13/README.md)
+    * [Exodus 14](Exodus/14/README.md)
