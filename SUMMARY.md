@@ -55,3 +55,4 @@
     * [Genesis 50](Genesis/50/README.md)
 * [Exodus](Exodus/README.md)
     * [Exodus 1](Exodus/1/README.md)
+    * [Exodus 2](Exodus/2/README.md)
