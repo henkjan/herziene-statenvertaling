@@ -556,3 +556,4 @@
     * [Psalmen 55](Psalmen/55/README.md)
     * [Psalmen 56](Psalmen/56/README.md)
     * [Psalmen 57](Psalmen/57/README.md)
+    * [Psalmen 58](Psalmen/58/README.md)
