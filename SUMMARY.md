@@ -688,3 +688,4 @@
     * [Prediker 4](Prediker/4/README.md)
     * [Prediker 5](Prediker/5/README.md)
     * [Prediker 6](Prediker/6/README.md)
+    * [Prediker 7](Prediker/7/README.md)
