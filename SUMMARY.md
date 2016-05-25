@@ -1238,3 +1238,4 @@
     * [Openbaring 1](Openbaring/1/README.md)
     * [Openbaring 2](Openbaring/2/README.md)
     * [Openbaring 3](Openbaring/3/README.md)
+    * [Openbaring 4](Openbaring/4/README.md)
