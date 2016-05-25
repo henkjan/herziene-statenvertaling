@@ -250,3 +250,4 @@
     * [1 Samuel 1](1 Samuel/1/README.md)
     * [1 Samuel 2](1 Samuel/2/README.md)
     * [1 Samuel 3](1 Samuel/3/README.md)
+    * [1 Samuel 4](1 Samuel/4/README.md)
