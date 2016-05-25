@@ -641,3 +641,4 @@
     * [Psalmen 140](Psalmen/140/README.md)
     * [Psalmen 141](Psalmen/141/README.md)
     * [Psalmen 142](Psalmen/142/README.md)
+    * [Psalmen 143](Psalmen/143/README.md)
