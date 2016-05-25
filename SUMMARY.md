@@ -1098,3 +1098,4 @@
     * [Romeinen 3](Romeinen/3/README.md)
     * [Romeinen 4](Romeinen/4/README.md)
     * [Romeinen 5](Romeinen/5/README.md)
+    * [Romeinen 6](Romeinen/6/README.md)
