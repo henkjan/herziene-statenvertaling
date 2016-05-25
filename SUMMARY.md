@@ -835,3 +835,4 @@
     * [Ezechiel 3](Ezechiel/3/README.md)
     * [Ezechiel 4](Ezechiel/4/README.md)
     * [Ezechiel 5](Ezechiel/5/README.md)
+    * [Ezechiel 6](Ezechiel/6/README.md)
