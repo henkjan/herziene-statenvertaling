@@ -162,3 +162,4 @@
 * [Deuteronomium](Deuteronomium/README.md)
     * [Deuteronomium 1](Deuteronomium/1/README.md)
     * [Deuteronomium 2](Deuteronomium/2/README.md)
+    * [Deuteronomium 3](Deuteronomium/3/README.md)
