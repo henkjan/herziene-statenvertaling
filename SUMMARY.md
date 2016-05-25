@@ -12,3 +12,4 @@
     * [Genesis 7](Genesis/7/README.md)
     * [Genesis 8](Genesis/8/README.md)
     * [Genesis 9](Genesis/9/README.md)
+    * [Genesis 10](Genesis/10/README.md)
