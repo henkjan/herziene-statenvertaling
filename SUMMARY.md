@@ -623,3 +623,4 @@
     * [Psalmen 122](Psalmen/122/README.md)
     * [Psalmen 123](Psalmen/123/README.md)
     * [Psalmen 124](Psalmen/124/README.md)
+    * [Psalmen 125](Psalmen/125/README.md)
