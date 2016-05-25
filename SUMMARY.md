@@ -1067,3 +1067,4 @@
     * [Handelingen 1](Handelingen/1/README.md)
     * [Handelingen 2](Handelingen/2/README.md)
     * [Handelingen 3](Handelingen/3/README.md)
+    * [Handelingen 4](Handelingen/4/README.md)
