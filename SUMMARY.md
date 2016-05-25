@@ -920,3 +920,4 @@
     * [Amos 7](Amos/7/README.md)
     * [Amos 8](Amos/8/README.md)
     * [Amos 9](Amos/9/README.md)
+* [Obadja](Obadja/README.md)
