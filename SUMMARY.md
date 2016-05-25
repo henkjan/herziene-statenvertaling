@@ -868,3 +868,4 @@
     * [Ezechiel 36](Ezechiel/36/README.md)
     * [Ezechiel 37](Ezechiel/37/README.md)
     * [Ezechiel 38](Ezechiel/38/README.md)
+    * [Ezechiel 39](Ezechiel/39/README.md)
