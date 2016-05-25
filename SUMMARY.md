@@ -591,3 +591,4 @@
     * [Psalmen 90](Psalmen/90/README.md)
     * [Psalmen 91](Psalmen/91/README.md)
     * [Psalmen 92](Psalmen/92/README.md)
+    * [Psalmen 93](Psalmen/93/README.md)
