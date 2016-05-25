@@ -996,3 +996,4 @@
     * [Mattheus 23](Mattheus/23/README.md)
     * [Mattheus 24](Mattheus/24/README.md)
     * [Mattheus 25](Mattheus/25/README.md)
+    * [Mattheus 26](Mattheus/26/README.md)
