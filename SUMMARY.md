@@ -202,3 +202,4 @@
     * [Jozua 5](Jozua/5/README.md)
     * [Jozua 6](Jozua/6/README.md)
     * [Jozua 7](Jozua/7/README.md)
+    * [Jozua 8](Jozua/8/README.md)
