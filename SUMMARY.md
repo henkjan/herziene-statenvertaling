@@ -1,4 +1,4 @@
-# Inhoudsopgave
+# Summary
 
-* [Introduction](README.md)
+* [Introductie](README.md)
 
