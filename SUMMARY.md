@@ -109,3 +109,4 @@
     * [Leviticus 12](Leviticus/12/README.md)
     * [Leviticus 13](Leviticus/13/README.md)
     * [Leviticus 14](Leviticus/14/README.md)
+    * [Leviticus 15](Leviticus/15/README.md)
