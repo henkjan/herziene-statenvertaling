@@ -906,3 +906,4 @@
     * [Hosea 12](Hosea/12/README.md)
     * [Hosea 13](Hosea/13/README.md)
     * [Hosea 14](Hosea/14/README.md)
+* [Joel](Joel/README.md)
