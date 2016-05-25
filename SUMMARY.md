@@ -825,3 +825,4 @@
     * [Jeremia 52](Jeremia/52/README.md)
 * [Klaagliederen](Klaagliederen/README.md)
     * [Klaagliederen 1](Klaagliederen/1/README.md)
+    * [Klaagliederen 2](Klaagliederen/2/README.md)
