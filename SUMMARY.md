@@ -851,3 +851,4 @@
     * [Ezechiel 19](Ezechiel/19/README.md)
     * [Ezechiel 20](Ezechiel/20/README.md)
     * [Ezechiel 21](Ezechiel/21/README.md)
+    * [Ezechiel 22](Ezechiel/22/README.md)
