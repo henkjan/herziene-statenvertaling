@@ -296,3 +296,4 @@
     * [2 Samuel 15](2 Samuel/15/README.md)
     * [2 Samuel 16](2 Samuel/16/README.md)
     * [2 Samuel 17](2 Samuel/17/README.md)
+    * [2 Samuel 18](2 Samuel/18/README.md)
