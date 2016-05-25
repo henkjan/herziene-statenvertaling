@@ -903,3 +903,4 @@
     * [Hosea 9](Hosea/9/README.md)
     * [Hosea 10](Hosea/10/README.md)
     * [Hosea 11](Hosea/11/README.md)
+    * [Hosea 12](Hosea/12/README.md)
