@@ -918,3 +918,4 @@
     * [Amos 5](Amos/5/README.md)
     * [Amos 6](Amos/6/README.md)
     * [Amos 7](Amos/7/README.md)
+    * [Amos 8](Amos/8/README.md)
