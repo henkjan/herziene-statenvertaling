@@ -1179,3 +1179,4 @@
     * [1 Timotheus 2](1 Timotheus/2/README.md)
     * [1 Timotheus 3](1 Timotheus/3/README.md)
     * [1 Timotheus 4](1 Timotheus/4/README.md)
+    * [1 Timotheus 5](1 Timotheus/5/README.md)
