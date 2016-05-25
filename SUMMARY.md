@@ -183,3 +183,4 @@
     * [Deuteronomium 21](Deuteronomium/21/README.md)
     * [Deuteronomium 22](Deuteronomium/22/README.md)
     * [Deuteronomium 23](Deuteronomium/23/README.md)
+    * [Deuteronomium 24](Deuteronomium/24/README.md)
