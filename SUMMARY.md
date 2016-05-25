@@ -384,3 +384,4 @@
     * [1 Kronieken 29](1 Kronieken/29/README.md)
 * [2 Kronieken](2 Kronieken/README.md)
     * [2 Kronieken 1](2 Kronieken/1/README.md)
+    * [2 Kronieken 2](2 Kronieken/2/README.md)
