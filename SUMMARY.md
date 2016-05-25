@@ -1043,3 +1043,4 @@
     * [Lukas 24](Lukas/24/README.md)
 * [Johannes](Johannes/README.md)
     * [Johannes 1](Johannes/1/README.md)
+    * [Johannes 2](Johannes/2/README.md)
