@@ -52,3 +52,4 @@
     * [Genesis 47](Genesis/47/README.md)
     * [Genesis 48](Genesis/48/README.md)
     * [Genesis 49](Genesis/49/README.md)
+    * [Genesis 50](Genesis/50/README.md)
