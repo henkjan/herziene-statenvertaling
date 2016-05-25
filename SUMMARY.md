@@ -1157,3 +1157,4 @@
 * [Filippenzen](Filippenzen/README.md)
     * [Filippenzen 1](Filippenzen/1/README.md)
     * [Filippenzen 2](Filippenzen/2/README.md)
+    * [Filippenzen 3](Filippenzen/3/README.md)
