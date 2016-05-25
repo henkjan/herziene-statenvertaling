@@ -215,3 +215,4 @@
     * [Jozua 18](Jozua/18/README.md)
     * [Jozua 19](Jozua/19/README.md)
     * [Jozua 20](Jozua/20/README.md)
+    * [Jozua 21](Jozua/21/README.md)
