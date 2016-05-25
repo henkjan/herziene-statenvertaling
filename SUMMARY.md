@@ -366,3 +366,4 @@
     * [1 Kronieken 11](1 Kronieken/11/README.md)
     * [1 Kronieken 12](1 Kronieken/12/README.md)
     * [1 Kronieken 13](1 Kronieken/13/README.md)
+    * [1 Kronieken 14](1 Kronieken/14/README.md)
