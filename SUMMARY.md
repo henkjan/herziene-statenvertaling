@@ -745,3 +745,4 @@
     * [Jesaja 39](Jesaja/39/README.md)
     * [Jesaja 40](Jesaja/40/README.md)
     * [Jesaja 41](Jesaja/41/README.md)
+    * [Jesaja 42](Jesaja/42/README.md)
