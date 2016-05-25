@@ -725,3 +725,4 @@
     * [Jesaja 19](Jesaja/19/README.md)
     * [Jesaja 20](Jesaja/20/README.md)
     * [Jesaja 21](Jesaja/21/README.md)
+    * [Jesaja 22](Jesaja/22/README.md)
