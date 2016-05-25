@@ -943,3 +943,4 @@
     * [Habakuk 1](Habakuk/1/README.md)
     * [Habakuk 2](Habakuk/2/README.md)
     * [Habakuk 3](Habakuk/3/README.md)
+* [Zefanja](Zefanja/README.md)
