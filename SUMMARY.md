@@ -709,3 +709,4 @@
     * [Jesaja 3](Jesaja/3/README.md)
     * [Jesaja 4](Jesaja/4/README.md)
     * [Jesaja 5](Jesaja/5/README.md)
+    * [Jesaja 6](Jesaja/6/README.md)
