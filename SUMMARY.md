@@ -504,3 +504,4 @@
     * [Psalmen 3](Psalmen/3/README.md)
     * [Psalmen 4](Psalmen/4/README.md)
     * [Psalmen 5](Psalmen/5/README.md)
+    * [Psalmen 6](Psalmen/6/README.md)
