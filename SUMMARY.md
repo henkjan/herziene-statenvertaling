@@ -520,3 +520,4 @@
     * [Psalmen 19](Psalmen/19/README.md)
     * [Psalmen 20](Psalmen/20/README.md)
     * [Psalmen 21](Psalmen/21/README.md)
+    * [Psalmen 22](Psalmen/22/README.md)
