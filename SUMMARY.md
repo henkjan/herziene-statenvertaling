@@ -102,3 +102,4 @@
     * [Leviticus 5](Leviticus/5/README.md)
     * [Leviticus 6](Leviticus/6/README.md)
     * [Leviticus 7](Leviticus/7/README.md)
+    * [Leviticus 8](Leviticus/8/README.md)
