@@ -671,3 +671,4 @@
     * [Spreuken 19](Spreuken/19/README.md)
     * [Spreuken 20](Spreuken/20/README.md)
     * [Spreuken 21](Spreuken/21/README.md)
+    * [Spreuken 22](Spreuken/22/README.md)
