@@ -855,3 +855,4 @@
     * [Ezechiel 23](Ezechiel/23/README.md)
     * [Ezechiel 24](Ezechiel/24/README.md)
     * [Ezechiel 25](Ezechiel/25/README.md)
+    * [Ezechiel 26](Ezechiel/26/README.md)
