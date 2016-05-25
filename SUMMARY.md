@@ -952,3 +952,4 @@
     * [Haggai 2](Haggai/2/README.md)
 * [Zacharia](Zacharia/README.md)
     * [Zacharia 1](Zacharia/1/README.md)
+    * [Zacharia 2](Zacharia/2/README.md)
