@@ -247,3 +247,4 @@
     * [Ruth 3](Ruth/3/README.md)
     * [Ruth 4](Ruth/4/README.md)
 * [1 Samuel](1 Samuel/README.md)
+    * [1 Samuel 1](1 Samuel/1/README.md)
