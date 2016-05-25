@@ -879,3 +879,4 @@
     * [Ezechiel 47](Ezechiel/47/README.md)
     * [Ezechiel 48](Ezechiel/48/README.md)
 * [Daniel](Daniel/README.md)
+    * [Daniel 1](Daniel/1/README.md)
