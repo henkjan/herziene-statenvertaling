@@ -822,3 +822,4 @@
     * [Jeremia 49](Jeremia/49/README.md)
     * [Jeremia 50](Jeremia/50/README.md)
     * [Jeremia 51](Jeremia/51/README.md)
+    * [Jeremia 52](Jeremia/52/README.md)
