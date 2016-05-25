@@ -305,3 +305,4 @@
     * [2 Samuel 24](2 Samuel/24/README.md)
 * [1 Koningen](1 Koningen/README.md)
     * [1 Koningen 1](1 Koningen/1/README.md)
+    * [1 Koningen 2](1 Koningen/2/README.md)
