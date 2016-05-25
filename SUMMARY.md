@@ -772,3 +772,4 @@
     * [Jesaja 66](Jesaja/66/README.md)
 * [Jeremia](Jeremia/README.md)
     * [Jeremia 1](Jeremia/1/README.md)
+    * [Jeremia 2](Jeremia/2/README.md)
