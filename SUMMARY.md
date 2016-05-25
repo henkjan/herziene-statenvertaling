@@ -293,3 +293,4 @@
     * [2 Samuel 12](2 Samuel/12/README.md)
     * [2 Samuel 13](2 Samuel/13/README.md)
     * [2 Samuel 14](2 Samuel/14/README.md)
+    * [2 Samuel 15](2 Samuel/15/README.md)
