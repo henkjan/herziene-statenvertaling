@@ -1149,3 +1149,4 @@
     * [Galaten 6](Galaten/6/README.md)
 * [Efeze](Efeze/README.md)
     * [Efeze 1](Efeze/1/README.md)
+    * [Efeze 2](Efeze/2/README.md)
