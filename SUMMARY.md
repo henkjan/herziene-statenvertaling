@@ -1162,3 +1162,4 @@
 * [Kolossenzen](Kolossenzen/README.md)
     * [Kolossenzen 1](Kolossenzen/1/README.md)
     * [Kolossenzen 2](Kolossenzen/2/README.md)
+    * [Kolossenzen 3](Kolossenzen/3/README.md)
