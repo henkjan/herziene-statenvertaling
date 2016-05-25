@@ -518,3 +518,4 @@
     * [Psalmen 17](Psalmen/17/README.md)
     * [Psalmen 18](Psalmen/18/README.md)
     * [Psalmen 19](Psalmen/19/README.md)
+    * [Psalmen 20](Psalmen/20/README.md)
