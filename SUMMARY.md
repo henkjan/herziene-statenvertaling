@@ -1206,3 +1206,4 @@
     * [Hebreeen 11](Hebreeen/11/README.md)
     * [Hebreeen 12](Hebreeen/12/README.md)
     * [Hebreeen 13](Hebreeen/13/README.md)
+* [Jakobus](Jakobus/README.md)
