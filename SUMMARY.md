@@ -876,3 +876,4 @@
     * [Ezechiel 44](Ezechiel/44/README.md)
     * [Ezechiel 45](Ezechiel/45/README.md)
     * [Ezechiel 46](Ezechiel/46/README.md)
+    * [Ezechiel 47](Ezechiel/47/README.md)
