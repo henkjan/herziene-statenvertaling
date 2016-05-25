@@ -753,3 +753,4 @@
     * [Jesaja 47](Jesaja/47/README.md)
     * [Jesaja 48](Jesaja/48/README.md)
     * [Jesaja 49](Jesaja/49/README.md)
+    * [Jesaja 50](Jesaja/50/README.md)
