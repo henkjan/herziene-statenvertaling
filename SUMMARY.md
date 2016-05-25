@@ -1218,3 +1218,4 @@
     * [1 Petrus 3](1 Petrus/3/README.md)
     * [1 Petrus 4](1 Petrus/4/README.md)
     * [1 Petrus 5](1 Petrus/5/README.md)
+* [2 Petrus](2 Petrus/README.md)
