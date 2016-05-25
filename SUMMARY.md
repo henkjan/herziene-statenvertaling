@@ -94,3 +94,4 @@
     * [Exodus 38](Exodus/38/README.md)
     * [Exodus 39](Exodus/39/README.md)
     * [Exodus 40](Exodus/40/README.md)
+* [Leviticus](Leviticus/README.md)
