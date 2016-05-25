@@ -325,3 +325,4 @@
     * [1 Koningen 19](1 Koningen/19/README.md)
     * [1 Koningen 20](1 Koningen/20/README.md)
     * [1 Koningen 21](1 Koningen/21/README.md)
+    * [1 Koningen 22](1 Koningen/22/README.md)
