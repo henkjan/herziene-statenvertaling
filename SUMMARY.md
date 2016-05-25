@@ -348,3 +348,4 @@
     * [2 Koningen 19](2 Koningen/19/README.md)
     * [2 Koningen 20](2 Koningen/20/README.md)
     * [2 Koningen 21](2 Koningen/21/README.md)
+    * [2 Koningen 22](2 Koningen/22/README.md)
