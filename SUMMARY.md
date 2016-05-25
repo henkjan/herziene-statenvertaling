@@ -570,3 +570,4 @@
     * [Psalmen 69](Psalmen/69/README.md)
     * [Psalmen 70](Psalmen/70/README.md)
     * [Psalmen 71](Psalmen/71/README.md)
+    * [Psalmen 72](Psalmen/72/README.md)
