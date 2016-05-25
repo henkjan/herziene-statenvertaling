@@ -1026,3 +1026,4 @@
     * [Lukas 7](Lukas/7/README.md)
     * [Lukas 8](Lukas/8/README.md)
     * [Lukas 9](Lukas/9/README.md)
+    * [Lukas 10](Lukas/10/README.md)
