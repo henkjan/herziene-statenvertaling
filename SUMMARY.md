@@ -401,3 +401,4 @@
     * [2 Kronieken 16](2 Kronieken/16/README.md)
     * [2 Kronieken 17](2 Kronieken/17/README.md)
     * [2 Kronieken 18](2 Kronieken/18/README.md)
+    * [2 Kronieken 19](2 Kronieken/19/README.md)
