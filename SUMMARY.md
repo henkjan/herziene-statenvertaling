@@ -1080,3 +1080,4 @@
     * [Handelingen 14](Handelingen/14/README.md)
     * [Handelingen 15](Handelingen/15/README.md)
     * [Handelingen 16](Handelingen/16/README.md)
+    * [Handelingen 17](Handelingen/17/README.md)
