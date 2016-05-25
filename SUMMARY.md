@@ -653,3 +653,4 @@
     * [Spreuken 1](Spreuken/1/README.md)
     * [Spreuken 2](Spreuken/2/README.md)
     * [Spreuken 3](Spreuken/3/README.md)
+    * [Spreuken 4](Spreuken/4/README.md)
