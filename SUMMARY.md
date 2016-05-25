@@ -802,3 +802,4 @@
     * [Jeremia 29](Jeremia/29/README.md)
     * [Jeremia 30](Jeremia/30/README.md)
     * [Jeremia 31](Jeremia/31/README.md)
+    * [Jeremia 32](Jeremia/32/README.md)
