@@ -849,3 +849,4 @@
     * [Ezechiel 17](Ezechiel/17/README.md)
     * [Ezechiel 18](Ezechiel/18/README.md)
     * [Ezechiel 19](Ezechiel/19/README.md)
+    * [Ezechiel 20](Ezechiel/20/README.md)
