@@ -344,3 +344,4 @@
     * [2 Koningen 15](2 Koningen/15/README.md)
     * [2 Koningen 16](2 Koningen/16/README.md)
     * [2 Koningen 17](2 Koningen/17/README.md)
+    * [2 Koningen 18](2 Koningen/18/README.md)
