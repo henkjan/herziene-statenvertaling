@@ -817,3 +817,4 @@
     * [Jeremia 44](Jeremia/44/README.md)
     * [Jeremia 45](Jeremia/45/README.md)
     * [Jeremia 46](Jeremia/46/README.md)
+    * [Jeremia 47](Jeremia/47/README.md)
