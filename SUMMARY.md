@@ -332,3 +332,4 @@
     * [2 Koningen 3](2 Koningen/3/README.md)
     * [2 Koningen 4](2 Koningen/4/README.md)
     * [2 Koningen 5](2 Koningen/5/README.md)
+    * [2 Koningen 6](2 Koningen/6/README.md)
