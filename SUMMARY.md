@@ -257,3 +257,4 @@
     * [1 Samuel 8](1 Samuel/8/README.md)
     * [1 Samuel 9](1 Samuel/9/README.md)
     * [1 Samuel 10](1 Samuel/10/README.md)
+    * [1 Samuel 11](1 Samuel/11/README.md)
