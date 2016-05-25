@@ -1176,3 +1176,4 @@
     * [2 Thessalonicenzen 3](2 Thessalonicenzen/3/README.md)
 * [1 Timotheus](1 Timotheus/README.md)
     * [1 Timotheus 1](1 Timotheus/1/README.md)
+    * [1 Timotheus 2](1 Timotheus/2/README.md)
