@@ -438,3 +438,4 @@
     * [Nehemia 5](Nehemia/5/README.md)
     * [Nehemia 6](Nehemia/6/README.md)
     * [Nehemia 7](Nehemia/7/README.md)
+    * [Nehemia 8](Nehemia/8/README.md)
