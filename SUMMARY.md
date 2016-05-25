@@ -96,3 +96,4 @@
     * [Exodus 40](Exodus/40/README.md)
 * [Leviticus](Leviticus/README.md)
     * [Leviticus 1](Leviticus/1/README.md)
+    * [Leviticus 2](Leviticus/2/README.md)
