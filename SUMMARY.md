@@ -1087,3 +1087,4 @@
     * [Handelingen 21](Handelingen/21/README.md)
     * [Handelingen 22](Handelingen/22/README.md)
     * [Handelingen 23](Handelingen/23/README.md)
+    * [Handelingen 24](Handelingen/24/README.md)
