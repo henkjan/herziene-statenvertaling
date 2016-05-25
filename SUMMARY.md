@@ -861,3 +861,4 @@
     * [Ezechiel 29](Ezechiel/29/README.md)
     * [Ezechiel 30](Ezechiel/30/README.md)
     * [Ezechiel 31](Ezechiel/31/README.md)
+    * [Ezechiel 32](Ezechiel/32/README.md)
