@@ -81,3 +81,4 @@
     * [Exodus 25](Exodus/25/README.md)
     * [Exodus 26](Exodus/26/README.md)
     * [Exodus 27](Exodus/27/README.md)
+    * [Exodus 28](Exodus/28/README.md)
