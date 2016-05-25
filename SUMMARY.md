@@ -320,3 +320,4 @@
     * [1 Koningen 14](1 Koningen/14/README.md)
     * [1 Koningen 15](1 Koningen/15/README.md)
     * [1 Koningen 16](1 Koningen/16/README.md)
+    * [1 Koningen 17](1 Koningen/17/README.md)
