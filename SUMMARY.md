@@ -225,3 +225,4 @@
     * [Richteren 3](Richteren/3/README.md)
     * [Richteren 4](Richteren/4/README.md)
     * [Richteren 5](Richteren/5/README.md)
+    * [Richteren 6](Richteren/6/README.md)
