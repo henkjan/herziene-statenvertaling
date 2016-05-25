@@ -1047,3 +1047,4 @@
     * [Johannes 3](Johannes/3/README.md)
     * [Johannes 4](Johannes/4/README.md)
     * [Johannes 5](Johannes/5/README.md)
+    * [Johannes 6](Johannes/6/README.md)
