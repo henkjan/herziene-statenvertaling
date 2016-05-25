@@ -545,3 +545,4 @@
     * [Psalmen 44](Psalmen/44/README.md)
     * [Psalmen 45](Psalmen/45/README.md)
     * [Psalmen 46](Psalmen/46/README.md)
+    * [Psalmen 47](Psalmen/47/README.md)
