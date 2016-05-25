@@ -31,3 +31,4 @@
     * [Genesis 26](Genesis/26/README.md)
     * [Genesis 27](Genesis/27/README.md)
     * [Genesis 28](Genesis/28/README.md)
+    * [Genesis 29](Genesis/29/README.md)
