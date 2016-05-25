@@ -189,3 +189,4 @@
     * [Deuteronomium 27](Deuteronomium/27/README.md)
     * [Deuteronomium 28](Deuteronomium/28/README.md)
     * [Deuteronomium 29](Deuteronomium/29/README.md)
+    * [Deuteronomium 30](Deuteronomium/30/README.md)
