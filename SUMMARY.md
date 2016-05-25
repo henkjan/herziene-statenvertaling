@@ -289,3 +289,4 @@
     * [2 Samuel 8](2 Samuel/8/README.md)
     * [2 Samuel 9](2 Samuel/9/README.md)
     * [2 Samuel 10](2 Samuel/10/README.md)
+    * [2 Samuel 11](2 Samuel/11/README.md)
