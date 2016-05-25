@@ -938,3 +938,4 @@
 * [Nahum](Nahum/README.md)
     * [Nahum 1](Nahum/1/README.md)
     * [Nahum 2](Nahum/2/README.md)
+    * [Nahum 3](Nahum/3/README.md)
