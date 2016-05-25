@@ -239,3 +239,4 @@
     * [Richteren 17](Richteren/17/README.md)
     * [Richteren 18](Richteren/18/README.md)
     * [Richteren 19](Richteren/19/README.md)
+    * [Richteren 20](Richteren/20/README.md)
