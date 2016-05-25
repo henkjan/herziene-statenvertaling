@@ -782,3 +782,4 @@
     * [Jeremia 9](Jeremia/9/README.md)
     * [Jeremia 10](Jeremia/10/README.md)
     * [Jeremia 11](Jeremia/11/README.md)
+    * [Jeremia 12](Jeremia/12/README.md)
