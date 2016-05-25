@@ -1035,3 +1035,4 @@
     * [Lukas 16](Lukas/16/README.md)
     * [Lukas 17](Lukas/17/README.md)
     * [Lukas 18](Lukas/18/README.md)
+    * [Lukas 19](Lukas/19/README.md)
