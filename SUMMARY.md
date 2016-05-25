@@ -701,3 +701,4 @@
     * [Hooglied 4](Hooglied/4/README.md)
     * [Hooglied 5](Hooglied/5/README.md)
     * [Hooglied 6](Hooglied/6/README.md)
+    * [Hooglied 7](Hooglied/7/README.md)
