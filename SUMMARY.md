@@ -350,3 +350,4 @@
     * [2 Koningen 21](2 Koningen/21/README.md)
     * [2 Koningen 22](2 Koningen/22/README.md)
     * [2 Koningen 23](2 Koningen/23/README.md)
+    * [2 Koningen 24](2 Koningen/24/README.md)
