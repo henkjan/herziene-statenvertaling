@@ -841,3 +841,4 @@
     * [Ezechiel 9](Ezechiel/9/README.md)
     * [Ezechiel 10](Ezechiel/10/README.md)
     * [Ezechiel 11](Ezechiel/11/README.md)
+    * [Ezechiel 12](Ezechiel/12/README.md)
