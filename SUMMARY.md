@@ -245,3 +245,4 @@
     * [Ruth 1](Ruth/1/README.md)
     * [Ruth 2](Ruth/2/README.md)
     * [Ruth 3](Ruth/3/README.md)
+    * [Ruth 4](Ruth/4/README.md)
