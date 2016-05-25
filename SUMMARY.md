@@ -42,3 +42,4 @@
     * [Genesis 37](Genesis/37/README.md)
     * [Genesis 38](Genesis/38/README.md)
     * [Genesis 39](Genesis/39/README.md)
+    * [Genesis 40](Genesis/40/README.md)
