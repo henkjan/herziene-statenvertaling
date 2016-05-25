@@ -432,3 +432,4 @@
     * [Ezra 10](Ezra/10/README.md)
 * [Nehemia](Nehemia/README.md)
     * [Nehemia 1](Nehemia/1/README.md)
+    * [Nehemia 2](Nehemia/2/README.md)
