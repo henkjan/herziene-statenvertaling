@@ -157,3 +157,4 @@
     * [Numeri 32](Numeri/32/README.md)
     * [Numeri 33](Numeri/33/README.md)
     * [Numeri 34](Numeri/34/README.md)
+    * [Numeri 35](Numeri/35/README.md)
