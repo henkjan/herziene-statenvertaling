@@ -152,3 +152,4 @@
     * [Numeri 27](Numeri/27/README.md)
     * [Numeri 28](Numeri/28/README.md)
     * [Numeri 29](Numeri/29/README.md)
+    * [Numeri 30](Numeri/30/README.md)
