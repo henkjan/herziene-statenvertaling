@@ -354,3 +354,4 @@
     * [2 Koningen 25](2 Koningen/25/README.md)
 * [1 Kronieken](1 Kronieken/README.md)
     * [1 Kronieken 1](1 Kronieken/1/README.md)
+    * [1 Kronieken 2](1 Kronieken/2/README.md)
