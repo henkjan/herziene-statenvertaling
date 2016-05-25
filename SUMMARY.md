@@ -198,3 +198,4 @@
     * [Jozua 1](Jozua/1/README.md)
     * [Jozua 2](Jozua/2/README.md)
     * [Jozua 3](Jozua/3/README.md)
+    * [Jozua 4](Jozua/4/README.md)
