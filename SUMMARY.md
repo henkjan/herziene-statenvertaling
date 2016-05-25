@@ -1145,3 +1145,4 @@
     * [Galaten 2](Galaten/2/README.md)
     * [Galaten 3](Galaten/3/README.md)
     * [Galaten 4](Galaten/4/README.md)
+    * [Galaten 5](Galaten/5/README.md)
