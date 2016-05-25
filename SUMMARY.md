@@ -880,3 +880,4 @@
     * [Ezechiel 48](Ezechiel/48/README.md)
 * [Daniel](Daniel/README.md)
     * [Daniel 1](Daniel/1/README.md)
+    * [Daniel 2](Daniel/2/README.md)
