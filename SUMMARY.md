@@ -194,3 +194,4 @@
     * [Deuteronomium 32](Deuteronomium/32/README.md)
     * [Deuteronomium 33](Deuteronomium/33/README.md)
     * [Deuteronomium 34](Deuteronomium/34/README.md)
+* [Jozua](Jozua/README.md)
