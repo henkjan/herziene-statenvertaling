@@ -523,3 +523,4 @@
     * [Psalmen 22](Psalmen/22/README.md)
     * [Psalmen 23](Psalmen/23/README.md)
     * [Psalmen 24](Psalmen/24/README.md)
+    * [Psalmen 25](Psalmen/25/README.md)
