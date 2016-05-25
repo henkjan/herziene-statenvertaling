@@ -211,3 +211,4 @@
     * [Jozua 14](Jozua/14/README.md)
     * [Jozua 15](Jozua/15/README.md)
     * [Jozua 16](Jozua/16/README.md)
+    * [Jozua 17](Jozua/17/README.md)
