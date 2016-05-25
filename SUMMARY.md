@@ -831,3 +831,4 @@
     * [Klaagliederen 5](Klaagliederen/5/README.md)
 * [Ezechiel](Ezechiel/README.md)
     * [Ezechiel 1](Ezechiel/1/README.md)
+    * [Ezechiel 2](Ezechiel/2/README.md)
