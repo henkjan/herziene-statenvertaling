@@ -941,3 +941,4 @@
     * [Nahum 3](Nahum/3/README.md)
 * [Habakuk](Habakuk/README.md)
     * [Habakuk 1](Habakuk/1/README.md)
+    * [Habakuk 2](Habakuk/2/README.md)
