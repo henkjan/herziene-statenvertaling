@@ -9,3 +9,4 @@
     * [Genesis 4](Genesis/4/README.md)
     * [Genesis 5](Genesis/5/README.md)
     * [Genesis 6](Genesis/6/README.md)
+    * [Genesis 7](Genesis/7/README.md)
