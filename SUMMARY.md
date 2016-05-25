@@ -44,3 +44,4 @@
     * [Genesis 39](Genesis/39/README.md)
     * [Genesis 40](Genesis/40/README.md)
     * [Genesis 41](Genesis/41/README.md)
+    * [Genesis 42](Genesis/42/README.md)
