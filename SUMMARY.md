@@ -1117,3 +1117,4 @@
     * [1 Korinthe 5](1 Korinthe/5/README.md)
     * [1 Korinthe 6](1 Korinthe/6/README.md)
     * [1 Korinthe 7](1 Korinthe/7/README.md)
+    * [1 Korinthe 8](1 Korinthe/8/README.md)
