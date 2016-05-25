@@ -232,3 +232,4 @@
     * [Richteren 10](Richteren/10/README.md)
     * [Richteren 11](Richteren/11/README.md)
     * [Richteren 12](Richteren/12/README.md)
+    * [Richteren 13](Richteren/13/README.md)
