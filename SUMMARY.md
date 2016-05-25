@@ -299,3 +299,4 @@
     * [2 Samuel 18](2 Samuel/18/README.md)
     * [2 Samuel 19](2 Samuel/19/README.md)
     * [2 Samuel 20](2 Samuel/20/README.md)
+    * [2 Samuel 21](2 Samuel/21/README.md)
