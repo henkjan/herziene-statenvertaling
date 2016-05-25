@@ -303,3 +303,4 @@
     * [2 Samuel 22](2 Samuel/22/README.md)
     * [2 Samuel 23](2 Samuel/23/README.md)
     * [2 Samuel 24](2 Samuel/24/README.md)
+* [1 Koningen](1 Koningen/README.md)
