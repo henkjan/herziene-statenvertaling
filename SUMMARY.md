@@ -839,3 +839,4 @@
     * [Ezechiel 7](Ezechiel/7/README.md)
     * [Ezechiel 8](Ezechiel/8/README.md)
     * [Ezechiel 9](Ezechiel/9/README.md)
+    * [Ezechiel 10](Ezechiel/10/README.md)
