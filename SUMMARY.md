@@ -1065,3 +1065,4 @@
     * [Johannes 21](Johannes/21/README.md)
 * [Handelingen](Handelingen/README.md)
     * [Handelingen 1](Handelingen/1/README.md)
+    * [Handelingen 2](Handelingen/2/README.md)
