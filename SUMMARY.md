@@ -734,3 +734,4 @@
     * [Jesaja 28](Jesaja/28/README.md)
     * [Jesaja 29](Jesaja/29/README.md)
     * [Jesaja 30](Jesaja/30/README.md)
+    * [Jesaja 31](Jesaja/31/README.md)
