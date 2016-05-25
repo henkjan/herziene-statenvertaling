@@ -728,3 +728,4 @@
     * [Jesaja 22](Jesaja/22/README.md)
     * [Jesaja 23](Jesaja/23/README.md)
     * [Jesaja 24](Jesaja/24/README.md)
+    * [Jesaja 25](Jesaja/25/README.md)
