@@ -208,3 +208,4 @@
     * [Jozua 11](Jozua/11/README.md)
     * [Jozua 12](Jozua/12/README.md)
     * [Jozua 13](Jozua/13/README.md)
+    * [Jozua 14](Jozua/14/README.md)
