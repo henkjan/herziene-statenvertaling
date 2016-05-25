@@ -115,3 +115,4 @@
     * [Leviticus 18](Leviticus/18/README.md)
     * [Leviticus 19](Leviticus/19/README.md)
     * [Leviticus 20](Leviticus/20/README.md)
+    * [Leviticus 21](Leviticus/21/README.md)
