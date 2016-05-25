@@ -19,3 +19,4 @@
     * [Genesis 14](Genesis/14/README.md)
     * [Genesis 15](Genesis/15/README.md)
     * [Genesis 16](Genesis/16/README.md)
+    * [Genesis 17](Genesis/17/README.md)
