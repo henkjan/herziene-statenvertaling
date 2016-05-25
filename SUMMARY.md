@@ -956,3 +956,4 @@
     * [Zacharia 3](Zacharia/3/README.md)
     * [Zacharia 4](Zacharia/4/README.md)
     * [Zacharia 5](Zacharia/5/README.md)
+    * [Zacharia 6](Zacharia/6/README.md)
