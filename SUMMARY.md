@@ -573,3 +573,4 @@
     * [Psalmen 72](Psalmen/72/README.md)
     * [Psalmen 73](Psalmen/73/README.md)
     * [Psalmen 74](Psalmen/74/README.md)
+    * [Psalmen 75](Psalmen/75/README.md)
