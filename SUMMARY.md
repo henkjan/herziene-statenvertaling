@@ -1247,3 +1247,4 @@
     * [Openbaring 10](Openbaring/10/README.md)
     * [Openbaring 11](Openbaring/11/README.md)
     * [Openbaring 12](Openbaring/12/README.md)
+    * [Openbaring 13](Openbaring/13/README.md)
