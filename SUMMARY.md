@@ -1220,3 +1220,4 @@
     * [1 Petrus 5](1 Petrus/5/README.md)
 * [2 Petrus](2 Petrus/README.md)
     * [2 Petrus 1](2 Petrus/1/README.md)
+    * [2 Petrus 2](2 Petrus/2/README.md)
