@@ -178,3 +178,4 @@
     * [Deuteronomium 16](Deuteronomium/16/README.md)
     * [Deuteronomium 17](Deuteronomium/17/README.md)
     * [Deuteronomium 18](Deuteronomium/18/README.md)
+    * [Deuteronomium 19](Deuteronomium/19/README.md)
