@@ -1208,3 +1208,4 @@
     * [Hebreeen 13](Hebreeen/13/README.md)
 * [Jakobus](Jakobus/README.md)
     * [Jakobus 1](Jakobus/1/README.md)
+    * [Jakobus 2](Jakobus/2/README.md)
