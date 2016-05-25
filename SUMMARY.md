@@ -425,3 +425,4 @@
     * [Ezra 3](Ezra/3/README.md)
     * [Ezra 4](Ezra/4/README.md)
     * [Ezra 5](Ezra/5/README.md)
+    * [Ezra 6](Ezra/6/README.md)
