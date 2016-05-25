@@ -76,3 +76,4 @@
     * [Exodus 20](Exodus/20/README.md)
     * [Exodus 21](Exodus/21/README.md)
     * [Exodus 22](Exodus/22/README.md)
+    * [Exodus 23](Exodus/23/README.md)
