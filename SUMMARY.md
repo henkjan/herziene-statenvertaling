@@ -550,3 +550,4 @@
     * [Psalmen 49](Psalmen/49/README.md)
     * [Psalmen 50](Psalmen/50/README.md)
     * [Psalmen 51](Psalmen/51/README.md)
+    * [Psalmen 52](Psalmen/52/README.md)
