@@ -1144,3 +1144,4 @@
     * [Galaten 1](Galaten/1/README.md)
     * [Galaten 2](Galaten/2/README.md)
     * [Galaten 3](Galaten/3/README.md)
+    * [Galaten 4](Galaten/4/README.md)
