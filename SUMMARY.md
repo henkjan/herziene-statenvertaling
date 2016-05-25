@@ -705,3 +705,4 @@
     * [Hooglied 8](Hooglied/8/README.md)
 * [Jesaja](Jesaja/README.md)
     * [Jesaja 1](Jesaja/1/README.md)
+    * [Jesaja 2](Jesaja/2/README.md)
