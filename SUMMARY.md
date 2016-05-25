@@ -710,3 +710,4 @@
     * [Jesaja 4](Jesaja/4/README.md)
     * [Jesaja 5](Jesaja/5/README.md)
     * [Jesaja 6](Jesaja/6/README.md)
+    * [Jesaja 7](Jesaja/7/README.md)
