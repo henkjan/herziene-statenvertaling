@@ -763,3 +763,4 @@
     * [Jesaja 57](Jesaja/57/README.md)
     * [Jesaja 58](Jesaja/58/README.md)
     * [Jesaja 59](Jesaja/59/README.md)
+    * [Jesaja 60](Jesaja/60/README.md)
