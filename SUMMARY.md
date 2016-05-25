@@ -123,3 +123,4 @@
     * [Leviticus 26](Leviticus/26/README.md)
     * [Leviticus 27](Leviticus/27/README.md)
 * [Numeri](Numeri/README.md)
+    * [Numeri 1](Numeri/1/README.md)
