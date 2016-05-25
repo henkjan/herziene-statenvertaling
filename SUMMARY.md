@@ -279,3 +279,4 @@
     * [1 Samuel 30](1 Samuel/30/README.md)
     * [1 Samuel 31](1 Samuel/31/README.md)
 * [2 Samuel](2 Samuel/README.md)
+    * [2 Samuel 1](2 Samuel/1/README.md)
