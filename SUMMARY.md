@@ -1156,3 +1156,4 @@
     * [Efeze 6](Efeze/6/README.md)
 * [Filippenzen](Filippenzen/README.md)
     * [Filippenzen 1](Filippenzen/1/README.md)
+    * [Filippenzen 2](Filippenzen/2/README.md)
