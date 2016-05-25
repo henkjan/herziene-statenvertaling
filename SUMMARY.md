@@ -1221,3 +1221,4 @@
 * [2 Petrus](2 Petrus/README.md)
     * [2 Petrus 1](2 Petrus/1/README.md)
     * [2 Petrus 2](2 Petrus/2/README.md)
+    * [2 Petrus 3](2 Petrus/3/README.md)
