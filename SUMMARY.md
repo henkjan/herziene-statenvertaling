@@ -263,3 +263,4 @@
     * [1 Samuel 14](1 Samuel/14/README.md)
     * [1 Samuel 15](1 Samuel/15/README.md)
     * [1 Samuel 16](1 Samuel/16/README.md)
+    * [1 Samuel 17](1 Samuel/17/README.md)
