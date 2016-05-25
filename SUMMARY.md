@@ -826,3 +826,4 @@
 * [Klaagliederen](Klaagliederen/README.md)
     * [Klaagliederen 1](Klaagliederen/1/README.md)
     * [Klaagliederen 2](Klaagliederen/2/README.md)
+    * [Klaagliederen 3](Klaagliederen/3/README.md)
