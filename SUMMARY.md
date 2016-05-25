@@ -87,3 +87,4 @@
     * [Exodus 31](Exodus/31/README.md)
     * [Exodus 32](Exodus/32/README.md)
     * [Exodus 33](Exodus/33/README.md)
+    * [Exodus 34](Exodus/34/README.md)
