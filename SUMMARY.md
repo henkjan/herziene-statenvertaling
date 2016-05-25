@@ -788,3 +788,4 @@
     * [Jeremia 15](Jeremia/15/README.md)
     * [Jeremia 16](Jeremia/16/README.md)
     * [Jeremia 17](Jeremia/17/README.md)
+    * [Jeremia 18](Jeremia/18/README.md)
