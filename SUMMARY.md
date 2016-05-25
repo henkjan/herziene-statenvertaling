@@ -683,3 +683,4 @@
     * [Spreuken 31](Spreuken/31/README.md)
 * [Prediker](Prediker/README.md)
     * [Prediker 1](Prediker/1/README.md)
+    * [Prediker 2](Prediker/2/README.md)
